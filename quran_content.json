@@ -1,0 +1,805 @@
+{
+  "site_title": "Kur'an'ı Kerim - Quran",
+  "author": "Salsabil",
+  "intro": "İniş Sırasına Göre Kur’an’ı Kerim",
+  "posts": [
+    {
+      "title": "Alak Suresi",
+      "date": "2025-04-20",
+      "summary": "1-96, Yapışan Pıhtı veya Oku!, Iqraa, or Read! or Proclaim! or Alaq, or The Clot of Congealed Blood. ",
+      "post": "posts/alak.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kalem Suresi",
+      "date": "2025-04-20",
+      "summary": "2-68, Kalem, Qalam, or the Pen, or Nun. ",
+      "post": "posts/kalem.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Muzemmil Suresi",
+      "date": "2025-04-20",
+      "summary": "3-73, Kapalı Olan, Büyük Bir İş Yüklenen, Muzzammil, or Folded in Garments.   ",
+      "post": "posts/muzemmil.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Müddessir Suresi",
+      "date": "2025-04-20",
+      "summary": "4-74, Sarınan, henüz Ona uymayanlar için bir uyarıcı olarak onun işlevine odaklanmaktadır,  Muddaththir, or One Wrapped Up.  ",
+      "post": "posts/muddessir.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fatiha Suresi",
+      "date": "2025-04-20",
+      "summary": "1-5, Açılış Bölümü ",
+      "post": "posts/fatiha.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Lehep - Tebbet Suresi",
+      "date": "2025-04-20",
+      "summary": "6-111, Alev Babası, Alev, Lahab, or (the Father of) Flame.  ",
+      "post": "posts/tebbet.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tekvir Suresi",
+      "date": "2025-04-20",
+      "summary": "7-81, Dürülen, Katlanan, Köreltilen, Takwir, or the Folding Up.  ",
+      "post": "posts/tekvir.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "A’la Suresi",
+      "date": "2025-04-20",
+      "summary": "8-87, En yüksek, Yüceltmek, Yükseltmek, Yüce Tanrı, Cenabı Hak, Ala, or The Most High.  ",
+      "post": "posts/ala.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Leyl Suresi",
+      "date": "2025-04-20",
+      "summary": "9-92, Gece, Lail, or The Night. ",
+      "post": "posts/leyl.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fecr Suresi",
+      "date": "2025-04-20",
+      "summary": "10-89, Şafak, Fajr, or The Break of Day.  ",
+      "post": "posts/fecr.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Duha Suresi",
+      "date": "2025-04-20",
+      "summary": "11-93, Muhteşem Sabah Aydınlığı/Işıkları, Dhuha, or The Glorious Morning Light.  ",
+      "post": "posts/duha.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İnşirah Suresi",
+      "date": "2025-04-20",
+      "summary": "12-94, Genişleyen/Genişletilen Vicdan, Vicdanın Genişlemesi, Inshirah, or The Expansion.  ",
+      "post": "posts/insirah.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Asr Suresi",
+      "date": "2025-04-20",
+      "summary": "13-103, Çağlar Boyunca Zaman, Asr, or Time through the Ages.  ",
+      "post": "posts/asr.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Adiyat Suresi",
+      "date": "2025-04-20",
+      "summary": "14-100, Koşanlar, Soluk Soluğa Koşan Atlar, Adiyat, or Those That Run. ",
+      "post": "posts/adiyat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kevser Suresi",
+      "date": "2025-04-20",
+      "summary": "15-108, Bolluk, Bereket, Zenginlik, Servet, Kauthar, or Abundance.  ",
+      "post": "posts/kevser.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tekasür Suresi",
+      "date": "2025-04-20",
+      "summary": "16-102, Yığmak, Üst Üste Koymak, Çoğaltmak, Takathur, or Piling Up.  ",
+      "post": "posts/tekasur.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Maun Suresi",
+      "date": "2025-04-20",
+      "summary": "17-107, Komşu Yardımlaşması, Yardım Etmek, Temel ve Zaruri İhtiyaçlar) diğer namları Ereeyte Suresi, Din Suresi, Tekzib Suresi, Yetim Suresi, Maun, or Neighborly Needs.  ",
+      "post": "posts/maun.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kafirun Suresi",
+      "date": "2025-04-20",
+      "summary": "18-109, İnancı/İnanmayı Reddedenler, Kafirun, or Those who reject Faith.  ",
+      "post": "posts/kafirun.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fil Suresi",
+      "date": "2025-04-20",
+      "summary": "19-105, Fil, or The Elephant.  ",
+      "post": "posts/fil.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Felak Suresi",
+      "date": "2025-04-20",
+      "summary": "20-113, Şafak /Karanlığı Yarma/ Yarmak / Çatlatmak, Falaq, or The Dawn. ",
+      "post": "posts/felak.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nas Suresi",
+      "date": "2025-04-20",
+      "summary": "21-114, İnsanoğlu, İnsanlar, Halk, Nas, or Mankind.  ",
+      "post": "posts/nas.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İhlas Suresi",
+      "date": "2025-04-20",
+      "summary": "22-112, İnancın Saflığı, Paklığı, Ikhlas, or Purity (of Faith). ",
+      "post": "posts/ihlas.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Necm Suresi",
+      "date": "2025-04-20",
+      "summary": "23-53, Yıldız, Najm, or the Star. ",
+      "post": "posts/necm.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Abese Suresi",
+      "date": "2025-04-20",
+      "summary": "24-80, Kaşlarını Çattı, Suratını Astı, Abasa, or He Frowned. ",
+      "post": "posts/abese.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kadir Suresi",
+      "date": "2025-04-20",
+      "summary": "25-97, Kudret veya Onur Gecesi, Qadr, or The Night of Power (or Honor).  ",
+      "post": "posts/kadir.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Şems Suresi",
+      "date": "2025-04-20",
+      "summary": "26-91, Güneş, Shams, or The Sun.  ",
+      "post": "posts/sems.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Büruç Suresi",
+      "date": "2025-04-20",
+      "summary": "27-85, Takımyıldızı, Burç, Buruj, or The Zodiacal Signs ",
+      "post": "posts/buruc.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tin Suresi",
+      "date": "2025-04-20",
+      "summary": "28-95, İncir, Zeytin, Dağ ve Şehir, Tin, or The Fig.   ",
+      "post": "posts/tin.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kureyş Suresi",
+      "date": "2025-04-20",
+      "summary": "29-106, Kureyş Kabilesi, Quraish or The Quraish, (Custodians of the Kaba).",
+      "post": "posts/kureys.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kaaria Suresi",
+      "date": "2025-04-20",
+      "summary": "30-101, Büyük Afet, Al Qaria, or The Day of Noise and Clamor.  ",
+      "post": "posts/kaaria.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kıyamet Suresi",
+      "date": "2025-04-20",
+      "summary": "31-75, Diriliş, Yeniden Diriliş, Qiyamat, or the Resurrection.  ",
+      "post": "posts/kiyamet.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hümeze Suresi",
+      "date": "2025-04-20",
+      "summary": "32-104, Skandal Tüccarı, Humaza, or the Scandal Monger.  ",
+      "post": "posts/humeze.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mürselat Suresi",
+      "date": "2025-04-20",
+      "summary": "33-77, Öne Gönderilenler, Mursalat, or Those Sent Forth.  ",
+      "post": "posts/murselat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kaf Suresi",
+      "date": "2025-04-20",
+      "summary": "34-50, Qaf",
+      "post": "posts/kaf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Beled Suresi",
+      "date": "2025-04-20",
+      "summary": "35-90, Şehir, alad, or The City. ",
+      "post": "posts/beled.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tarık Suresi",
+      "date": "2025-04-20",
+      "summary": "36-86, Gece Yıldızı, Tariq, or The Night Visitant.  ",
+      "post": "posts/tarik.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kamer Suresi",
+      "date": "2025-04-20",
+      "summary": "37-54, Ay, Qamar, or the Moon. ",
+      "post": "posts/kamer.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Sad Suresi",
+      "date": "2025-04-20",
+      "summary": "38-38, Sad",
+      "post": "posts/sad.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Araf Suresi",
+      "date": "2025-04-20",
+      "summary": "39-7, Yüksekler, Tepe , Sur, Orta Yer, Araf, or The Heights.  ",
+      "post": "posts/araf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Cin Suresi",
+      "date": "2025-04-20",
+      "summary": "40-72, Ruhlar, Görünmeyen Şuurlu Varlıklar, Görünmeyen Varlık, Jinn, or the Spirits, Unseen Sentient Beings  ",
+      "post": "posts/cin.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Yasin Suresi",
+      "date": "2025-04-20",
+      "summary": "41-36, Ya sin",
+      "post": "posts/yasin.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Furkan Suresi",
+      "date": "2025-04-20",
+      "summary": "42-25, The Criterion, Ölçüt, Kriter, Doğruyu Yanlıştan Ayıran, Doğruyu Yanlıştan Ayıran Bir Ölçü, Aydınlık ile Karanlığı Birbirinden Ayıran, Furqan, or The Criterion. ",
+      "post": "posts/furkan.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fatır Suresi",
+      "date": "2025-04-20",
+      "summary": "43-35, Yaratıcı, Yaratılış, Yarılış, Yaratan, Birtakım Varlıkları Yarıp Parçalayarak Yeni Varlıklara ve Yeni Oluşlara Vücut Veren, Fatir, or The Originator of Creation; or Malaika, or The Angels.  ",
+      "post": "posts/fatir.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Meryem Suresi",
+      "date": "2025-04-20",
+      "summary": "44-19, Mary, İsa’nın Anası, Maryam",
+      "post": "posts/meryem.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Taha Suresi",
+      "date": "2025-04-20",
+      "summary": "45-20, Ta-Ha",
+      "post": "posts/taha.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Vakıa Suresi",
+      "date": "2025-04-20",
+      "summary": "46-56, Kaçınılmaz, Waqia, or The Inevitable Event. ",
+      "post": "posts/vakia.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Şuara Suresi",
+      "date": "2025-04-20",
+      "summary": "47-26, Şairler, Shuaraa, or The Poets.  ",
+      "post": "posts/suara.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Neml Suresi",
+      "date": "2025-04-20",
+      "summary": "48-27, Karınca, Karıncalar, Naml, or the Ants. ",
+      "post": "posts/neml.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kasas Suresi",
+      "date": "2025-04-20",
+      "summary": "49-28, Anlatılar, Qasas, or Narration.  ",
+      "post": "posts/kasas.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İsra Suresi",
+      "date": "2025-04-20",
+      "summary": "50-17, Gece Yolculuğu, Beni Israil, Israiloğulları, Bani Israil, or the Children of Israel.  ",
+      "post": "posts/isra.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Yunus Suresi",
+      "date": "2025-04-20",
+      "summary": "51-10, Jonah, Yunus Kavmi, Yunus Peygamber",
+      "post": "posts/yunus.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hud Suresi",
+      "date": "2025-04-20",
+      "summary": "52-11, Hûd Peygamber, Hud, or The Prophet Hud.  ",
+      "post": "posts/hud.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Yusuf Suresi",
+      "date": "2025-04-20",
+      "summary": "53-12, Joseph, Yusuf Peygamber",
+      "post": "posts/yusuf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hicr Suresi",
+      "date": "2025-04-20",
+      "summary": "54-15, Kayalık Yol, Al-Hijr, or The Rocky Tract. ",
+      "post": "posts/hicr.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "En’am Suresi",
+      "date": "2025-04-20",
+      "summary": "55-6, Sığır, Anam, or Cattle. ",
+      "post": "posts/enam.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Saffat Suresi",
+      "date": "2025-04-20",
+      "summary": "56-37, Rütbelerle Sıralananlar, Rütbe Sıralarında Olanlar, Saf Saf Olanlar, Sıra Sıra Olanlar, Saffat, or Those Ranged in Ranks. ",
+      "post": "posts/saffat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Lokman Suresi",
+      "date": "2025-04-20",
+      "summary": "57-31, Lokman, Luqman (the Wise). ",
+      "post": "posts/lokman.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Sebe Suresi",
+      "date": "2025-04-20",
+      "summary": "58-34, Sheba, Saba, or the City of Saba. ",
+      "post": "posts/sebe.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Zümer Suresi",
+      "date": "2025-04-20",
+      "summary": "59-39, Kalabalıklar, Topluluklar, Gruplar, Zümreler Halinde, Zumar, or the Crowds  ",
+      "post": "posts/zumer.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mü’min Suresi",
+      "date": "2025-04-20",
+      "summary": "60-40, İnanan, Mumin, or The Believer.",
+      "post": "posts/mumin.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fussilet Suresi",
+      "date": "2025-04-20",
+      "summary": "61-41,Açıklanmış, Detaylandırılmış, Ha Mim, (Abbreviated Letters), or Ha Mim Sajda, or Fussilat.  ",
+      "post": "posts/fussilet.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Şura Suresi",
+      "date": "2025-04-20",
+      "summary": "62-42, İstişare, Danışma, Shura, or Consultation.  ",
+      "post": "posts/sura.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Zuhruf Suresi",
+      "date": "2025-04-20",
+      "summary": "63-43, Altın Süslemeler, Zukhruf, or Gold Adornments. ",
+      "post": "posts/zuhruf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Duhan Suresi",
+      "date": "2025-04-20",
+      "summary": "64-44, Duman, Dukhan, or Smoke (or Mist).  ",
+      "post": "posts/duhan.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Casiye Suresi",
+      "date": "2025-04-20",
+      "summary": "65-45, Diz Çökmüş, Jathiya, or Bowing the Knee. ",
+      "post": "posts/casiye.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ahkaf Suresi",
+      "date": "2025-04-20",
+      "summary": "66-46, Sarma/Rüzgarlı/Kıvrımlı Kum Yolları/Tepeleri, Ahqaf, or Winding Sand tracts.   ",
+      "post": "posts/ahkaf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Zariyat Suresi",
+      "date": "2025-04-20",
+      "summary": "67-51, Dağılan/Dağıtan/Yayan Rüzgarlar, Zariyat, or the Winds that Scatter. ",
+      "post": "posts/zariyat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ğaşiye Suresi",
+      "date": "2025-04-20",
+      "summary": "68-88, Ezici/Karşı Konulmaz/Kahredici Olay, Gashiya, or The Overwhelming Event. ",
+      "post": "posts/gasiye.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Kehf Suresi",
+      "date": "2025-04-20",
+      "summary": "69-18, Mağara, Kahf, or the Cave",
+      "post": "posts/kehf.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nahl Suresi",
+      "date": "2025-04-20",
+      "summary": "70-16, Arı, Nahl, or The Bee",
+      "post": "posts/nahl.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nuh Suresi",
+      "date": "2025-04-20",
+      "summary": "71-71, Nuh Peygamber, Nuh, or Noah",
+      "post": "posts/nuh.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İbrahim Suresi",
+      "date": "2025-04-20",
+      "summary": "72-14, İbrahim Peygamber, Abraham",
+      "post": "posts/ibrahim.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Enbiya Suresi",
+      "date": "2025-04-20",
+      "summary": "73-21, Nebiler, Peygamberler, Anbiyaa, or The Prophets. ",
+      "post": "posts/enbiya.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mü’minun Suresi",
+      "date": "2025-04-20",
+      "summary": "74-23, İnananlar, Muminun, or The Believers. ",
+      "post": "posts/muminun.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Secde Suresi",
+      "date": "2025-04-20",
+      "summary": "75-32, Sajda, or Adoration. ",
+      "post": "posts/secde.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tur Suresi, ",
+      "date": "2025-04-20",
+      "summary": "76-52, Sina Dağı, Dağ, Tur, or the Mount.  ",
+      "post": "posts/tur.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mülk Suresi",
+      "date": "2025-04-20",
+      "summary": "77-67, Egemenlik, Hakimiyet, Mulk, or Dominion.",
+      "post": "posts/mulk.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hakka Suresi",
+      "date": "2025-04-20",
+      "summary": "78-69, Kesin Gerçek/lik, Hakikat, Haqqa, or the Sure Reality.  ",
+      "post": "posts/hakka.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mearic Suresi",
+      "date": "2025-04-20",
+      "summary": "79-70, Yükseliş Yolları, Maarij, or the Ways of Ascent.  ",
+      "post": "posts/mearic.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nebe Suresi",
+      "date": "2025-04-20",
+      "summary": "80-78, Büyük Haber, Nabaa, or The (Great) News.  ",
+      "post": "posts/nebe.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Naziat Suresi",
+      "date": "2025-04-20",
+      "summary": "81-79, Yırtılanlar, Naziat, or Those Who Tear Out. ",
+      "post": "posts/naziat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İnfitar Suresi",
+      "date": "2025-04-20",
+      "summary": "82-82, Yararak/Yarılarak Parçalanma, Infitar, or The Cleaving Asunder. ",
+      "post": "posts/infitar.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İnşikak Suresi",
+      "date": "2025-04-20",
+      "summary": "83-84, Yırtıcı Parçalanma, Inshiqaq, or The Rending Asunder. ",
+      "post": "posts/insikak.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Rum Suresi",
+      "date": "2025-04-20",
+      "summary": "84-30, Romalılar, Rum, or The Roman Empire.",
+      "post": "posts/rum.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ankebut Suresi",
+      "date": "2025-04-20",
+      "summary": "85-29, Örümcek, Ankabut, or the Spider.  ",
+      "post": "posts/ankebut.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mutaffifin Suresi",
+      "date": "2025-04-20",
+      "summary": "86-83, Dolandırıcılık, Sahtekarlık, Hilekarlık, Yolsuzlukla Uğraşanlar, Tatfif, or Dealing in Fraud.  ",
+      "post": "posts/mutaffifin.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ra’d Suresi",
+      "date": "2025-04-20",
+      "summary": "87-13, Gökgürültüsü, Yıldırım, Şimşek, Rad, or Thunder.  ",
+      "post": "posts/rad.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hac Suresi",
+      "date": "2025-04-20",
+      "summary": "88-22, Hac, Hajj, or The Pilgrimage",
+      "post": "posts/hac.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Rahman Suresi",
+      "date": "2025-04-20",
+      "summary": "89-55, Rahman, or (Allah) Most Gracious. ",
+      "post": "posts/rahman.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "İnsan Suresi",
+      "date": "2025-04-20",
+      "summary": "90-76, Dahr, or Time: or Insan, or Man. ",
+      "post": "posts/insan.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Zilzal Suresi",
+      "date": "2025-04-20",
+      "summary": "91-99, Zelzele, Deprem, Zilzal, or The Convulsion.",
+      "post": "posts/zilzal.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Bakara Suresi",
+      "date": "2025-04-20",
+      "summary": "92-2, Düve, Baqara, or the Heifer. ",
+      "post": "posts/bakara.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Enfal Suresi",
+      "date": "2025-04-20",
+      "summary": "93-8, Savaş Ganimetleri, Anfal, or the Spoils of War. ",
+      "post": "posts/enfal.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ali Imran Suresi",
+      "date": "2025-04-20",
+      "summary": "94-3, İmran Ailesi, Al-i-Imran, or The Family of Imran. ",
+      "post": "posts/aliimran.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Haşr Suresi",
+      "date": "2025-04-20",
+      "summary": "95-59, Toplanma, Bir Araya Toplama, Hashr, or The Gathering (or Banishment) ",
+      "post": "posts/hasr.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Cumua Suresi",
+      "date": "2025-04-20",
+      "summary": "96-62, Cuma, Jumua, or the Assembly (Friday) Prayer. ",
+      "post": "posts/cumua.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Ahzab Suresi",
+      "date": "2025-04-20",
+      "summary": "97-33, Konfederasyonlar. Müttefikler, Suç İttifakı, Ahzab, or The Confederates.  ",
+      "post": "posts/ahzab.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nisa Suresi",
+      "date": "2025-04-20",
+      "summary": "98-4, Kadın/lar, Woman, Women",
+      "post": "posts/nisa.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Muhammed Suresi",
+      "date": "2025-04-20",
+      "summary": "99-47, Muhammed",
+      "post": "posts/muhammed.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Talak Suresi",
+      "date": "2025-04-20",
+      "summary": "100-65, Boşanma, Divorce, Talaq",
+      "post": "posts/talak.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Beyyine Suresi",
+      "date": "2025-04-20",
+      "summary": "101-98, Açık Delil",
+      "post": "posts/beyyine.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nur Suresi",
+      "date": "2025-04-20",
+      "summary": "102-24, Işık, Aydınlanma",
+      "post": "posts/nur.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Münafikun Suresi",
+      "date": "2025-04-20",
+      "summary": "103-63, Münafıklar, Riyakarlar",
+      "post": "posts/munafikun.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mücadile Suresi",
+      "date": "2025-04-20",
+      "summary": "104-58, Tartışan, Savunma Yapan, Mücadele Eden Kadın ",
+      "post": "posts/mucadile.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hucurat Suresi",
+      "date": "2025-04-20",
+      "summary": "105-49, Odalar",
+      "post": "posts/hucurat.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tahrim Suresi",
+      "date": "2025-04-20",
+      "summary": "106-66, Yasak, Yasaklama",
+      "post": "posts/tahrim.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Teğabün Suresi",
+      "date": "2025-04-20",
+      "summary": "107-64, Karşılıklı Kayıp/Zarar ve Kazanç",
+      "post": "posts/tegabun.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Saff Suresi",
+      "date": "2025-04-20",
+      "summary": "108-61, Savaş Safları, Savaş Düzeninde Saflar",
+      "post": "posts/saff.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Fetih Suresi",
+      "date": "2025-04-20",
+      "summary": "109-48, Zafer",
+      "post": "posts/fetih.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Maide Suresi",
+      "date": "2025-04-20",
+      "summary": "110-5, Öğün, Yemek, Yemek Zamanı",
+      "post": "posts/maide.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Mümtehine Suresi",
+      "date": "2025-04-20",
+      "summary": "111-60, İnceleyen, İmtihan Eden",
+      "post": "posts/mumtehine.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Hadid Suresi",
+      "date": "2025-04-20",
+      "summary": "112-57, Demir",
+      "post": "posts/hadid.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Tevbe Suresi",
+      "date": "2025-04-20",
+      "summary": "113-9, Pişmanlık, Reddedilme, Tövbe Etme",
+      "post": "posts/tevbe.md",
+      "tags": ["kuran", "quran", "furkan"]
+    },
+    {
+      "title": "Nasr Suresi",
+      "date": "2025-04-20",
+      "summary": "114-110, Yardım",
+      "post": "posts/nasr.md",
+      "tags": ["kuran", "quran", "furkan"]
+    }
+  ]
+}
