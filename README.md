@@ -1,11 +1,11 @@
-# Quran
+# Quran/Kuran
 
 This repository contains Quranic text in simple, accessible formats for developers and researchers.
 
 This project generates static HTML pages  of Quran content using Python scripts.  
 It processes `quran_content.json` & posts/*.md files and creates formatted HTML files like `index.html`, `index_1.html`, etc.
 
-A simple Python-based application to manage, display verses from the Quran. The project uses **Flask** , **Jinja2 templates** , and **JSON** data files to create a lightweight and functional system for interacting with Quranic text.
+A simple Python-based application to manage, display verses from the Quran. The project uses **Flask** , **Jinja2 templates** , and **JSON** data files to create a lightweight and functional system for interacting with Turkish/English Quranic text.
 
 I will be using the project files on my personal web site.
 
