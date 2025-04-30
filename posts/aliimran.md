@@ -2299,32 +2299,154 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Hakikati gizleyenler, karanlığa gömülenlerdir. Ama hakikati haykıranlar, ebedi nurla aydınlanacak. Seçim sizin!
 
+    "Ve onlara Allah katından kendilerindekini tasdik edici bir peygamber geldiğinde, Kitap ehlinden bir grup Allah’ın Kitabını arkalarına attılar/sırtlarını döndüler, sanki bilmedikleri/tanımadıkları bir şeymiş gibi." : Bakara 101
+
+
 188. **Yaptıklarıyla övünen ve yapmadıklarıyla övülmeyi sevenler, sanma azaptan kurtulurlar. Onlar için gerçekten çetin bir azap vardır.**
+
+    Kendi yaptıklarıyla gurur duyan ve yapmadıkları işlerden övgü alan kişiler, cezadan kurtulamayacaklardır. Bu tür insanlar, başkalarına zarar verirken bundan elde ettikleri şöhretle övünürler. Allah’ın hakikatlerini çiğneyip yanlış ibadet anlayışlarını yüceltirler. Kendilerinde olmayan erdemlerle övünür ve aldatmacalarına rağmen elde ettikleri başarıları kendilerine mal ederler. Ancak bu tür sahte tutumlar, onları sonunda ağır bir cezaya sürükleyecektir.
+
+    Şu dünyada öyle adamlar vardır ki, elleri boş ama dilleri dolu. Yapmadıkları hayırlarla övünür, almadıkları zaferlerle kasılırlar. Kibirleri dağları aşar ama yürekleri bir karınca yuvası kadar bile değildir.
+
+    Bunlar dünya bilgeliğiyle övünürler ama:
+
+    Halkın sırtından geçinirler
+
+    Allah'ın hakikatlerini çiğnerler
+
+    Yalan ibadetlerle göz boyarlar
+
+    Kendilerinde bulunmayan erdemleri kendilerine mal ederler
+
+    Ey insanoğlu! Şu dünyada herkes bir gün hesap verecek. Yaptığını söyleyip yapmayanlar, söylemediklerinden sorguya çekilecek.
+
+    Öyleyse uyanık ol! Boş lafla övünme, boş işle gururlanma. Yoksa o ağır ceza ansızın gelir de, şaşakalırsın!
+
+    Hakiki erdem, sessizce işlenendir. Gösteriş için yapılan iyilik, kötülükten beterdir!
+
 
 
 189. **Göklerin ve yerin mülkü Allah’ındır. Allah her şeye kadirdir.**
 
 
-190. Bakın işte! Göklerin ve yerin yaratılışında, gece ile gündüzün birbiri ardınca gelişinde,-akıl sahipleri için elbette ibretler vardır,-
+190. **Bakın işte! Göklerin ve yerin yaratılışında, gece ile gündüzün birbiri ardınca gelişinde,-akıl sahipleri için elbette ibretler vardır,-**
+
+    "Bakın İşte/Farkına varın/Dikkat edin! göklerin ve yerin yaratılışında; gece ve gündüzün değişmesinde; gemilerin okyanusta insanlığın yararına yelken açmasında; Allah’ın gökten indirdiği yağmurda ve onunla ölü bir yeryüzüne verdiği dirilişte; yeryüzüne saçtığı her türden hayvanda; Rüzgârların değişmesinde ve bulutların, gökle yer arasında köleler gibi sürüklenmesinde; – İşte burada gerçekten akıl sahibi bir toplum için İbretler/İşaretler/Ayetler vardır." : Bakara 164
+
+191. **Ayakta, oturarak ve yanları üzerine yatarak Allah’ı hamd ile tesbih eden, göklerdeki ve yerdeki yaratılış harikalarını tefekkür eden insanlar: “Rabbimiz! Bunları boşuna yaratmadın! Sen yücesin! Bizi ateş azabından kurtar.” derler.**
+
+    Allah’ı her durumda (ayakta, otururken, yan yatmış durumda) anan ve evrendeki yaratılış harikalarını düşünen kişiler, Allah’ın her şeyi bir amaç için yarattığına inanırlar. İnsanın evrendekiki güzelliklere karşı şükran ifade etmesi, onu bu harikaların ötesine taşır. İnsan, kurtuluş hedefiyle yüceltilebilir; aksi takdirde doğa karşısında aciz kalır. Ateş, günahların cezasını sembolize eder ve insanlar bu cezadan kurtuluş için dua ederler. Kurtuluş düşüncesi, insanın Allah’a yönelmesini sağlar ve onu manevi yükselişe taşır.
 
 
-191. Ayakta, oturarak ve yanları üzerine yatarak Allah’ı hamd ile tesbih eden, göklerdeki ve yerdeki yaratılış harikalarını tefekkür eden insanlar: “Rabbimiz! Bunları boşuna yaratmadın! Sen yücesin! Bizi ateş azabından kurtar.” derler.
+    Bu insanlar öyle derin düşünürler ki:
+
+    Güneşin doğuşunda bir hikmet ararlar
+
+    Karıncanın yolunda bir ibret bulurlar
+
+    Gecenin koynunda bile Rablerini unutmazlar
+
+    Ve şöyle yalvarırlar:
+    "Ey ulu Rabbimiz! Bizi ateş azabından koru! Sen ki her şeyi hikmetle yarattın, bizi de boş yere yaratmadın!"
+
+    Gerçek mümin, her halükârda Allah'ı anar
+
+    Kainat kitabını okuyan, Yaratıcı'yı daha iyi tanır
+
+    Ateşten korkmak, aklın gereğidir
+
+    Asıl kurtuluş, bu farkındalıktadır
+
+    Ey insanoğlu! Şu dünyada gezerken, otururken, yatarken aklını yitirme. Her an Allah'ı an, her şeyde O'nun hikmetini gör.
+
+    Unutma ki ateş, gafiller içindir. Uyanık olanlar ise o alevden kurtulup, cennetin gölgesine sığınacaklardır!
+
+    Öyleyse gözünü aç! Yaratılıştaki harikalara bak da, kendi değerini bil. Boş yere yaratılmadın sen!
 
 
 
-192. “Rabbimiz, kimi ateşe sokarsan, şüphesiz sen onu rezil edersin ve zalimler asla bir yardımcı bulamazlar.
+192. **“Rabbimiz, kimi ateşe sokarsan, şüphesiz sen onu rezil edersin ve zalimler asla bir yardımcı bulamazlar.**
 
 
-193. “Rabbimiz, Biz, Bizi imana çağıran birinin, ‘Rabbinize inanın’ diye nidasını işittik ve hemen iman ettik. Efendimiz/Rabbimiz! Günahlarımızı bağışla, kusurlarımızı ört ve canlarımızı salihlerle beraber yanına al.”
+193. **“Rabbimiz, Biz, Bizi imana çağıran birinin, ‘Rabbinize inanın’ diye nidasını işittik ve hemen iman ettik. Efendimiz/Rabbimiz! Günahlarımızı bağışla, kusurlarımızı ört ve canlarımızı salihlerle beraber yanına al.”**
 
 
-194. “Rabbimiz! Elçilerin aracılığıyla bize vaat ettiklerini ver ve kıyamet gününde bizi rezil etmekten koru. Çünkü sen sözünden asla caymazsın.”
-195. Rableri onları kabul etti ve onlara şöyle cevap verdi: “Erkek olsun, kadın olsun, sizden hiçbirinizin amelini zayi etmeyeceğim. Siz birbirinizin uzuvlarısınız./Siz birbirinizdensiniz. Yurtlarından çıkanlar veya oradan sürülenler veya benim yolumda eziyete uğrayanlar veya savaşanlar veya öldürülenler, – şüphesiz Ben onların kötülüklerini örteceğim ve onları altlarından ırmaklar akan cennetlere koyacağım; – Mükafatları Allah katındandır ve O’nun katından olan mükâfatlar en hayırlısıdır.”
-196. Kâfirlerin yeryüzünde yaltaklanmaları seni aldatmasın:
-197. Zevkleri/Yararlanmaları için çok az şey var: Onların varacakları yer cehennemdir. Ne kötü bir yataktır o üzerinde yatmak için!
-198. Öte yandan, Rablerine karşı gelmekten sakınanlar için altlarından ırmaklar akan cennetler vardır. Orada sonsuza dek kalacaklar, – Allah katından bir hediye. Ve Allah katında olan ise takvâ sahipleri için nimetlerin en hayırlısıdır.
-199. Ve muhakkak ki Kitap Ehli’nden öyleleri vardır ki, Allah’a, size indirilene ve kendilerine indirilene inanır, Allah’a tevazuyla boyun eğerler. Allah’ın âyetlerini az bir menfaat karşılığında satmazlar! Onlar için Rableri katında bir mükâfat vardır ve Allah, hesabı çabuk görendir.
-200. Ey iman edenler! Sabır ve sebat içinde direnin/azmedin; böyle bir sebatla rekabet edin; birbirinizi güçlendirin; ve Allah’tan korkun, başarılı olasınız diye/ ve Allah’tan korkun ki kurtuluşa eresiniz.
+194. **“Rabbimiz! Elçilerin aracılığıyla bize vaat ettiklerini ver ve kıyamet gününde bizi rezil etmekten koru. Çünkü sen sözünden asla caymazsın.”**
+
+
+195. **Rableri onları kabul etti ve onlara şöyle cevap verdi: “Erkek olsun, kadın olsun, sizden hiçbirinizin amelini zayi etmeyeceğim. Siz birbirinizin uzuvlarısınız./Siz birbirinizdensiniz. Yurtlarından çıkanlar veya oradan sürülenler veya benim yolumda eziyete uğrayanlar veya savaşanlar veya öldürülenler, – şüphesiz Ben onların kötülüklerini örteceğim ve onları altlarından ırmaklar akan cennetlere koyacağım; – Mükafatları Allah katındandır ve O’nun katından olan mükâfatlar en hayırlısıdır.”**
+
+    Allah, kullarının dualarını kabul eder ve erkek-kadın herkesin amelini boşa gitmeyeceğini söyler. İslam'da cinsiyetler arası eşitlik hem tanınır hem de vurgulanır. Doğal farklılıklar bile manevi değerlendirmede geçerli değilken, yapay farklılıklar (sınıf, servet, ırk vb.) tamamen önemsizdir. Müminler, evlerinden ayrılmak, zulme uğramak, savaşmak veya şehit olmak gibi fedakarlıklarını karşılıksız bırakmadığına dair güvence verilmiştir. Günahları affedilecek ve cennete alınacaklardır. Tüm mükâfatların en büyüğü, Allah'ın huzurundan gelmesidir. "Allah’a yakınlık," bu mükâfatın en derin anlamını ifade eder.
+
+    Allah'ın adaleti karşısında erkek de kadın da birdir!
+
+    Rabbiniz söz vermiştir: "Hiçbirinizin emeği boşa gitmeyecek" diye. İster erkek olun ister kadın, hepiniz birbirinizin yoldaşısınız. Evini barkını terk eden, yurdundan kovulan, Allah yolunda yaralanan, savaşan ya da şehit düşen... Hepsine aynı vaat: Günahları silinecek, altından ırmaklar akan cennetlere girecekler.
+
+    Bu ne büyük lütuftur! Allah'ın huzurundan gelen mükafat, dünyalık her şeyden üstündür. O'nun yakınlığı, en büyük hazinedir.
+
+    Allah katında üstünlük; cinsiyette, soyda, servette değil, takvadadır
+
+    Mazlumun ahı, zalimin saltanatından yeğdir
+
+    Allah yolunda çekilen her çile, cennette bir köşk olacak
+
+    Asıl zenginlik, Rabbin rızasını kazanmaktır
+
+    Ey insanoğlu! Şu fani dünyada ayrımcılık yapana bakma. Allah'ın terazisi başkadır. O'nun huzurunda köle ile efendi, kadın ile erkek, zengin ile fakir eşittir.
+
+    Öyleyse yüreğini temiz tut! Kimseyi hor görme, kimseye boyun eğme. Çünkü asıl mükafat, adil olan Allah'ındır. O'na yakın olanlar, gerçek kurtuluşa ereceklerdir!
+
+    Unutma ki Allah'ın vaadi haktır. Bugün hor görülenler, yarın cennetin baş köşesinde olacak. Zalimler ise şaşkın şaşkın dolaşacak!
+
+
+
+
+196. **Kâfirlerin yeryüzünde yaltaklanmaları seni aldatmasın:**
+
+197. **Zevkleri/Yararlanmaları için çok az şey var: Onların varacakları yer cehennemdir. Ne kötü bir yataktır o üzerinde yatmak için!**
+
+
+198. **Öte yandan, Rablerine karşı gelmekten sakınanlar için altlarından ırmaklar akan cennetler vardır. Orada sonsuza dek kalacaklar, – Allah katından bir hediye. Ve Allah katında olan ise takvâ sahipleri için nimetlerin en hayırlısıdır.**
+
+
+199. **Ve muhakkak ki Kitap Ehli’nden öyleleri vardır ki, Allah’a, size indirilene ve kendilerine indirilene inanır, Allah’a tevazuyla boyun eğerler. Allah’ın âyetlerini az bir menfaat karşılığında satmazlar! Onlar için Rableri katında bir mükâfat vardır ve Allah, hesabı çabuk görendir.**
+
+
+200. **Ey iman edenler! Sabır ve sebat içinde direnin/azmedin; böyle bir sebatla rekabet edin; birbirinizi güçlendirin; ve Allah’tan korkun, başarılı olasınız diye/ ve Allah’tan korkun ki kurtuluşa eresiniz.**
+
+
+    Ey iman edenler, sabırlı ve metanetli olun, birbirinizle sabır yarışında bulunun ve birbirinizi güçlendirin. "Sabr", yalnızca bekleme değil, sebat, kararlılık, öz denetim ve yılmamak anlamına gelir. Bu erdemleri hem kendiniz için hem de başkalarıyla ilişkilerinizde uygulayarak örnek olun ve başkalarıyla yarışa girin. Böylece birbirinizi güçlendirir ve Allah'a hizmette birlikte ilerlersiniz. "Kurtuluş" (falah), dünyevi ve manevi başarıyı kapsar ve Allah'ın sevgisiyle arınmış bir mutluluk ifade eder. Allah'tan korkarak ve O'na itaat ederek bu kurtuluşa erişebilirsiniz.
+
+    Ey yürekleri imanla dolu olanlar!
+
+    Sabır bir kalkan, metanet bir kılıçtır. Birbirinizle yarışın ki, kimse geride kalmasın! Zorluklara göğüs gererken omuz omuza durun. Allah'tan korkun ki, gerçek kurtuluşa eresiniz.
+
+    Sabır dediğin nedir bilir misin?
+
+    Dizlerinin bağı çözülse de ayakta durmaktır
+
+    Yüreğin parçalansa da ümidi bırakmamaktır
+
+    Dostun düştüğünde elinden tutmaktır
+
+    Zalimin karşısında dimdik durmaktır
+
+    Sabır, ölü toprağı serpmek değil, diri kalmaktır
+
+    En büyük yarış, nefsine karşı verdiğin savaştır
+
+    Dünya nimetleri geçici, Allah'ın rızası ebedidir
+
+    Gerçek başarı, hem bu dünyada hem ahirette kazanmaktır
+
+    Ey mümin! Şu dünyada dikenler içinde gül yetiştirmeye benzer iman yolculuğun. Bazen ellerin kanar, ama yılmazsın. Çünkü bilirsin ki Allah sabredenlerle beraberdir.
+
+    Öyleyse yüreğini kuşat sabırla! Dosta destek, düşmana karşı duvar ol. Zira kurtuluş, sabredenlerindir.
+
+    Unutma! Bugün ekilen sabır, yarın biçilecek cennettir. Öyle bir hasat ki, ne solar ne tükenir!
+
+
+
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgehtQHr4SDTcZUO8Q5heQ_FTOndbKaz05GvaFaV1KQE6JTU-9D77XIvuilwwFUGTl9j3OAwsREDVNuVfQvzjFUuQoVDhBKnPy5h-ffL1EmflsYKiuPaXZ4KWCViDexYxZ9TV24E2E0x054NG16eL6klU33mIjvFInrT3p89XmyGjpOhKGmYWvc9qrM13o-/s320/divider01.gif)](https://www.blogger.com/blog/post/edit/5724704568349331251/6422558315201639512#)
 
