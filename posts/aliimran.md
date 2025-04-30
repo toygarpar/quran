@@ -1984,38 +1984,340 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
 
-166. İki ordunun karşılaştığı gün başınıza gelenler, Allah’ın izniyle, mü’minleri denemek içindi,-
+166. **İki ordunun karşılaştığı gün başınıza gelenler, Allah’ın izniyle, mü’minleri denemek içindi,-**
 
 
 
 
-167. Riyakarları da/Münafıkları da. Bunlara şöyle denildi: “Gelin, Allah yolunda savaşın veya hiç olmazsa düşmanı şehrinizden sürün.” “Eğer biz savaşmayı bilseydik, elbette size uyardık” dediler. Onlar o gün, imandan çok küfre daha yakındılar ve kalblerinde olmayanı ağızlarıyla söylüyorlardı; halbuki Allah, onların gizlediklerini bilir.
-168. Onlar, kendileri rahat rahat oturdukları halde öldürülen kardeşleri için: “Keşke bizi dinleselerdi öldürülmezlerdi” diyenlerdir. De ki: “Doğru iseniz, ölümü kendinizden uzaklaştırın.”
-169. Allah yolunda öldürülenleri sakın ölüler sanma. Hayır, onlar yaşarlar, Rableri katında rızıklarını bulurlar;
-170. Allah’ın verdiği nimete sevinirler. Geride kalan ve henüz onların saadetine katılmamış olanlara, Şehitler üzerlerinde hiçbir korku ve onların üzülmesine neden olacak sebep olmamasıyla övünürler/sevinirler.
-171. Allah’ın lütuf ve merhametiyle ve Allah’ın müminlerin mükâfatını hiçbir şekilde zayi etmeyeceği gerçeğiyle övünürler.
-172. Allah’ın ve Resulü’nün çağrısına, yaralandıktan sonra da/bile icabet edenlerden, ihsanda bulunup kötülükten sakınanlara büyük bir ecir vardır;
-173. İnsanlar onlara: “Size karşı büyük bir ordu toplanıyor” dediler ve onları korkuttular. Fakat bu sadece, onların imanlarını artırdı: “Allah bize yeter, O ne güzel vekildir” dediler.
-174. Ve Allah’tan lütuf ve merhameti ile geri döndüler. Onlara hiçbir zarar dokunmadı: Çünkü onlar, Allah’ın rızasına uydular. Ve Allah, sınırsız lütuf sahibidir.
-175. Onu takip eden kullarından korkmanızı size ancak Şeytan/Kötü olan telkin eder: Onlardan korkmayın, eğer iman ediyorsanız Benden korkun.
-176. Küfre dalıp gidenler seni üzmesin, Allah’a zerre kadar zarar veremezler. Allah’ın planı, onlara ahirette bir pay vermemek, şiddetli bir azap vermektir.
-177. İman karşılığında küfrü satın alanlar, işte onlar Allah’a hiçbir zarar veremezler ve onlar için elemli bir azap vardır.
-178. Kâfirler, kendilerine mühlet vermemizi kendileri için hayırlı sanmasınlar: Zulümlerinde artsınlar diye onlara mühlet veriyoruz: Ancak onlar için alçaltıcı bir azap vardır.
-179. Allah, müminleri, şerri hayırdan ayırmadıkça, içinde bulunduğunuz bu halde bırakmayacak ve gaybın sırlarını size açıklamayacak. Ama O, elçisini dilediği amaçla seçer. Öyleyse Allah’a inan. Ve elçilere: Eğer inanır da ve salih amellerde bulunursanız, sizin için hesapsız bir mükâfat vardır.
-180. Ve Allah’ın lütfundan kendilerine verdiği nimetlere tamah edenler, bunun kendileri için hayırlı olduğunu sanmasınlar: Hayır, onlar için daha kötü olur: Çok geçmeden, cimrilikle alıkoydukları şeyler, Kıyamet Günü burkulmuş bir gerdanlık gibi boyunlarına bağlanacaktır. Göklerin ve yerin mirası Allah’ındır. Allah, yaptıklarınızdan haberdardır.
-181. Allah, “Şüphesiz Allah fakirdir, biz ise zenginiz!” diyenlerin alaylarını işitmiştir. Onların sözlerini ve haksız yere peygamberleri öldürmelerini elbette yazacağız ve şöyle diyeceğiz: “Tadın Kavurucu Ateşin cezası!
-182. “Bu, sizin ellerinizin yaptığı kötülükleri önden göndermenizden dolayıdır. Çünkü Allah, kendisine kulluk/hizmet edenlere asla zarar vermez.”
-183. Onlar ayrıca dediler ki: “Allah, bize gökten bir ateşin yiyip bitirdiği bir kurban göstermedikçe hiçbir peygambere inanmayacağımıza söz verdi.” De ki: “Benden önce size, apaçık âyetlerle ve dilediğiniz şeylerle bile birlikte peygamberler geldi; öyleyse, eğer doğru sözlüler iseniz, onları niçin öldürdünüz?”
-184. Eğer seni inkar ederlerse, senden önce de apaçık deliller, karanlık tahminler/kehanetler ve nur kitaplarıyla gelen elçiler de reddedilmişti.
-185. Her nefis ölümü tadacaktır: Ve sadece kıyamet gününde mükafatınız size tam olarak ödenecektir. Ancak ateşten uzaklaştırılıp cennete sokulan kimse, hayatın gayesine kavuşmuş olur: Çünkü dünya hayatı, bir mal ve kıymetler aldatmacasından başka bir şey değildir.
-186. Mallarınız ve canlarınız konusunda mutlaka imtihan edileceksiniz; Sizden önce kendilerine kitap verilenlerden ve çokça ilahlara kulluk edenlerden sizi üzecek çok şeyler işiteceksiniz. Ama sabreder ve kötülüklerden sakınırsanız, işte bu, bütün işlerde belirleyici bir faktör olacaktır.
-187. Ve Allah’ın, onu insanlara açıklamak, gizlememek için Kitap Ehli’nden söz aldığını hatırlayın; ama onu arkalarına/sırtlarının gerisine attılar ve onunla sefil bir kazanç satın aldılar! Ve yaptıkları pazarlık ne kötüydü!
-188. Yaptıklarıyla övünen ve yapmadıklarıyla övülmeyi sevenler, sanma azaptan kurtulurlar. Onlar için gerçekten çetin bir azap vardır.
-189. Göklerin ve yerin mülkü Allah’ındır. Allah her şeye kadirdir.
+167. **Riyakarları da/Münafıkları da. Bunlara şöyle denildi: “Gelin, Allah yolunda savaşın veya hiç olmazsa düşmanı şehrinizden sürün.” “Eğer biz savaşmayı bilseydik, elbette size uyardık” dediler. Onlar o gün, imandan çok küfre daha yakındılar ve kalblerinde olmayanı ağızlarıyla söylüyorlardı; halbuki Allah, onların gizlediklerini bilir.**
+
+
+    Münafıklar, Uhud Savaşı sırasında "savaşmayı bilmiyoruz" diyerek sorumluluktan kaçtılar. Aslında, onlar yalnızca korkaklık ve kişisel çıkar peşindeydiler. Toplumu küçük düşürmek isteyen bu kişiler, samimi müminlerle alaycı bir tutum sergilediler. Dil ile kalp arasındaki uyumsuzluk, onların küfre daha yakın olduğunu gösterdi. Allah, herkesin gizli niyetlerini bilir. Eğer savaş ruhu onları çekmiyorsa bile, en azından iyi vatandaşlar gibi Medine'yi düşmandan koruyabilirlerdi. Bu sınav, münafıkların gerçek yüzlerini açığa çıkardı ve diğer müminlerin aldanmasını önledi.
+
+    Uhud’un tozu dumana karıştığı günlerde, bir grup insan vardı ki ne eline kılıç aldı ne de yüreğini ortaya koydu. Onlar ki dilleriyle Müslüman, ama kalpleri düşmandı. Gölge gibi dolaşıyorlardı aramızda, ama ne ışığı yansıtıyorlardı ne de karanlığı bırakıyorlardı. “Tedbirli olun,” dediler. “Durun, düşünün,” dediler. Ama ne söyledikleri tedbirdi, ne de düşündükleri halktı. Kalplerinde korkunun karanlığı vardı, gözlerinde zaferin yükü. Savaşmak bir yana, uzaktan bakıp dalga geçtiler, “Biz bu işten ne anlarız,” dediler. Oysa onlar, rahat köşelerinden seyretmeyi seçtiler, kardeşlerinin toprağa düşen cesetlerine göz kapayarak.
+
+    Onların istediği ne zaferdi, ne hakikatin hüküm sürmesi. Onlar küçük düşsün istediler bu halk, ezilsin istediler bu iman, umutlar boğulsun istediler kurak vadilerde. Çünkü böylece kendileri yükselirdi, halkın suskunluğundan saray kurarlardı.
+
+    Ama Allah, öyle buyurdu ki, bu insanlar birer birer ortaya çıksın. Bu sınav, yalnızca bir savaş değil, bir ayıklamaydı. Altın mı toprak mı, sadakat mi sahtekârlık mı, işte hepsi açığa çıktı. Dil başka söyledi, kalp başka döndü. Oysa Allah her kalbin yükünü, her gözün kaçtığı gerçeği bilendi.  
+
+    Ve ey şehir, ey Medine! Onlar savaşmayı bilmese bile, senin duvarlarında nöbet tutabilirlerdi. En azından bir parça sadakatle, bu toprağın hakkını verebilirlerdi. Ama onlar onu da yapmadı. Bu halkı yalnız bıraktılar, bu halkın inancına sırt çevirdiler.  
+
+    İşte şimdi, hakla bâtıl arasındaki bu derin çatlak, bir kez daha belirginleşti. Herkes gördü kim kimdir. Bu sınav, sadece Uhud’un değil, her çağın sınavıydı. Ve o gün susanlar, o gün geri duranlar, yalnızca bir savaş değil, kendilerini kaybettiler. Çünkü savaş alanı bazen yalnızca kılıçla değil, yürekle kazanılır.
+
+
+
+168. **Onlar, kendileri rahat rahat oturdukları halde öldürülen kardeşleri için: “Keşke bizi dinleselerdi öldürülmezlerdi” diyenlerdir. De ki: “Doğru iseniz, ölümü kendinizden uzaklaştırın.”**
+
+
+
+169. **Allah yolunda öldürülenleri sakın ölüler sanma. Hayır, onlar yaşarlar, Rableri katında rızıklarını bulurlar;**
+
+    Dağın yamacında bir karaltı düşer toprağa… Kimi der ki “öldü”, kimi başını eğip susar. Ama hayır, o düşen yalnızca bir bedendir; can değil, ruh değil, inanç değil. Çünkü inanç için, hak için, Allah için toprağa düşen adam, ölmez. Bunu bilmez mi o toprak, bilmez mi rüzgar, bilmez mi gök? O artık başka bir hayattadır; bizden değilmiş gibi görünür ama bizden daha canlı, daha diri, daha hakikidir.  
+
+    Dünya insanı yiyecekle, uykuyla, gün ışığıyla ayakta tutar kendini. Ama onlar, Allah’a yürüyenler, Allah için yüreğini dağlayanlar, artık bu dünyanın yemeğine, içeceğine muhtaç değildir. Onların sofrası Rabbin katında kuruludur, onların ışığı gözle değil, gönülle görülür.
+
+    Herkes unutur bir gün mezar taşlarını, ama bir şehidin adı, rüzgarda, yıldızda, dualarda kalır. İman etmeyenler bile, adını unutmamak için taşlara yazar, kitaplara geçirir. Çünkü şehit, ölümün değil, sonsuzluğun adıdır. Ama iman sahibi bilir ki, bu sonsuzluk sadece hatırlanmak değil, Allah’ın katında diri kalmaktır.
+
+    Hayır, onlar ölü değildir. Onlar, hayatın ta kendisidir. Biz burada gölgeler içinde yaşarken, onlar ışığın kendisine ulaşmışlardır. Bizim yaşadığımız bu gölge dünya, onların katında yalnızca eski bir rüya gibi kalır. Onlar, gerçeğin yurduna varmıştır.
+
+    Düşenin ardından ağıt yakılır elbet, ama imanla düşenin ardından bir başka şey daha olur: Gökyüzü açılır, Rabbin katından bir rüzgar eser yeryüzüne… O rüzgar, düşenin canını değil, bizim kalbimizi uyandırır. Bize der ki: "Bu hayat bir gölgedir. Gerçek Hayat, Rabbin katındadır. Ve şehit, o Hayatın kapısından geçmiştir."
+
+
+
+
+170. **Allah’ın verdiği nimete sevinirler. Geride kalan ve henüz onların saadetine katılmamış olanlara, Şehitler üzerlerinde hiçbir korku ve onların üzülmesine neden olacak sebep olmamasıyla övünürler/sevinirler.**
+
+    Şehitler, yalnızca kendi mutluluğuyla değil, geride bıraktıkları sevdiklerinin refahıyla da sevinirler. Onların en büyük gururu, sevdiklerini bu dünyadaki korku, üzüntü ve küçük düşmeden kurtarmış olmalarıdır. "Üzerlerinde hiçbir korku yoktur ve üzüntü duymazlar" ifadesi, şehitlerin hem kendileri hem de geride kalanlar için geçerlidir. Sevdikleri, şehitlerin ölümüne üzülmek yerine, onların katıldığı manevi mutluluk için sevinç duyarlar. Şehitlerin fedakarlığı, hem bu dünya hem de Ahiret için bir koruma ve mutluluk kaynağıdır.
+
+
+    Şehit, yalnız kendisi için ölmez. Gözünü kapadığı yerde onunla birlikte bir halkın yükü de taşınır. Sevinci sadece kendisine ait değildir; geride bıraktıklarına da pay bırakır o sevinçten. Çünkü bilir ki, onun ardında kalanlar artık eskisi gibi yaşamayacaktır. Ne korkuya baş eğerler, ne zillete boyun bükerler. Şehit, canını verir ama ardındakilerin başını dik bırakır. Onlara göğsünü siper ederken, aynı zamanda onurlarını da korumuştur.
+
+    Bu yüzden onların gönlünde kederin yeri yoktur. O çokça tekrar edilen söz, “Korku yoktur üzerlerinde, onlar mahzun olmayacaklardır,” tam da burada asıl anlamına kavuşur. Çünkü o korkuyu, o mahzunluğu şehit alıp götürmüştür beraberinde. Ardında kalanlara yalnız hatırasını değil, dimdik durmanın onurunu da bırakmıştır. Bu yüzden geridekiler yas tutmaz, baş eğmez. Gözleri dolar belki, ama o gözyaşı acıdan değil, gururdan akar.
+
+    Şehit, ölmeden önce onların önünü açmıştır. Sadece ahiretin kapısını değil, bu dünyadaki umudun da yolunu göstermiştir. Fedakârlığı, sadece kendi cennetini değil, ardında kalanların direnişini de inşa etmiştir. İşte bu yüzden, onun gidişi bir kayıp değil, bir diriliştir. Bir millet, onun ardına düşer; başı yerde değil, alnı açık, omzu dik, yürüyerek. Çünkü bilir: Onun için üzülmek değil, onunla gurur duymak gerekir.
+
+
+171. **Allah’ın lütuf ve merhametiyle ve Allah’ın müminlerin mükâfatını hiçbir şekilde zayi etmeyeceği gerçeğiyle övünürler.**
+
+
+
+172. **Allah’ın ve Resulü’nün çağrısına, yaralandıktan sonra da/bile icabet edenlerden, ihsanda bulunup kötülükten sakınanlara büyük bir ecir vardır;**
+
+    Uhud Savaşı'ndan sonra yaralı bile olsa Allah ve Resulü'nün çağrısına uyan müminler, tekrar toplanarak mücadeleye hazır oldular. Ebu Süfyan, gelecek yıl Badr al-Sugra'da yeniden savaşmaya davet etti. Müslümanlar bu meydan okumayı kabul etti ve hazır oldular. Ancak düşman gelmedi ve Müslümanlar, hem ticaret yaparak zenginleşmiş hem de güçlenmiş olarak geri döndüler. Yaralı bile olsalar çağrıya uyup doğru yolu izleyenlerin, Allah katında büyük bir mükâfatı vardır. Bu olay, müminlerin cesaretini, inancını ve dayanışmasını gösteren önemli bir örnektir.
+
+
+
+
+173. **İnsanlar onlara: “Size karşı büyük bir ordu toplanıyor” dediler ve onları korkuttular. Fakat bu sadece, onların imanlarını artırdı: “Allah bize yeter, O ne güzel vekildir” dediler.**
+
+
+
+
+174. **Ve Allah’tan lütuf ve merhameti ile geri döndüler. Onlara hiçbir zarar dokunmadı: Çünkü onlar, Allah’ın rızasına uydular. Ve Allah, sınırsız lütuf sahibidir.**
+
+
+175. **Onu takip eden kullarından korkmanızı size ancak Şeytan/Kötü olan telkin eder: Onlardan korkmayın, eğer iman ediyorsanız Benden korkun.**
+
+
+176. **Küfre dalıp gidenler seni üzmesin, Allah’a zerre kadar zarar veremezler. Allah’ın planı, onlara ahirette bir pay vermemek, şiddetli bir azap vermektir.**
+
+
+177. **İman karşılığında küfrü satın alanlar, işte onlar Allah’a hiçbir zarar veremezler ve onlar için elemli bir azap vardır.**
+
+
+
+178. **Kâfirler, kendilerine mühlet vermemizi kendileri için hayırlı sanmasınlar: Zulümlerinde artsınlar diye onlara mühlet veriyoruz: Ancak onlar için alçaltıcı bir azap vardır.**
+
+
+    Kâfirler için verilen süre, onların günah işlemelerini artırmak içindir; bu, günahlarının gerçek boyutunu ortaya çıkarmak ve cezalarını hak etmelerini sağlamaktır. Günah işleyenin iştahı, beslendiği şeyle daha da artar ve günaha daha derin şekilde batmasına neden olur. İnsanlar özgür iradeleriyle hareket ederler ancak Allah’ın rahmeti, her zaman tövbe edenler için hazırdır. Eğer bu lütuf reddedilirse, günahların artması, günahın yanıltıcı parıltısını ortadan kaldırır ve onun gerçek yüzünü açığa çıkarır. Allah’ın yasalarının işleyişi, hem adaletli hem de merhametlidir; tövbe edenleri affederken, ısrarla günaha devam edenleri ise hak ettikleri cezaya çarptırır.
+
+    Günah işleyen adam, tuzlu su içene döner. İçtikçe susar, susadıkça daha çok içer. Böylece batak iyice derinleşir. İnsanın önünde iki yol vardır: Ya pişman olup dönecek, ya da inadında ısrar edip helakine koşacak. Allah’ın rahmeti, tövbe kapısını çalan herkes içindir. Ama yüz çevirenler, günahlarıyla baş başa kalır. Zamanla, işledikleri kötülükler kabuk bağlar, gerçek yüzleri ortaya çıkar. Böylece, günahın parıltısına kanacak olanlar da uyanır.
+
+    Bu süre, kâfirlerin lehine değil, aleyhinedir. Günahları katmerlendikçe, hesabı da ağırlaşır.
+
+    Günah, bir kez başladı mı, tutkuya dönüşür. İnsanı kendine köle eder.
+
+    Allah’ın kapısı açıktır, ama kul inatla kulağını tıkarsa, sonu hüsrandır.
+
+    Hak, er geç yerini bulur. Merhamet de adalet de O’nundur. Tövbe eden kurtulur, zulme devam eden kendi ateşini körükler.
+
+    Günahın cilvesine aldanmayın. O, bir seraptır. Susuzluğunuzu dindirmez, aksine çoğaltır.
+
+    "Onların malları ve evlatlar olarak takipçileri seni şaşırtmasın/imrendirmesin: Gerçekte Allah’ın planı, onları bu dünyada bu şeylerle cezalandırmak ve canlarının Allah’ı inkar etmesi nedeniyle helâk olmalarıdır." : Tevbe 55
+
+
+
+179. **Allah, müminleri, ta ki şerri hayırdan ayırmadıkça, şu an içinde bulunduğunuz bu halde bırakmayacak ve gaybın sırlarını size açıklamayacak. Ama O, elçisini dilediği amaçla seçer. Öyleyse Allah’a inan. Ve elçilere: Eğer inanır da ve salih amellerde bulunursanız, sizin için hesapsız bir mükâfat vardır.**
+
+
+    Allah, kötülerle iyi insanları birbirinden ayırmak için insanları çeşitli denemelerden geçirir. Bu süreç, insanlara sınırlı bir irade özgürlüğü verilmesiyle gerçekleşir. İnsanlar, bu özgürlüğü kullanarak seçimler yapar ve sonuçta ayrım tamamlanır. İnsan, zayıf olduğu için gayb sırlarını bilmesi ona zarar verebilir. Bu nedenle, gerekli bilgiler zaman zaman seçilmiş elçiler aracılığıyla açıklanır. İnsanların görevi, imana sıkıca sarılmak ve ahlaki bir hayat yaşamaktır. İman edenler ve doğru yolu izleyenler için ise ölçülemez bir mükâfat vardır.
+
+    Gaybın sırları size açılmaz. Ne melekler bilir, ne de sıradan insanlar. Ancak Allah dilediğine, seçtiği elçilere bildirir. Onun için Allah’a ve elçilerine sımsıkı sarılın. İnanıp doğru yoldan şaşmayanların alacağı mükâfatı ne ölçer tartar, ne de insan aklı kavrar.
+
+    İyi insanların başına belalar yağdırılır, kötüler ise nimetler içinde yüzer. Bu, dünyanın dengesidir. İnsan denenir, sınanır, terazinin kefesine konur. Özgür iradesiyle ya doğruyu seçer ya da yanlışın peşine takılır. Ama bilin ki bu sınav boşuna değildir. Sonunda hak yerini bulacak, iyiler kurtulacak, zalimler ise kendi kazdıkları kuyuya düşecektir.
+
+    İnsan zayıftır. Gaybı bilse, yarını görse, yüreği dayanmaz bu yüke. Onun için Allah, lütfedip bildirmez. Ancak peygamberler, veliler, hak dostları vasıtasıyla insanlığa yol gösterir. Düşenin elinden tutar, şaşıranı doğrultur.
+
+    Dünya bir imtihan yeridir. İyiler belalarla, kötüler refahla sınanır.
+
+    Gayb Allah’ın elindedir. Kimse yarını bilemez, ancak seçilmişlere bildirilir.
+
+    İman edip doğru yolda yürüyenler, sonunda büyük bir mükâfat bulacak.
+
+    İnsan zayıftır, ama Allah’ın rahmeti boldur. Yeter ki kul, O’na yönelsin.
+
+    Öyleyse şaşma, sapma. Doğruyu seç, hakka tutun. Sonu hayırlı olsun!
+
+
+
+180. **Ve Allah’ın lütfundan kendilerine verdiği nimetlere tamah/mimetlerde cimrilik edenler, bunun kendileri için hayırlı olduğunu sanmasınlar: Hayır, onlar için bir şerdir/daha kötü olur: Çok geçmeden, cimrilikle alıkoydukları şeyler, Kıyamet Günü burkulmuş bir gerdanlık gibi boyunlarına bağlanacaktır. Göklerin ve yerin mirası Allah’ındır. Allah, yaptıklarınızdan haberdardır.**
+
+    Nimet dediğin, altın bilezik değildir sadece. Bazen toprak kokan bir ekmek, bazen gözlerinde ışıldayan bir fikir, bazen de yüreğine düşen bir hikmettir. Servet de nimettir, sağlam kafa da. Soy sop da payedir, el emeği de. Ama asıl mesele, bu nimetleri yüreğinle paylaşabilmektir.
+
+    Cimri adam, altınlarını gömer toprağa. Sanır ki kendine hazine biriktirir. Oysa o altınlar, boynuna dolanmış bir yılandır. Günden güne sıkar, nefesini keser. Bir değirmen taşı gibi çeker onu dibe. Matta der ya: "Boynuna asılmış değirmen taşıyla denize atılsa daha iyi!" İşte cimrilik de böyledir. Yığdığın servet, biriktirdiğin nimet, sana zincir olur. Yüreğini sıkar, ruhunu ezer.
+
+    Halbuki nimet, su gibidir. Akmazsa kokar. Veren el, alan elden üstündür. Sadaka vermek sadece fakiri doyurmaz, seni de arındırır. Cömert adamın yüreği geniştir, cebi değil. Ama cimri, altınlarının esiri olmuştur. Ne kendine faydası vardır, ne de başkasına.
+
+    Nimet çeşit çeşittir. Kiminde mal mülk, kiminde akıl fikir.
+
+    Paylaşılmayan nimet, zehir olur. Cimrinin boynuna dolanır, onu boğar.
+
+    Vermek, hem fakiri doyurur hem de seni özgürleştirir.
+
+    Değirmen taşı gibi bir yükten kurtulmak istiyorsan, sıkıca sarılma dünyaya.
+
+    "Biz herkesin kaderini kendi boynuna yükledik: Kıyamet günü ona bir parşömen liste çıkarırız da onu açılmış görür." : Isra 13"
+
+    Şu dünyada "benim" dediğin ne varsa, hepsi bir avuç seraptır. Tarlalar, evler, yığın yığın altınlar... Hepsi geçici bir rüya. Sen bu dünyaya çıplak geldin, çıplak gideceksin. O yüzden mal mülk sahibi olmakla övünme. Asıl sahip, gökyüzünü direksiz tutandır.
+
+    Servet dediğin, eline bırakılmış bir testi su gibidir. İstersen iç, istersen dök. Ama unutma ki testi kırılacak, su toprağa karışacak. Sen yalnızca bir bekçisin bu nimetlerin. Ne ekersen onu biçersin. Hakiki mülk sahibi, ölümsüz olandır.
+
+    Benim" diye tutunduğun her şey, rüzgâr önünde saman çöpüdür.
+
+    Servet geçici, emanet ebedidir. Doğru kullanırsan bereket, yanlış kullanırsan bela olur.
+
+    Göklerin ve yerin gerçek sahibi karşısında, insanın malı mülkü devede kulaktır.
+
+    Ölüm gelip çattığında, cebindeki altınlar değil, yüreğindeki iyilikler konuşacak.
+
+    O yüzden yığma, paylaş! Sahip çıkma, emanet bil! Yoksa malın seni değil, sen malın kölesi olursun!
+
+    "Sizi yeryüzünün halefleri ve varisleri kılan O’dur. Size verdiği nimetlerde sizi denemek için kiminizi kiminizden derecelerle üstün kıldı. Rabbinin cezası çabuk olandır, gerçekten çok bağışlayıcıdır, çok merhametlidir." : Enam 165
+
+
+
+181. **Allah, “Şüphesiz Allah fakirdir, biz ise zenginiz!” diyenlerin alaylarını işitmiştir. Onların sözlerini ve haksız yere peygamberleri öldürmelerini elbette yazacağız ve şöyle diyeceğiz: “Tadın Kavurucu Ateşin cezası!**
+
+    "Allah fakirmiş de biz zenginmişiz!" diye alay edenlerin sözü, karanlık mağaralarda yankılanan bir çığlık gibi çarptı semalara.
+
+    Allah'ın elçisi, "Haydi Allah yoluna harcayın!" dediğinde, cimrilerin yüreği daraldı. Altınlarını sımsıkı kavradılar, gözleri kör kesildi. "Madem Allah bize muhtaç, biz O'na borç verelim öyle mi?" diye kıvrıldılar kahkahalara. Oysa bilmezlerdi ki, attıkları her kahkaha, boyunlarına dolanan bir ip olacaktı.
+
+    Tarih hep böyledir zaten. Peygamberlerin kanını dökenler, hakikati boğmaya çalışanlar hep aynı maskeyi takmıştır: Kibir. Toprağa gömdükleri her peygamber, aslında kendi sonlarını kazıyordu. Ateş onları bekliyordu, ama gözleri görmüyordu.
+
+    Allah’ın kredisini ikiye katlayıp defalarca çoğaltacağı/kat kat kat artıracağı güzel bir borcu Allah’a ödünç verecek olan kimdir? İstediğinizi veya bolluğu veren Allah’tır ve dönüşünüz O’na olacaktır." : Bakara 245"
+
+    "Allah'a borç verin" sözü, cömertliğin ta kendisidir. Ama kalbi katı olan anlamaz.
+
+    Servetinin kölesi olan, bir gün onun zincirleriyle sürüklenecek.
+
+    Peygamber katilleriyle aynı sözü söyleyenler, aynı sonu paylaşacak.
+
+    Gerçek zenginlik Allah'tadır. İnsanın cebindeki altınlar ise bir rüyadan ibaret.
+
+    Ey insanoğlu! Şu dünyada "benim" dediğin ne varsa, yarın terkedip gideceksin. Ama alay ettiğin her hakikat, seni bırakmayacak peşinden. Yakıcı bir ateş olup düşecek önüne!
+
+    Öyleyse aç gözünü! Cimrilik etme, cömert ol. Yoksa yığdığın altınlar, cehennemde kızgın kor olup üzerine yağacak!
+
+
+
+182. **“Bu, sizin ellerinizin yaptığı kötülükleri önden göndermenizden dolayıdır. Çünkü Allah, kendisine kulluk/hizmet edenlere asla zarar vermez.”**
+
+    "Fakat onlar, kendi elleriyle önlerine koydukları günahlardan dolayı asla ölümü istemezler. Ve Allah yanlış yapanlar ile her şeyi hakkıyla bilendir." : Bakara 95
+
+
+
+183. **Onlar ayrıca dediler ki: “Allah, bize gökten bir ateşin yiyip bitirdiği bir kurban göstermedikçe hiçbir peygambere inanmayacağımıza söz verdi.” De ki: “Benden önce size, apaçık âyetlerle ve dilediğiniz şeylerle bile birlikte peygamberler geldi; öyleyse, eğer doğru sözlüler iseniz, onları niçin öldürdünüz?”**
+
+    Yüzyıllardır sürüp giden bir oyun bu. Peygamberler gelir, mucizeler gösterir, ama inatçı yürekler bir bahane daha bulur. Musa'nın asası yılana dönüştüğünde de, deniz yarıldığında de aynı terane: "Daha fazlasını göster!"
+
+    Oysa tarih tekerrür ediyordu:
+
+    Harun'la Musa'nın sunağından yükselen ilahi ateşi gördüler, yine isyan ettiler.
+
+    Habil'in kurbanı kabul olundu, Kain kıskançlıktan kardeşini öldürdü.
+
+    Peygamberlerin kanıyla sulandı toprak, ama gözler kör kaldı.
+
+    Mucize istemek bahanedir, kalpteki inat asıl engeldir. Gökteki ateş bile yürekteki nifakı söndüremez.
+
+    Tarih boyunca her peygambere kılıç çekildi. Bugün de aynı ruh, farklı kılıklarda dolaşıyor.
+
+    Kurbanların şekli değişti ama insanın inadı değişmedi. Dün sunakta kesilen koç, bugün kalpte kesilen niyettir.
+
+    Allah'ın rahmeti yeni bir çağ açtı. Artık kanlı kurbanlar değil, temiz yürekler aranıyor.
+
+    Ey insanoğlu! Gözünü göklerde ateş aramaktan yorulmadın mı? Oysa hakikat, yanıbaşında duruyor. Peygamberlerin kanıyla yazılan bu tarihi hâlâ anlamadıysan, ateşten önce aklını yitirmişsin demektir!
+
+    Öyleyse uyan! Kurbanın ateşi değil, imanın samimiyeti önemlidir. Yoksa Habil'in başına gelenler, senin de başına gelmeden gözlerini aç!
+
+
+
+184. **Eğer seni inkar ederlerse, senden önce de apaçık deliller, karanlık tahminler/kehanetler ve nur kitaplarıyla gelen elçiler de reddedilmişti.**
+
+    "Seni reddedenler, senden önceki peygamberleri de reddetti" diye haykırıyor hakikat.
+
+    Deliller ortada:
+
+    Açık mucizeler ki güneş gibi parlıyor
+
+    Zebur'un derin sırları ki yürekleri titretiyor
+
+    Nur Kitabı ki yol gösteriyor karanlıkta kalanlara
+
+    Ama nafile! İnsanoğlu'nun gözü kör, kulağı sağır olmuş. Musa'nın asası yılana dönüştüğünde de, Davud'un zebur'undaki hikmetler çağladığında da aynı inat: "Daha ne gösterirsen göster, inanmayız!"
+
+    Peygamberler tarihi, bir reddedilişler silsilesidir. Her nesil kendine yeni bahane bulur.
+
+    Zebur'un sert gerçekleri, yumuşak yürekli olanı korkutur. Anlamak isteyene rehber, inatçıya kördüğüm olur.
+
+    Nur Kitabı ise apaydınlık bir yoldur. Ama görmek istemeyene ne fayda?
+
+    Allah'ın elçileri hep aynı kaderi paylaştı: Deliller getirdiler, alay edildiler, zulüm gördüler.
+
+    Ey insanoğlu! Binlerce yıldır aynı oyunu oynuyorsun. Peygamberler geliyor, sen reddediyorsun. Sonra pişman oluyorsun, ama iş işten geçiyor. Ne zaman uyanacaksın?
+
+    Öyleyse kulak ver! Zebur'un derin sözlerini duy, Nur Kitabı'nın aydınlığında yürü. Yoksa sen de o reddedenlerin kervanına katılırsın - ve bil ki o kervanın sonu karanlıktır!
+
+
+185. **Her nefis ölümü tadacaktır: Ve sadece kıyamet gününde mükafatınız size tam olarak ödenecektir. Ancak ateşten uzaklaştırılıp cennete sokulan kimse, hayatın gayesine kavuşmuş olur: Çünkü dünya hayatı, bir mal ve kıymetler aldatmacasından başka bir şey değildir.**
+
+
+    "Her nefis ölümü tadacaktır: Biz sizi imtihan olarak şerle de hayırla da imtihan ediyoruz. Bize döneceksiniz." : Enbiya 35
+
+    "Her nefis ölümü tadacaktır: Sonunda Bize döndürüleceksiniz/Sonunda Bize geri getirileceksiniz." : Ankebut 57"
+
+    Ölümün tuzunu her can tadacak!
+
+    Şu fani dünyada ne varsa, hepsi bir rüyadır. Altınlar, şanlar, şöhretler... Hepsi bir serap. Gerçek olan tek şey var: O büyük hesap günü. İşte o gün, kim cennetin kapısında bulursa kendini, hakiki kurtuluşa ermiş demektir.
+
+    Ruh ölmez ama beden toprağa düşer. Son nefeste insan anlar asıl gerçeği: Bu dünya bir imtihanmış meğer! Görünürdeki haksızlıklar, adaletsizlikler hep sınava dahil. Mahşer günü her şey yerli yerine oturacak.
+
+    Ölüm kapıyı çalmadan, aklını başına al! Bu dünya geçici, ahiret ebedidir.
+
+    Cennet için çalış, cehennemden kork! Gerçek zenginlik oradadır.
+
+    Dünya malı göz boyar. Uyanık ol ki aldanmayasın.
+
+    Ruh ebedidir, beden fani. Önemli olan ruhunu temiz tutmaktır.
+
+    Ey insanoğlu! Longfellow ne güzel söylemiş: "Bu dünya bir yanılsamadır." Öyleyse boş şeylerle vakit geçirme. Asıl hedefine odaklan!
+
+    Unutma ki ölüm ansızın gelir. Hazırlıklı olmayan, büyük kayba uğrar. Öyleyse bugünden tezi yok, kendine çeki düzen ver!
+
+
+
+
+186. **Mallarınız ve canlarınız konusunda mutlaka imtihan edileceksiniz; Sizden önce kendilerine kitap verilenlerden ve çokça ilahlara kulluk edenlerden sizi üzecek çok şeyler işiteceksiniz. Ama sabreder ve kötülüklerden sakınırsanız, işte bu, bütün işlerde belirleyici bir faktör olacaktır.**
+
+    Altınların varsa "Şükür mü edeceksin, şımarmayacak mısın?" diye sınarlar seni. Yokluğa düşersen "Sabredecek misin, yoksa isyan mı edeceksin?" diye bakarlar. Bu dünya bir sınav yeridir; her şeyinle, her halinle deneneceksin.
+
+    İman etmek kolay değil. Ehl-i Kitap'tan, putperestlerden hakaretler işiteceksin. Alay edecekler, gülecekler ardından. Ama unutma: Sabır, demiri altın eden ateştir. Kötülüğe kötülükle karşılık vermezsen, gerçek erdem senin olacak.
+
+    Zenginlik de fakirlik de imtihandır. Biri gurur, diğeri isyan tuzağıdır.
+
+    Bilgin, yeteneğin, fırsatların - hepsi sınav aracı. Doğru kullanırsan kazanırsın.
+
+    İmanın en büyük sınavı, alaya alınmaya tahammül edebilmektir.
+
+    Sabır ve takva, tüm kapıları açan anahtardır.
+
+    Ey insanoğlu! Bu dünyaya sınanmak için geldin. Malın mülkün, başına gelenler hep deneme tahtası. Önemli olan, zorluklar karşısında dimdik durabilmektir.
+
+    Öyleyse uyanık ol! Ne servete güven ne yoksulluğa yan. Her halükârda şükret ve sabret. Çünkü asıl mükâfat, bu imtihanları geçenlerindir!
+
+    İnsanlar, mallarıyla, şahsi özellikleriyle ve hayatlarında yaşadıkları her şeyle sınanırlar. İmanlarını paylaşmayanlardan gelen eleştiriler, alaylar ve hakaretler de bu sınavın bir parçasıdır. Sabırla direnip kötülüklerden sakınmak, başarıyı belirleyen en önemli faktördür. Hayatımızdaki her şey – zenginlik veya yoksulluk, fırsatlar veya engeller – birer imtihan aracıdır. Asıl hedef, bu sınavlarda sabır göstererek Allah’ın rızasını kazanmaktır.
+
+
+
+187. **Ve Allah’ın, onu insanlara açıklamak, gizlememek için Kitap Ehli’nden söz aldığını hatırlayın; ama onu arkalarına/sırtlarının gerisine attılar ve onunla sefil bir kazanç satın aldılar! Ve yaptıkları pazarlık ne kötüydü!**
+
+    Ey inananlar! Kulak verin şu ihanetin hikayesine...
+
+    Allah'ın Kitap Ehli'yle yaptığı ahdi hatırlayın! Kendilerine emanet edilen hakikati halka açıkça duyuracaklardı. Ama ne yaptılar? Gerçeği bir kenara fırlattılar, altınlarına altın kattılar. İşte buna denir alçaklık! Allah'ın kelamını pazara çıkardılar, bir avuç dünyalık uğruna sattılar.
+
+    Hakikat, kutsal bir emanettir. Toprağa gömülmez, saklanmaz, parayla pazarlanmaz! Ama onlar ne yaptı? Kendi çıkarlarına uyan ayetleri seçtiler, diğerlerini yok saydılar. Rahipler, hahamlar kendilerine saltanat kurdular. Halkı karanlıkta bıraktılar, Allah'ın nurunu söndürdüler.
+
+    Allah'ın sözünü gizleyen, halka ihanet eder
+
+    Dini ranta çeviren, kendi mezarını kazar
+
+    Hakikat pazarlık konusu olamaz, o bir emanettir
+
+    Geçici dünyalık için ebedi hayatı satanlar, en büyük zararı kendilerine verir
+
+    Ey insanlar! Şu dünyada her şeyin bir bedeli var. Ama Allah'ın kelamını satanlar, en ağır bedeli ödeyecek. Gün gelecek, o bayağı alışverişin neye mal olduğunu anlayacaklar. İş işten geçmeden uyanın!
+
+    Hakikati gizleyenler, karanlığa gömülenlerdir. Ama hakikati haykıranlar, ebedi nurla aydınlanacak. Seçim sizin!
+
+188. **Yaptıklarıyla övünen ve yapmadıklarıyla övülmeyi sevenler, sanma azaptan kurtulurlar. Onlar için gerçekten çetin bir azap vardır.**
+
+
+189. **Göklerin ve yerin mülkü Allah’ındır. Allah her şeye kadirdir.**
+
+
 190. Bakın işte! Göklerin ve yerin yaratılışında, gece ile gündüzün birbiri ardınca gelişinde,-akıl sahipleri için elbette ibretler vardır,-
+
+
 191. Ayakta, oturarak ve yanları üzerine yatarak Allah’ı hamd ile tesbih eden, göklerdeki ve yerdeki yaratılış harikalarını tefekkür eden insanlar: “Rabbimiz! Bunları boşuna yaratmadın! Sen yücesin! Bizi ateş azabından kurtar.” derler.
+
+
+
 192. “Rabbimiz, kimi ateşe sokarsan, şüphesiz sen onu rezil edersin ve zalimler asla bir yardımcı bulamazlar.
+
+
 193. “Rabbimiz, Biz, Bizi imana çağıran birinin, ‘Rabbinize inanın’ diye nidasını işittik ve hemen iman ettik. Efendimiz/Rabbimiz! Günahlarımızı bağışla, kusurlarımızı ört ve canlarımızı salihlerle beraber yanına al.”
+
+
 194. “Rabbimiz! Elçilerin aracılığıyla bize vaat ettiklerini ver ve kıyamet gününde bizi rezil etmekten koru. Çünkü sen sözünden asla caymazsın.”
 195. Rableri onları kabul etti ve onlara şöyle cevap verdi: “Erkek olsun, kadın olsun, sizden hiçbirinizin amelini zayi etmeyeceğim. Siz birbirinizin uzuvlarısınız./Siz birbirinizdensiniz. Yurtlarından çıkanlar veya oradan sürülenler veya benim yolumda eziyete uğrayanlar veya savaşanlar veya öldürülenler, – şüphesiz Ben onların kötülüklerini örteceğim ve onları altlarından ırmaklar akan cennetlere koyacağım; – Mükafatları Allah katındandır ve O’nun katından olan mükâfatlar en hayırlısıdır.”
 196. Kâfirlerin yeryüzünde yaltaklanmaları seni aldatmasın:
