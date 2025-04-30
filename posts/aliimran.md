@@ -1619,52 +1619,376 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 144. **Muhammed yalnızca bir elçidir: Kendisinden önce gelip geçen elçiler çoktu. O ölür veya öldürülürse, geri mi döneceksiniz? Kim topukları üzerinde geri dönerse, Allah’a zerre kadar zarar veremez. Ancak Allah, Kendisine şükranla kulluk edenleri hızla mükâfatlandıracaktır.**
 
-Muhammed (s.a.v.), Allah'ın bir elçisidir ve diğer peygamberler gibi bir insandır. Uhud Savaşı sırasında onun öldüğüne dair yayılan söylentiler, müminlerin sarsılmasına neden olmuştu. Ancak o, cesareti ve kararlılığıyla Müslümanları bir arada tuttu. Sekiz yıl sonra vefat ettiğinde ise Ebu Bekir, bu ayeti hatırlatarak insanların Allah'ın ebediliğini ve mesajın sürekliliğini anımsattı. Bugün ise bu gerçeği iki nedenden dolayı hatırlamamız önemlidir:
+    Muhammed (s.a.v.), Allah'ın bir elçisidir ve diğer peygamberler gibi bir insandır. Uhud Savaşı sırasında onun öldüğüne dair yayılan söylentiler, müminlerin sarsılmasına neden olmuştu. Ancak o, cesareti ve kararlılığıyla Müslümanları bir arada tuttu. Sekiz yıl sonra vefat ettiğinde ise Ebu Bekir, bu ayeti hatırlatarak insanların Allah'ın ebediliğini ve mesajın sürekliliğini anımsattı. Bugün ise bu gerçeği iki nedenden dolayı hatırlamamız önemlidir:
 
-Muhammed'e fazla yüceltici bir saygı göstererek onun öğretisinin özünden uzaklaşmamalıyız.
-Zaman içinde yaşanan değişimler karşısında ümitsizliğe kapılmadan, Allah'ın ebedi olduğunu ve bizi koruduğunu unutmamalıyız. Allah, geçmişte olduğu gibi bugün de ve gelecekte de her şeyin üzerinde egemenliğini sürdürmektedir.
-
-
-Muhammed bir elçiydi… Evet, bir kuldu, bir insandı, çölün ortasında Allah’tan aldığı kelamı halkına getiren bir haberciydi. Ondan evvel nasıl elçiler geldiyse, o da bir gün toprakla buluşacaktı. Ölürse ne olur? Şehit edilirse ne değişir? Siz ardınızı dönüp de dağılır mısınız hemen? Yolun sahibini unutur musunuz? Yolcu ölür, ama yol ölmez. Çünkü yolun asıl sahibi Allah’tır — ve o ebedidir, sonsuzdur.
-
-Uhud’un toz dumanı içinde yayıldı bir çığlık: “Elçi öldü!” Damarına basılmış gibi dağıldı kalabalık. Umutlar yere düştü. Oysa o, ölmemişti. Yarası derindi, ama kalbi dimdikti. Yanında Talha vardı, Ali vardı, Ebu Bekir vardı. Onun cesareti, kurumuş bir nehir yatağına ansızın inen yağmur gibi, Müslümanların damarlarına yeniden can verdi. Sarsılanlar kendine geldi, kaçanlar geri döndü.
-
-Yıllar geçti… Elçi, görevini tamamladı ve göç etti. Bu defa Ebu Bekir kalktı ayağa, halkın karşısına geçti. Sesi titremedi, gözleri karanlığa teslim olmadı. O ayeti okudu. “Muhammed bir elçidir,” dedi. “O gitse de Allah kalır. Kim Muhammed’e tapıyorsa bilsin ki Muhammed ölmüştür. Ama kim Allah’a kulluk ediyorsa, bilsin ki Allah diridir, ölmez.”
-
-İşte şimdi biz de bunu anlamalıyız. Çünkü zaman değişir. İnsan değişir. Güçlü olan zayıflar, sağlam olan yıkılır, sevgiler tükenir, dostluklar dağılır. Ama Allah değişmez. O her zaman var, her zaman diri, her zaman gözetleyicidir.
-
-Ve bir başka tehlike daha vardır: Elçi’yi yücelteyim derken onu aşırı kutsamak, onu bir insan olmaktan çıkarıp gözümüzde erişilmez bir varlığa çevirmek. Hayır. O, en güzel nitelikte bir insandı, ama insandı. Onun gücü, halktan biri olup da Allah’a en çok yaklaşan olmasıydı. Onun büyüklüğü, yaralıyken bile ümmetine öncülük etmesindeydi.
-
-Zaman geçtikçe unutur insan, yanılır, umutlarını yitirir. Ama Allah, o zamanlarda da hep ordadır. Tıpkı çorak toprağın altında gizlice dolaşan kökler gibi. Sessiz, görünmez ama dimdik.
-
-Yani yol bizden daha uzun, davet bizden daha büyük, sahip ise hep baki: Allah’tır. Ve onun dostlarına mükâfatı boldur, zamanında gelir, hiç şaşmaz.
+    Muhammed'e fazla yüceltici bir saygı göstererek onun öğretisinin özünden uzaklaşmamalıyız.
+    Zaman içinde yaşanan değişimler karşısında ümitsizliğe kapılmadan, Allah'ın ebedi olduğunu ve bizi koruduğunu unutmamalıyız. Allah, geçmişte olduğu gibi bugün de ve gelecekte de her şeyin üzerinde egemenliğini sürdürmektedir.
 
 
+    Muhammed bir elçiydi… Evet, bir kuldu, bir insandı, çölün ortasında Allah’tan aldığı kelamı halkına getiren bir haberciydi. Ondan evvel nasıl elçiler geldiyse, o da bir gün toprakla buluşacaktı. Ölürse ne olur? Şehit edilirse ne değişir? Siz ardınızı dönüp de dağılır mısınız hemen? Yolun sahibini unutur musunuz? Yolcu ölür, ama yol ölmez. Çünkü yolun asıl sahibi Allah’tır — ve o ebedidir, sonsuzdur.
+
+    Uhud’un toz dumanı içinde yayıldı bir çığlık: “Elçi öldü!” Damarına basılmış gibi dağıldı kalabalık. Umutlar yere düştü. Oysa o, ölmemişti. Yarası derindi, ama kalbi dimdikti. Yanında Talha vardı, Ali vardı, Ebu Bekir vardı. Onun cesareti, kurumuş bir nehir yatağına ansızın inen yağmur gibi, Müslümanların damarlarına yeniden can verdi. Sarsılanlar kendine geldi, kaçanlar geri döndü.
+
+    Yıllar geçti… Elçi, görevini tamamladı ve göç etti. Bu defa Ebu Bekir kalktı ayağa, halkın karşısına geçti. Sesi titremedi, gözleri karanlığa teslim olmadı. O ayeti okudu. “Muhammed bir elçidir,” dedi. “O gitse de Allah kalır. Kim Muhammed’e tapıyorsa bilsin ki Muhammed ölmüştür. Ama kim Allah’a kulluk ediyorsa, bilsin ki Allah diridir, ölmez.”
+
+    İşte şimdi biz de bunu anlamalıyız. Çünkü zaman değişir. İnsan değişir. Güçlü olan zayıflar, sağlam olan yıkılır, sevgiler tükenir, dostluklar dağılır. Ama Allah değişmez. O her zaman var, her zaman diri, her zaman gözetleyicidir.
+
+    Ve bir başka tehlike daha vardır: Elçi’yi yücelteyim derken onu aşırı kutsamak, onu bir insan olmaktan çıkarıp gözümüzde erişilmez bir varlığa çevirmek. Hayır. O, en güzel nitelikte bir insandı, ama insandı. Onun gücü, halktan biri olup da Allah’a en çok yaklaşan olmasıydı. Onun büyüklüğü, yaralıyken bile ümmetine öncülük etmesindeydi.
+
+    Zaman geçtikçe unutur insan, yanılır, umutlarını yitirir. Ama Allah, o zamanlarda da hep ordadır. Tıpkı çorak toprağın altında gizlice dolaşan kökler gibi. Sessiz, görünmez ama dimdik.
+
+    Yani yol bizden daha uzun, davet bizden daha büyük, sahip ise hep baki: Allah’tır. Ve onun dostlarına mükâfatı boldur, zamanında gelir, hiç şaşmaz.
 
 
-145. Allah’ın izni olmadıkça hiçbir can ölemez, süre yazı ile sabittir. Kim bu dünyada bir ödül isterse, onu ona veririz. Kim ahirette bir mükâfat isterse ona veririz. Ve Bize şükredenleri tez vakit mükâfatlandıracağız.
-146. Peygamberlerden kaçı/nicesi Allah yolunda savaştı ve onlarla birlikte Allah yolundan giden büyük topluluklar da/rabbani olanlar da savaştı. Fakat Allah yolunda bir musibete uğradıklarında yılmadılar, iradelerinde gevşemediler ve teslim olmadılar. Allah, sebat edenleri ve sabredenleri sever.
-147. Bütün söyledikleri şuydu: “Rabbimiz! Bizim günahlarımızı ve işlediğimiz görevimize aykırı/yaptığımız görevimize aykırı her şeyi bağışla. Ayaklarımızı sabit tut ve inkar edenlere karşı bize yardım et.”
-148. Ve Allah onlara dünyada mükâfat verdi, ahirette de güzel mükâfat verdi. Çünkü Allah iyilik yapanları sever.
-149. Ey iman edenler! Eğer kâfirlere itaat ederseniz, sizi topuklarınız üzerinde geri püskürtürler ve imandan kendi zararınıza dönersiniz.
-150. Hayır, Allah sizin mevlânızdır ve O, yardımcıların en hayırlısıdır.
-151. Hakkında hiçbir delil indirmediği halde Allah’a ortak koşmalarından dolayı, kâfirlerin kalplerine yakında korku salacağız. Onların varacakları yer ateştir. Zalimlerin yurdu ne kötüdür!
-152. Siz O’nun izniyle düşmanınızı helak etmek üzereyken Allah size verdiği vaadini yerine getirdi; ta ki siz ürküp emir hakkında tartışmaya daldınız ve O, göz diktiğiniz ganimeti size gösterdikten sonra ona isyan ettiniz. Sizden kiminiz dünyayı gözler/ister, kiminiz de ahireti arzular. Sonra sizi denemek/imtihan etmek için sizi düşmanlarınızdan uzaklaştırdı. Yemin olsun O sizi affetti: Çünkü Allah, iman edenlere karşı rahmet doludur.
-153. İşte bakın! Kimseye yan gözle bile bakmadan yüksek bir yere kaçarak tırmanıyordunuz ve arkanızdaki Rasul sizi geri çağırıyordu. Allah, elinizden giden ganimetlere ve başınıza gelen musibetlere üzülmemeyi size öğretmek için misilleme olarak size sıkıntı üstüne sıkıntı verdi. Çünkü Allah, yaptıklarınızdan haberdardır.
-154. Sıkıntının verdiği uyarılmadan sonra, içinizden bir kısmının üzerine sükûnet indirdi, bir kısmı da kendi hisleri ile endişeye kapıldı. Allah’a dair yanlış şüphelerle hareket eden, cehaletten kaynaklanan şüphelerle. “Bu işten bize ne?” dediler. De ki: “Şüphesiz bu iş tamamen Allah’ındır.” Sana açıklamaya cesaret edemediklerini içlerinde gizliyorlar. Kendi kendilerine diyorlar ki, “Bizim bu işle bir alakamız olsaydı, burada katliama uğramazdık.” De ki: “Evlerinizde kalsaydınız bile, haklarında ölüm takdir olunan kimseler, muhakkak ölecekleri yere çıkacaklardı.” Fakat bütün bunlar, Allah’ın göğüslerinizdekini sınaması ve kalplerinizdekini temizlemesi içindi. Çünkü Allah, kalplerinizin içindekileri çok iyi bilir.
-155. İki topluluğun karşılaştığı gün içinizden yüz çevirenleri, yaptıkları bazı kötülüklerden dolayı şeytan saptırdı. Ama Allah onların kusurlarını örtmüştür: Allah çok bağışlayandır, halimdir.
-156. Ey iman edenler! Kardeşleri yeryüzünde sefere çıktıkları veya savaştıkları zaman haklarında şöyle diyen kâfirler gibi olmayın: “Bizimle kalsalardı ölmezlerdi, öldürülmezlerdi.” Bu, Allah’ın bunu onların kalplerinde bir iç çekiş ve pişmanlık sebebi yapması içindir. Allah diriltir ve öldürür. Allah yaptıklarınızı çok iyi görmektedir.
-157. Ve eğer Allah yolunda öldürülür veya ölürseniz, Allah’ın mağfireti ve rahmeti insanların toplayabileceklerinden daha hayırlıdır.
-158. Ve eğer ölürseniz ya da öldürülürseniz, İşte bakınız! bir araya getirilip toplanmanız Allah’adır.
-159. Onlara yumuşak davranman, Allah’ın rahmetindendir. Eğer sert ve katı yürekli olsaydın, çevrenden uzaklaşıp giderlerdi: Onların kusurlarını affet ve onlar için Allah’tan mağfiret dile ve anlık/güncel işlerde onlarla istişare et. Artık karar verdiğin zaman Allah’a tevekkül et. Çünkü Allah, kendisine tevekkül edenleri sever.
-160. Eğer Allah size yardım ederse, size galip gelecek yoktur: Eğer O sizi yüzüstü bırakırsa, bundan sonra size kim yardım edebilir? O halde mü’minler Allah’a tevekkül etsinler.
-161. Hiçbir peygamber emanetine karşı yalancı olamaz. Kim bu kadar yalancı ise, O, kıyâmet gününde zimmete geçirdiğini geri verecektir; o zaman herkes -kazandığının- karşılığını alacaktır ve hiç kimse haksızlığa uğratılmayacaktır.
-162. Allah’ın rızasına uyan kimse, Allah’ın gazabını üzerine çeken ve varacağı yer cehennem olan kimse gibi midir?- Acılı bir sığınaktır o!
-163. Allah katında onlar çeşit çeşit cennetlerdedirler ve Allah onların yaptıklarını çok iyi görmektedir.
-164. Allah, müminlere kendi içlerinden Allah’ın âyetlerini okuyan, onları temize çıkaran, onlara Kitap ve hikmeti öğreten bir elçi göndermekle büyük bir lütufta bulunmuştur,  
-    halbuki bundan önce onlar apaçık bir sapıklık içindeydiler.
-165. Ne! Size bir musibet isabet edince, düşmanlarınızı iki misliyle vurduğunuz halde, “Bu nereden?” diyorsunuz. Onlara de ki: “O, kendi tarafınızdandır/kendinizdendir: Allah her şeye kadirdir.”
+
+
+145. **Allah’ın izni olmadıkça hiçbir can ölemez, süre yazı ile sabittir/belirlenmiştir. Kim bu dünyada bir ödül isterse, onu ona veririz. Kim ahirette bir mükâfat isterse ona veririz. Ve Bize şükredenleri/şükranla hizmet edenleri tez vakit mükâfatlandıracağız.**
+
+    Allah’ın izni olmadan hiçbir can ölmez ve her şeyin bir ömrü vardır. Uhud Savaşı’nda görev yerlerini bırakıp ganimet peşine düşen okçular, kısa vadeli dünya kazancı uğruna neredeyse tüm ordunun tehlikeye girmesine neden oldular. Ancak disiplinli ve sabırla savaşanlar, bu dünyada ve ahirette kesin ödüllere nail oldu. Şehit olanlar, şehitlik tacını; yaşayanlar ise bu dünyada ve ahirette onurlandırılan kahramanlar oldular. İnsanların dünya hayatını mı yoksa ahiret hayatını mı tercih ettikleri, sonunda alacakları mükâfatı belirler. Şükranla kulluk edenler ise Allah tarafından çabucak mükâfatlandırılır.
+
+
+    Ölüm…  
+    Ne bir adım önce gelir, ne bir nefes sonra.  
+    Her canın bir vakti vardır.  
+    Yazılmıştır.  
+    Allah’ın izni olmadan ne bir yaprak düşer ne bir can toprağa varır.  
+    İşte bu gerçeği bilmeden,  
+    Uhud’un sırtında duranlar vardı.  
+    Oklarını bırakıp, gözlerini ganimete diktiler.  
+    Bir torba dolusu altın için,  
+    bir avuç hurma için  
+    bir ömrü, bir ümmeti tehlikeye attılar.
+
+    Kısa bir sevdaydı onlarınki.  
+    Gözleri bu dünyadaydı.  
+    Bu dünya…  
+    Elinde tuttuğunu sanırsın da,  
+    avucun doluymuş gibi gelir.  
+    Oysa yok olur,  
+    kum gibi akar gider.  
+    Kaldı geriye pişmanlık ve kan.
+
+    Ama bir de vardı sabırla bekleyenler.  
+    Gözünü kırpmadan duranlar.  
+    İtaatle, disiplinle  
+    görevini bırakmayanlar.  
+    Onlar da vuruldu belki,  
+    ama yere değil, göğe yükseldiler.  
+    Şehitlik tacı başlarında,  
+    onurlar dağ gibi arkalarında kaldı.
+
+    Kim dünya için yürürse,  
+    belki birkaç adım kazanır.  
+    Ama yüreği boş kalır.  
+    Kim ahiret için sabrederse,  
+    iki dünyayı da kazanır.  
+    Hem bu tarafta yiğit sayılır,  
+    hem öte tarafta müjdeyle karşılanır.
+
+    Ve şükrü unutmamak gerek…  
+    Şükranla yürüyen,  
+    sabırla bekleyen,  
+    imanla direnen kul,  
+    Allah’ın gözünde kıymetlidir.  
+    Ve O,  
+    mükâfatını geciktirmez.
+
+    Biri dünya dedi,  
+    öteki ahiret.  
+    Biri torba,  
+    öteki sonsuzluk.  
+    Tercih insana kaldı.  
+    Ama unutma:  
+    Toprak, sabırlı olanı bağrına alır;  
+    gökyüzü, yiğidi unutur mu hiç?
+
+
+146. **Peygamberlerden kaçı/nicesi Allah yolunda savaştı ve onlarla birlikte Allah yolundan giden büyük topluluklar da/rabbani olanlar da savaştı. Fakat Allah yolunda bir musibete uğradıklarında yılmadılar, iradelerinde gevşemediler ve teslim olmadılar. Allah, sebat edenleri ve sabredenleri sever.**
+
+
+
+147. **Bütün söyledikleri şuydu: “Rabbimiz! Bizim günahlarımızı ve işlediğimiz görevimize aykırı/yaptığımız görevimize aykırı her şeyi bağışla. Ayaklarımızı sabit tut ve inkar edenlere karşı bize yardım et.”**
+
+
+148. **Ve Allah onlara dünyada mükâfat verdi, ahirette de güzel mükâfat verdi. Çünkü Allah iyilik yapanları sever.**
+
+
+
+149. **Ey iman edenler! Eğer kâfirlere itaat ederseniz, sizi topuklarınız üzerinde geri püskürtürler ve imandan kendi zararınıza dönersiniz.**
+
+
+150. **Hayır, Allah sizin mevlânızdır ve O, yardımcıların en hayırlısıdır.**
+
+
+151. **Hakkında hiçbir delil indirmediği halde Allah’a ortak koşmalarından dolayı, kâfirlerin kalplerine yakında korku salacağız. Onların varacakları yer ateştir. Zalimlerin yurdu ne kötüdür!**
+
+
+152. **Siz O’nun izniyle düşmanınızı helak etmek üzereyken Allah size verdiği vaadini yerine getirdi; ta ki siz ürküp emir hakkında tartışmaya daldınız ve O, göz diktiğiniz ganimeti size gösterdikten sonra ona isyan ettiniz. Sizden kiminiz dünyayı gözler/ister, kiminiz de ahireti arzular. Sonra sizi denemek/imtihan etmek için sizi düşmanlarınızdan uzaklaştırdı. Yemin olsun O sizi affetti: Çünkü Allah, iman edenlere karşı rahmet doludur.**
+
+
+    Uhud Savaşı’nda Müslümanlar, düşmanlarını yenme fırsatını yakalamıştı. Ancak bir grup, emre rağmen ganimet peşine düşerek savaş düzenini bozdu. Başlangıçta bu durum, düşmanı kovalama ve ganimet alma umuduyla hoş göründü. Ancak düşman bu boşluğu fark edip Müslümanları neredeyse tamamen yenilgiye uğrattı. Eğer Allah’ın lütfu ve Peygamber’in liderliği ile yanındakilerin kararlılığı olmasaydı, hepsi mahvolabilirdi. İçlerinden bazıları dünya kazancını, bazıları ise ahiret mükâfatını arzuladı. Bu olay, insanları denemek ve niyetlerini ortaya çıkarmak için yaşandı. Allah, inananlara karşı her zaman lütuf sahibidir.
+
+
+    Savaş meydanıydı.  
+    Güneş, Uhud’un taşına demir gibi vuruyordu.  
+    Toz kalkmıştı, rüzgâr durmuştu.  
+    Bir an geldi ki, düşman sırtını dönmüş, kaçıyordu.  
+    Zafer ellerdeydi.  
+    Ama insan, zaferin eşiğinde bile Allah'ın kendini sınamasından kurtulamaz.  
+
+    Emir açıktı.  
+    Durulacaktı,  
+    beklenecekti,  
+    diz çökmeyecek,  
+    ganimetin parıltısına aldanılmayacaktı.  
+
+    Ama o parıltı...  
+    Altının, zaferin, zaafın parıltısı…  
+    Ne çok baş döndürür insanoğlunun.  
+    Ve işte o an,  
+    bir grup yiğit,  
+    elleri kılıçta, gözleri ganimette  
+    emri unuttu.  
+
+    Düşman da unutmamıştı.  
+    Onlar da baktılar,  
+    tepenin boşaldığını gördüler.  
+    Ve oradan vurdular.  
+    Savunma dağıldı.  
+    Geriye sadece  
+    çırpınan, şaşkın bir kalabalık kaldı.  
+    Sanki bozkırın ortasında  
+    avı terk eden çoban gibi.  
+
+    Ama Allah büyüktü.  
+    Lütfu genişti.  
+    Resul’ün dimdik duruşu,  
+    etrafındakilerin can pahasına kararlılığı  
+    yıkımı engelledi.  
+    Yine de  
+    bir ders yazıldı Uhud’un kızıl toprağına:  
+
+    Dünya sevgisiyle,  
+    ahiret arzusu çatıştığında,  
+    tercih insanın yüreğinde saklıdır.  
+    Kimisi torbaya koşar,  
+    kimisi sabra.  
+    Kimisi altına uzanır,  
+    kimisi hakikatin sancağına.  
+
+    Allah,  
+    bu savaşı insanlara sınav kıldı.  
+    Kim dünyayı seçti, kim ahireti…  
+    ortaya çıktı.  
+
+    Ve yine de…  
+    Bağışladı.  
+    Çünkü o,  
+    dağın taşın, insanın kanının,  
+    tökezleyenin,  
+    ama yeniden yürümeye çalışanın  
+    Rabbidir.  
+    Lütfu büyüktür,  
+    inananı yolda koymaz.
+
+
+
+
+153. **İşte bakın! Kimseye yan gözle bile bakmadan yüksek bir yere kaçarak tırmanıyordunuz ve arkanızdaki Rasul sizi geri çağırıyordu. Allah, elinizden giden ganimetlere ve başınıza gelen musibetlere üzülmemeyi size öğretmek için misilleme olarak size sıkıntı üstüne sıkıntı verdi. Çünkü Allah, yaptıklarınızdan haberdardır.**
+
+
+
+    Uhud Savaşı’nda, Müslümanlar düşmanın baskını karşısında yüksek yamaçlara doğru kaçtılar. Arkalarında kalan Peygamber Efendimiz (s.a.v.), onları geri çağırdı ancak durum zorlaşmıştı. Müslüman okçuların bıraktığı boşluktan Halid bin Velid önderliğinde düşman atlıları geçiş yaptı ve Müslümanlar büyük bir kargaşa yaşadı. Müslümanlar için iki kat kayıp yaşandı: hem ganimet umutlarını yitirdiler hem de hayatları tehlikeye düştü. Ancak bu zorluklar, onların bir kısmını sınadı ve sınavı geçenler manevi bir güç kazandı. Allah’ın bu denemesi, insanların yüce değerlerle savaşmalarını ve dünyevi kazançlardan çok imanlarını korumalarını öğretti.
+
+
+    Müminler, savaş meydanının alçak çukurundan korkuyla sıyrılıp dağa tırmanıyorlardı; yürekleri patlar gibi, gözlerinde dehşet… Arkalarında, sesi bir çoban çağrısı gibi yankılanan Peygamber vardı. “Dönün!” diyordu. “Bırakmayın mücadeleyi!” Ama o ses, dağın taşına çarpıp geri döndü; kaçışan yüreklerde yankı bulamadı.
+
+    İşte orada, Allah bir değil, iki keder verdi insanlara. Önce ganimetin kaçışıyla yandı yürekler; sonra da can korkusuyla, ölümün soğuk nefesiyle sarsıldılar. Allah bunu boşuna yapmadı. O sıkıntıların her biri, insanın içindeki arzu ve korkuyu eğitmek içindi. Ganimeti kaybettiğin için üzülme, başına gelen belalar için de dertlenme; çünkü Allah her şeyi bilir, her gözyaşını görür, her kalp çırpıntısını duyar.
+
+    O gün, Halid bin Velid gibi bir savaş kurdu, rüzgâr gibi dolandı çölün tozlu bozkırında. Okçuların terk ettiği boşluğu gördü; kılıcını çekti, askerini sürdü. Düşman geri döndü. Dağın eteğinde, Nullah kıyısında, toprak kanla sulandı. Müminler, darmadağın oldular, oradan oraya savruldular. Kaçtılar, düştüler, tekrar kalktılar. Ganimet gitti, ama daha beteri vardı: can gitti, kardeş gitti, yol arkadaşı gitti…
+
+    Ama bazıları, yüreklerine taş bağladı. Kaçmadı. Gözünü kırpmadan bekledi. İşte onlar, o sınavdan geçenlerdi. Toprak o gün onların sabrını işledi bağrına. Ganimet elden gitmişti, evet. Hayat pamuk ipliğine bağlıydı, doğru. Ama o sabırla, o imanla dik duranlar, manevi bir zafer kazandı. Çünkü Allah, her zorluğun içinden direnci, her felaketin içinden sadakati tarttı.
+
+    Ve biz şimdi bilmeliyiz: savaş sadece kılıçla olmaz. Savaş, gönülle olur, inançla olur. Kaçan, sadece meydanı değil; sabrı, imanı ve yolu da terk eder. 
+
+
+
+
+
+154. **Sıkıntının verdiği uyarılmadan sonra, içinizden bir kısmının üzerine sükûnet indirdi, bir kısmı da kendi hisleri ile endişeye kapıldı. Allah’a dair yanlış şüphelerle hareket eden, cehaletten kaynaklanan şüphelerle. “Bu işten bize ne?” dediler. De ki: “Şüphesiz bu iş tamamen Allah’ındır.” Sana açıklamaya cesaret edemediklerini içlerinde gizliyorlar. Kendi kendilerine diyorlar ki, “Bizim bu işle bir alakamız olsaydı, burada katliama uğramazdık.” De ki: “Evlerinizde kalsaydınız bile, haklarında ölüm takdir olunan kimseler, muhakkak ölecekleri yere çıkacaklardı.” Fakat bütün bunlar, Allah’ın göğüslerinizdekini sınaması ve kalplerinizdekini temizlemesi içindi. Çünkü Allah, kalplerinizin içindekileri çok iyi bilir.**
+
+
+    Müslümanların büyük bir kısmı elinden geldiğince mücadele etti ve düşman, onların metanetini görünce kampa geri çekildi. Bir süre sükunet oldu; yaralılar dinlendi, zorlu savaş verenler ise huzurlu uykuya teslim oldu. Onlarla tezat oluşturanlar ise münafıklar grubuydu.
+    Görünüşe göre, daha önce de düşmanın karşısına cesurca çıkmak yerine Medine'nin surları içinde savunma yapmayı önerenler arasında yer almışlardı. Onların sıkıntıları, kendi zihinsel durumlarından kaynaklanıyordu: adil olanların uyku huzuru onlara verilmedi ve "ne olabilirdi" diye sürekli şikâyet etmeye devam ettiler. Ancak bunu yapanlar ancak aptallar olabilir; bilge insanlar gerçeklikle yüzleşir.
+    Allah'ın sınaması, O'nun bilgisini artırmak içindir demek yanlıştır, çünkü O her şeyi bilir. Bu sınav, bizi öznel olarak desteklemek, irademizi şekillendirmek ve bizi felaketlerle ortaya çıkacak daha düşük gizli motiflerden arındırmak içindir. Eğer denenen kişi bir ıslah olmazsa, sınav kendi kendisinin inandırıcı bir kanıtı haline gelir.
+
+
+    Bir an vardı ki, savaşın homurtusu dağlara vurmuş, toprak korkuyla titremişti. Sonra... birden... düşman döndü. Müslümanların ilk şaşkınlığı geçtiğinde, yürekleri kavrulmuş ama direnişleri sönmemişti. Kalkanlarını sıktılar, kılıçlarını kavradılar, çamura batmış postallarıyla yere daha sıkı bastılar. Göğüslerini siper ettiler, sözlerini değil, yüreklerini konuşturdular. Düşman, bu direnci gördü; gözlerinde, “biz bunları ezemeyiz” dedi, geri döndü. Sonra... bir sessizlik çöktü dağın yamacına. Rüzgâr sustu. Kuşlar bile uçmaz oldu. Yorgun yürekler, doğanın serin eliyle kapanan göz kapaklarında dinlenmeye çekildi. Uyku indi; bir ananın alnından öptüğü gibi, savaşçıların alnına dokundu. Uyumayanlar da vardı. Onlar, savaşmayanlardı. Onlar münafıklardı.
+
+    Bu münafıklar… Yüzlerini savaştan kaçıranlar… Daha önce de “Biz Medine’de kalalım,” diyenlerdi. Duvar arkasına saklanıp sözle kahramanlık kovalayanlardı. Kalplerine korku çökmüş, akıllarına şüphe yerleşmişti. Uyuyamadılar. Uyumadılar. Çünkü huzur, ancak yürekli olanlara gelir. Onlar kendi akıllarına esir, kendi korkularına tutsaktı. “Ne olsaydı?” diye inleyip durdular. Ama bilge kişi ‘olan’a bakar, aptal kişi ise ‘olmayan’ın arkasından ağlar.
+
+    Allah sınar insanı. Ama kendi için değil. Çünkü Allah her şeyi bilir. Onun sınavı, ateşte arıtılan altın gibi, insanı işlemek içindir. İradenin üzerindeki pası silmek, kalpteki karanlık köşeleri gün ışığına çıkarmak içindir. Bu sınav, bazen bir kılıç yarasıdır, bazen uykuya kavuşamayan bir gece. Ama her biri, insanı ya arındırır ya da yargılar.
+
+    Ve eğer o sınanan yürek yontulmaz, taş gibi sertse… O zaman sınav bir mahkeme olur. Kendi vicdanı, kendi diliyle onu mahkûm eder. Felaket, yalnızca dıştan gelen bir bela değil, içten gelen bir çürüyüştür. Kimse bilmez ama Allah görür. Ve o görgüyle insan ya yükselir ya da yere serilir.
+
+
+
+
+
+
+
+155. **İki topluluğun karşılaştığı gün içinizden yüz çevirenleri, yaptıkları bazı kötülüklerden dolayı şeytan saptırdı. Ama Allah onların kusurlarını örtmüştür: Allah çok bağışlayandır, halimdir.**
+
+    Uhud Savaşı sırasında bazı müslümanlar, savaş sırasında çekingen davrandı ve görevlerini tam anlamıyla yerine getiremedi. Bu durum, geçmişte işlemiş oldukları bazı yanlışlıklar nedeniyle şeytanın etkisine bağlanmıştır. Ancak bu kişiler, küfür veya isyan edenler kadar büyük bir suç işlememiştir. Allah, içsel niyetlere önem verir ve bu çekingen olanları affetmiştir. Muhtemelen onlara başka bir fırsat verilmiş ve bu fırsatta görevlerini yerine getirmiş olabilirler. Allah’ın affediciliği ve sabrı, insanların hatalarını telafi etmeleri için zaman ve imkan tanır. Her Müslümanın kutsal bir sebeple, savunma amaçlı savaşma gibi bir sorumluluğu vardır, ancak insanlar farklı seviyelerde cesaret gösterebilir.
+
+    O gün, iki ordu karşı karşıya geldiğinde, bir grup vardı ki ayakları geri geri gitti. Savaş meydanını bırakıp döndüler. Bu, öyle bir an değildi ki herkes istediğini yapsın. Lakin onların yüreği çoktan karışmıştı. Önceki zamanlardan kalma zaaflar, yanlışlar, küçük hesaplar vardı içlerinde. Ve işte o hesaplar, o zaaflar, şeytanın eline düştü. Onların aklına giren, yüreklerine korku salan oydu. Geri çekildiler.
+
+    Ama Allah... Allah onların bu adımını sonsuz bir gazapla karşılamadı. Çünkü o kalpleri biliyordu. O korkunun içinde neyin saklı olduğunu, o tereddüdün altındaki niyeti. Onlar isyan edenler gibi değildi. Diliyle “inkâr” edenler, buyruğa kulak asmayanlar gibi değildi. Evet, hata ettiler. Ama Allah affetti onları. Çünkü Allah affedicidir. Çünkü Allah sabırlıdır. Ve sabır, sadece zamana değil, insanın içine bakmayı bilene mahsustur.
+
+    Allah, yalnız kılıcın nerede çekildiğine, adımın nereye bastığına değil, kalbin nerede durduğuna bakar. O kalbin içini görür. Ve bazen bir insan düşer; ama düşerken bile içinde bir hayâ, bir pişmanlık taşırsa, işte o zaman Allah ona yeni bir yol açar. Belki de bu düşenler, sonra bir başka meydanda durdular. Belki de aynı hatayı bir daha yapmadılar. Kim bilir?
+
+    Uhud, bir sınavdı. Sadece kılıçla değil, yürekle verilen bir sınav. Ve o gün, herkes aynı sınavı geçemedi. Ama her biri, kendi yüreği kadar sorumluydu. Ve Allah, insanın yüzüne değil, yüreğine bakar. İşte bu yüzden affetti onları. Affetti ki, insan yeniden kalkabilsin, yeniden yürüyebilsin. Çünkü Allah, affı da sabrı da bol olandır.
+
+
+
+156. **Ey iman edenler! Kardeşleri yeryüzünde sefere çıktıkları veya savaştıkları zaman haklarında şöyle diyen kâfirler gibi olmayın: “Bizimle kalsalardı ölmezlerdi, öldürülmezlerdi.” Bu, Allah’ın bunu onların kalplerinde bir iç çekiş ve pişmanlık sebebi yapması içindir. Allah diriltir ve öldürür. Allah yaptıklarınızı çok iyi görmektedir.**
+
+
+    Ölüm, sizin tuttuğunuz hesaplarla gelmez; hayat, sizin tedbir sandığınız duvarlarda durmaz. Allah’tır hayatı veren. Allah’tır canı alan. O, her şeyi görür, her şeyi bilir.
+
+    İmanı eksik olanın yüreği önce ölümü düşünür. Ölüm gelir mi, gelmez mi? Gideceğim yer güvenli mi? Ya yolda başıma bir şey gelirse? İşte bu sorular, yürek zayıflığının, inanç noksanlığının ta kendisidir. Oysa imanı tam olan bilir: Ölüm bir bitiş değil, bir vuslattır. Ölüm, Allah’ın çağırdığı andır. Korkmaz ondan; çünkü Allah’ın yazdığı bir sona karşı korkunun ne hükmü olur? Eğer Allah dilemişse ölümü, ne saray duvarı kurtarır insanı ne de dar bir oda. Ama eğer yaşam yazılmışsa alın yazısına, en kızgın çarpışmanın ortasından da sağ çıkar insan.
+
+    Ve eğer ölüm, Allah yolunda görevini yaparken gelirse, bu bir felaket değil, bir ödüldür. Üç büyük sır saklıdır bunda:
+
+    Birincisi — Görev başında ölmek, şehitliktir. Ve şehitlik, rahmetin kapısını ardına kadar açar insana.
+    İkincisi — İnanan biri için ölüm, bilinmeyen karanlık bir çukur değil, Allah’a atılan bir adım, bir yakarış kadar yakındır.
+    Üçüncüsü — Orada, o büyük buluşmada, bu dünyada yolları ayrılmış nice dost, kardeş, ana, baba yeniden kavuşur. Kırılan dallar yeniden yeşerir. Bu dünyada mümkün olmayan birleşmeler, orada olur.
+
+    İmansız ruh, hep korkar ayrılıktan. Onun kalbinde boşluk vardır. Ama imanla yürüyen bilir ki, ölüm ayrılık değil, asıl kavuşmadır. O, yüreğini Allah’a teslim etmiştir. Ne ölümü küçümser, ne hayatı kutsallaştırır; çünkü bilir ki her ikisi de Allah’ın hükmündedir.
+
+    İşte bu yüzdendir ki, korkuya yenilenler, aslında kendi kalplerinin zincirlerine tutsaktır. Ama imanı olanlar, zincir tanımaz. Gider, görevini yapar. Ölürse şehittir, yaşarsa şereflidir. Allah’ın adını yüceltirken düşen bir beden, yerde değil gökte sayılır.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+157. **Ve eğer Allah yolunda öldürülür veya ölürseniz, Allah’ın mağfireti ve rahmeti insanların toplayabileceklerinden daha hayırlıdır.**
+
+    Allah yolunda şehit olmak veya ölmek, dünyanın tüm servetlerinden daha değerlidir. Ayette bir edebi incelik bulunur: "Siz" ifadesi iman sahibi müminlere, "onlar" ifadesi ise kâfirlerin bencilce biriktirdiği kazançlara işaret eder. Müminler, dünyevi zenginlik biriktirmek için yaşamazlar; onların hedefi Allah’ın mağfireti ve rahmetidir. Kâfirler ise yalnızca geçici servetler peşinde koşarlar. Ancak bu servetler, ebedi olan Allah’ın nimetlerinin yanında hiçbir değeri taşımaz. Müslümanın gerçek varlık gayesi, ahirette elde edeceği kalıcı kazançlardır.
+
+
+    Bir adam düşün, alnı ter içinde, elleri nasırlı; dağlardan topladığı odunları sırtına vurmuş, çocuklarına bir tas çorba götürmek için çırpınıyor. Ama yüreğinde bir sır var onun — çünkü o, Allah’ın yolunda yürümüş. Bir başka adam düşün şimdi, saraylar içinde yaşıyor, altınları saymakla bitmiyor, ama gönlü çorak bir toprak gibi, rahmetten, mağfiretten yoksun. İşte bu iki insanın farkını, bir ayet gibi anlatıyor bize kelam:  
+    Eğer bir mümin, Allah yolunda şehit düşerse ya da vadesi geldi de bu yolda canını teslim ederse — bil ki, Allah’ın ona vereceği bağış ve rahmet, şu dünyanın tüm altınlarından, gümüşlerinden, servetinden, kasasından, sarayından daha değerlidir.
+
+    Sözde bir incelik var, ama bu incelik, dağların yamaçlarından esen rüzgâr gibi tok bir sesle konuşuyor. Ayet önce “siz” diye sesleniyor; o yiğitlere, o yüreği imanla çarpanlara. Ama sonra “onların biriktirdiği” diyor. Yani kâfirlerin, kalbi taş gibi sertleşmişlerin topladıklarıyla kıyas yapılıyor. Neden? Çünkü imanlı adamın hedefi Allah’tır. Onun kazancı mağfirettir, rahmettir. Altın, gümüş onun elinde olsa da gönlünde yer etmez. Ama ötekinin gönlü, parayla mühürlüdür.
+
+    Mümin, bu dünyaya mal yığmak için gelmemiştir. Onun gözleri başka bir ufka bakar, kulağı başka bir çağrıyı dinler. O bilir ki, Allah’ın bir “bağışladım” deyişi, bütün sarayları, bütün hazineleri yerle bir eder. Ve o rahmet ki — bir ana kucağı gibi sarmalar şehidi. Bir gece vakti son nefesini verirse de, bir harbin tam ortasında kılıcı kırılırsa da, o artık Allah’a kavuşmuştur. Dünya ardında kalmıştır; ne malı ne mülkü arkasından gelmiştir.
+
+    Ama kâfir… O biriktirir. Sayar. Depolar. Ölüm geldiğinde neyi varsa ardında bırakır. Kalbi bomboş gider. Ne affa mazhar olur, ne rahmete. İşte ayetin diliyle anlatılan budur: Müminin Allah yolunda verdiği can, ötekinin ömür boyu biriktirdiği her şeyden yücedir. Çünkü biri ebediyete koşar, öteki geçiciliğe tutsaktır.
+
+    İşte bu yüzden, imanlı olanın bir tek duası, kâfirin bir ömür boyu tuttuğu defterden daha ağır basar. Ve bir tek şehit kanı, yeryüzünün en büyük servetinden daha kutsaldır.
+
+
+
+
+158. **Ve eğer ölürseniz ya da öldürülürseniz, İşte bakınız! bir araya getirilip toplanmanız Allah’adır.**
+
+
+
+
+
+159. **Onlara yumuşak davranman, Allah’ın rahmetindendir. Eğer sert ve katı yürekli olsaydın, çevrenden uzaklaşıp giderlerdi: Onların kusurlarını affet ve onlar için Allah’tan mağfiret dile ve anlık/güncel işlerde onlarla istişare et. Artık karar verdiğin zaman Allah’a tevekkül et. Çünkü Allah, kendisine tevekkül edenleri sever.**
+
+    Bir adam vardı; ne kılıcıyla korkuturdu, ne sesiyle titretirdi. Ama öyle bir yüreği vardı ki, taş olsa erirdi karşısında. Bir öfkeye karşı gülümseyerek durdu, bir ihaneti sabırla karşıladı. İnsanların hatalarını, dağ gibi omuzladı; ne yargıladı, ne aşağıladı. Yalnızca baktı gözlerinin ta içine ve affetmeyi bildi. İşte bu, Allah’ın ona verdiği rahmetin kendisiydi — yumuşaklıkla dokundu halkına, merhametle sardı etrafındakileri.
+
+    Savaştan dönmüştü Uhud’da; can kayıpları olmuş, yürekler paramparça, umutlar yerlere serilmişti. Yine de kimseyi azarlamadı. Kılıcını değil, kalbini öne sürdü. Çünkü o, sert olsaydı, bir dağ gibi eğilmez, bir kaya gibi kırılmaz olsaydı, halkı dağılır giderdi çevresinden. Ama o birleştirdi; sevgiyle, sabırla, rahmetle. Sertlik değil, anlayıştı onun silahı.
+
+    “Âlemlere rahmettir” dediler ona. Haklıydılar. Çünkü yalnızca kendi ümmetine değil, susuz kalan ceylana, yetim kalan çocuğa, un çuvalı taşımakta zorlanan yaşlı kadına da rahmetti. Kendisini vuranı affetti, sırtından vuranla dua etti, ona yüz çevireni beklemeyi bildi. Çünkü o biliyordu, kalpleri kazanan, asla kırmamayı öğrenendi.
+
+    Biri bir hata yapınca, göz ucuyla bakmadı ona; parmakla göstermedi. İçinden geçeni Allah’a söyledi: “Bağışla onları ya Rab.” Sonra döndü, o hatayı yapanla konuştu, istişare etti, fikrini aldı. O ki kendisine vahiy gelen bir peygamberdi; ama yine de halkını dinledi, onlara danıştı. Çünkü bilirdi, danışmak yüceltir, ortak akıl yıktığı dağın yerine şehir kurar.
+
+    Ve sonra kararını verdiğinde, sırtını dayadı Allah’a. Ne halkına, ne gücüne, ne zekâsına; yalnızca Rabbine. Çünkü bilirdi: Allah, O’na güveneni sever. Yani insan kendine değil, kararına değil, kararının sahibine — Allah’a güvenirse, dağlar bile yol verir önünden.
+
+    İşte böyle bir adamdı o. Yumuşaklıkla hükmeden, affetmeyle birleştiren, istişareyle yöneten, tevekkülle yürüyen. Halkın bağrından çıkmış, halkın yüreğine yerleşmişti. Ve hâlâ, çağlar geçse de, milyonların ruhu onun peşinden gider. Çünkü onun yürüdüğü yol, yumuşak bir kalbin yoludur. Ve o kalp, Allah’ın rahmetiyle çarpmıştır.
+
+
+
+
+160. **Eğer Allah size yardım ederse, size galip gelecek yoktur: Eğer O sizi yüzüstü bırakırsa, bundan sonra size kim yardım edebilir? O halde mü’minler Allah’a tevekkül etsinler.**
+
+
+
+
+
+
+161. **Hiçbir peygamber emanetine karşı yalancı olamaz. Kim bu kadar yalancı ise, O, kıyâmet gününde zimmete geçirdiğini geri verecektir; o zaman herkes -kazandığının- karşılığını alacaktır ve hiç kimse haksızlığa uğratılmayacaktır.**
+
+    Allah'ın peygamberleri, emanete hıyanet etmez ve hiçbir zaman aşağılık güdülerle hareket etmezler. Hz. Muhammed (s.a.v.), hayatının erken dönemlerinden itibaren "El-Emîn" (Güvenilir) olarak bilinirdi. Uhud Savaşı sonrası bazı münafıklar, ganimetin bölüşümü konusunda şüphe yaratmaya çalıştıysa da, bu tür alçakça iftiralar hiçbir zaman ciddiye alınmadı. Burada açıklanan genel ilkeler ebedi değer taşır: Peygamberlerin güdüleri yüce ve temizdir, hıyanet edenler ise manevi olarak en düşük seviyededir. Allah'ın gözünde insanların farklı dereceleri vardır ve liderlere karşı adil bir değerlendirme yapmak esastır. Eğer bir liderin dürüstlüğüne güveniyorsak, onu haksız yere eleştirmemeliyiz. Ancak liderin dürüst olmadığı ortaya çıkarsa, o liderlikten uzak tutulmalıdır.
+
+    Bir adam vardı; adı güvenle anılırdı, daha çocukken bile. Ne bir sözü boşa çıkardı, ne bir emanet yere düştü onun elinden. Ona “El-Emîn” dediler; çünkü eline bırakılan, can bile olsa, ona ihanet etmezdi. Gözleri dağ gibi bakardı, ama yüreği ovada açmış bir çiçekti. İnsan onun ardına düştü mü, sırtını yasladığı şey güven olurdu.  
+
+    Ama ne zaman ki hak ve doğru bir yerde kök salar, orada kör niyetliler başlarını kaldırır. Uhud’un tozu toprağı daha yere inmeden, içlerinde bir kıymık gibi duran bozguncular çıkıp iftiraya kalkıştılar. Dediler ki: “Ganimet adil paylaşılmadı.” Oysa ne ganimet görmüştü gözleri, ne mal. Onun gözünde mal da, mülk de, ün de bir hiçti; bir damla adaletin, bir zerre emanetin karşısında toprak bile utanırdı kendinden.
+
+    Kimi vardır, kendi kalbinin karalığını başkalarının alnına sürmek ister. İftira atan da budur; kendi hırsını, karşısındakinin üzerine boca eden. Ama halk bilir, toprağın dili vardır. O dil der ki: “Güneşin altında ne saklı kalır?” Ve halk, toprağın diliyle konuşur, onunla karar verir.
+
+    Peygamberler emanete hıyanet etmez, çünkü onların yürekleri Allah’ın terazisidir. O terazi, hırsı değil hakkı tartar. Kim ki ihanet eder, kıyamet günü o yükü sırtında taşır. Altınsa altın, iftiraysa iftira, her ne biriktirdiyse, ateş olup döner eline.
+
+    İşte burada söz bitmez. Burada söz ebedi olur. Çünkü bu hakikat, yalnız o gün değil, bu gün de geçerlidir:  
+    — Peygamber, halkı için yürür, kendisi için değil.  
+    — İhanet eden, kendi kalbine kazma vurur.  
+    — Lider dediğin, emanet taşıyandır; o emanet kırılırsa, halkın yüreği dağılır.  
+   
+
+    Eğer liderin yüreğine güveniyorsak, arkasından gideriz. Ama o güven kırılmışsa, onu başta tutmak, halkı da yokuşa sürmektir. Bu, ne kıssa, ne masaldır. Bu, halkın kendi ömrü kadar gerçektir.
+
+    Ve o adam – Hz. Muhammed – halkın gönlüne güveni işlemişti bir nakış gibi. O'nun arkasında yürüyenler, yalnız bir peygamberin değil, doğruluğun izini sürenlerdi. Ve o iz, zamanın rüzgârıyla silinmedi; hâlâ yeryüzünde taşların, dağların, yüreklerin üstünde durur.
+
+
+162. **Allah’ın rızasına uyan kimse, Allah’ın gazabını üzerine çeken ve varacağı yer cehennem olan kimse gibi midir?- Acılı bir sığınaktır o!**
+
+
+
+163. **Allah katında onlar çeşit çeşit cennetlerdedirler ve Allah onların yaptıklarını çok iyi görmektedir.**
+
+
+
+
+
+
+164. **Allah, müminlere kendi içlerinden Allah’ın âyetlerini okuyan, onları temize çıkaran, onlara Kitap ve hikmeti öğreten bir elçi göndermekle büyük bir lütufta bulunmuştur, halbuki bundan önce onlar apaçık bir sapıklık içindeydiler.**
+
+    "Allah’ın izniyle onları bozguna uğrattılar; ve Davut Golyat’ı öldürdü; Allah ona güç ve hikmet verdi ve ona dilediğini öğretti. Ve Allah, insanların bir topluluğunu diğeriyle kontrol etmeseydi/frenlemeseydi/durdurmasaydı, şüphesiz yeryüzü fesadla dolu olurdu: Ama Allah, alemlere karşı lütuf sahibidir." : Bakara 251
+
+
+165. **Ne! Size bir musibet isabet edince, düşmanlarınızı iki misliyle vurduğunuz halde, “Bu nereden?” diyorsunuz. Onlara de ki: “O, kendi tarafınızdandır/kendinizdendir: Allah her şeye kadirdir.”**
+
+    Uhud Savaşı’nda yaşanan gerileme, Müslümanlar için bir sınav ve imanlarını arındırma fırsatıydı. Bedir’de Mekkeliler’e iki kat daha büyük bir yenilgi tattırmış olsalar da, Uhud’daki sonuç onların emirlere itaatsizlik etmesi ve disiplini ihmal etmesi yüzünden kendilerine döndü. Yaşanan felaketi insanlar kendi hatalarına bağlamalı ve Allah’a yüklememelidir. Her şey Allah’ın izniyle gerçekleşir ancak insanlar, kendi eylemlerinin sorumluluğunu üstlenmelidir. Allah’ın yardımına layık olmak için sürekli çaba göstermek ve O’nun emirlerine uymak esastır.
+
+
+    Ve ne oldu? Bir felaketin ardından, “Bize bu nasıl oldu?” diye sordular. Halbuki, Bedir’de Mekkelilere verdikleri o büyük yenilgiyi hatırlasalar, her şeyin nasıl tersine döndüğünü daha iyi anlayacaklardı. Uhud, o büyük felaket, belki de bir gerileme gibi görünse de, aslında Allah’ın bir imtihanıydı. O gün, O’na inananların imanını sınamak, gönüllerini arındırmak, onları daha da güçlü kılmak için O’nun izniyle olmuştu.  
+
+    Müslümanlar, o savaşa giderken, birbirlerine verdiği sözlere sadık kalsalar, emirleri titizlikle uygulasalar, belki de bu yıkım hiç yaşanmayacaktı. Ama Allah, onlara unutmamaları gereken bir ders vermek istiyordu. Disiplin ve emirler, yalnızca kelimelerden ibaret değildi; bir araya gelip, bir kuvvet olabilmek, doğruyu yapabilmek için o emirler hayatta en sağlam dayanak olmalıydı. Çünkü ne zaman ki sadakatten, itaattan uzaklaşılır; ne zaman ki bir kişi kendi aklını, Allah’ın izniyle karşılaştırma yapmadan önce, kendi hevasına uyar, işte o zaman felaketin kendisi içimize girmeye başlar. 
+
+    O yüzden, yaşanan felaketi sadece dışarıda aramamak gerekir. İnsan kendi hatalarını, kendi gafletini, kendi disiplinsizliğini görmek zorundadır. Eğer bu felaketin arkasında bir sebep arıyorsak, o zaman itaatte eksik kaldığımız, Allah’ın emirlerine karşı kayıtsız davrandığımız için sorumlu olmalıyız. Başarı da, yenilgi de, nehir gibi, insanın ellerinden akar. Allah’ın gücü her şeyin üzerindedir; fakat insan, kendi amelleriyle O’na yaklaşmalıdır.  
+
+    Ve Allah, yardımını isteyenlere, O’na layık olanlara verir. Ama o yardım, tembelce bir dilek değil, çaba, azim ve sadakatle kazanılır. O zaman, her şeyin başlangıcı ve sonu Allah’ın izniyle olur, ama sorumluluğu üstlenen bizler oluruz. Bu derdi, bu zorluğu, bu imtihanı taşımak, nihayetinde bizim omuzlarımıza düşer.
+
+
+
 166. İki ordunun karşılaştığı gün başınıza gelenler, Allah’ın izniyle, mü’minleri denemek içindi,-
+
+
+
+
 167. Riyakarları da/Münafıkları da. Bunlara şöyle denildi: “Gelin, Allah yolunda savaşın veya hiç olmazsa düşmanı şehrinizden sürün.” “Eğer biz savaşmayı bilseydik, elbette size uyardık” dediler. Onlar o gün, imandan çok küfre daha yakındılar ve kalblerinde olmayanı ağızlarıyla söylüyorlardı; halbuki Allah, onların gizlediklerini bilir.
 168. Onlar, kendileri rahat rahat oturdukları halde öldürülen kardeşleri için: “Keşke bizi dinleselerdi öldürülmezlerdi” diyenlerdir. De ki: “Doğru iseniz, ölümü kendinizden uzaklaştırın.”
 169. Allah yolunda öldürülenleri sakın ölüler sanma. Hayır, onlar yaşarlar, Rableri katında rızıklarını bulurlar;
