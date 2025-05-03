@@ -44,6 +44,11 @@ def generate_page_html(posts, page_number=1):
             padding: 0.2em 0.4em;
             border-radius: 4px;
         }}
+        p {{
+            margin-top: 1em;
+            margin-bottom: 1em;
+            line-height: 1.7;
+        }}
     </style>
 </head>
 <body class='bg-gray-900 text-gray-100 font-sans p-6'>
@@ -69,7 +74,7 @@ def generate_page_html(posts, page_number=1):
         with open(md_file) as f:
             post_html = markdown.markdown(
                 f.read(),
-                extensions=["extra", "codehilite", "tables", "fenced_code"]
+                extensions=["extra", "codehilite", "tables", "fenced_code", "nl2br"]
             )
 
         with open(html_file, "w") as f_post:
@@ -99,6 +104,11 @@ def generate_page_html(posts, page_number=1):
             background-color: #374151;
             padding: 0.2em 0.4em;
             border-radius: 4px;
+        }}
+        p {{
+            margin-top: 1em;
+            margin-bottom: 1em;
+            line-height: 1.7;
         }}
     </style>
 </head>

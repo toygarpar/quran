@@ -48,6 +48,11 @@ html = f"""
         a:hover {{
             text-decoration: underline;
         }}
+         p {{
+            margin-top: 1em;
+            margin-bottom: 1em;
+            line-height: 1.7;
+        }}
     </style>
 </head>
 <body class='font-sans p-6'>
@@ -69,7 +74,7 @@ for post in data["posts"]:
     with open(md_file) as f:
         post_html = markdown.markdown(
             f.read(),
-            extensions=["extra", "codehilite", "tables", "fenced_code"]
+            extensions=["extra", "codehilite", "tables", "fenced_code", "nl2br"]
         )
 
     with open(html_file, "w") as f_post:
@@ -110,6 +115,11 @@ for post in data["posts"]:
         }}
         a:hover {{
             text-decoration: underline;
+        }}
+         p {{
+            margin-top: 1em;
+            margin-bottom: 1em;
+            line-height: 1.7;
         }}
     </style>
 </head>
