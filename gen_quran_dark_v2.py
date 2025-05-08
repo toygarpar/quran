@@ -74,7 +74,7 @@ for post in data["posts"]:
     with open(md_file) as f:
         post_html = markdown.markdown(
             f.read(),
-            extensions=["extra", "codehilite", "tables", "fenced_code", "nl2br"]
+            extensions=["extra", "codehilite", "tables", "fenced_code", "nl2br", "fenced_code", "footnotes", "sane_lists", "smarty"]
         )
 
     with open(html_file, "w") as f_post:
