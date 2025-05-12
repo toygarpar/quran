@@ -312,17 +312,17 @@ Evlilik, bir kazanç değil, bir emanet işidir. Adalet ister, vicdan ister. Kad
 25. **Sizden kim hür mü’min kadınları nikahlamaya gücü yetmiyorsa, sağ ellerinizin malik olduğu mümin kızlardan nikahlayabilirsiniz: Ve Allah, imanınız hakkında tam bilgi sahibidir. Siz birbirinizdensiniz/insan olarak eşit durumdasınız: Sahiplerinin izniyle onları evlenin ve mehirlerini makul bir şekilde onlara verin: İffetli olmalı, şehvet düşkünü olmamalı ve sevgili edinmemelidirler: nikâhlandıklarında, utanca düşerlerse, cezaları hür kadınlara verilen cezanın yarısı kadardır. Bu izin, içinizden günahtan korkanlar içindir; fakat ölçülü davranmanız sizin için daha hayırlıdır. Allah çok bağışlayandır, çok merhamet edendir.**
 
 
-İşte bir ayet ki, hem zamanın yükünü taşır hem insanın vicdanına dokunur. Yoksulun, eli dar olanın, gönlü sıkışanın hâline bakar da, ona yol açar. Özgür bir kadınla evlenmeye gücü yetmeyen kul için, Allah bir kapı aralar. Der ki: “Sahip olduklarınızdan, yani o savaşın, o kargaşanın, o esaretin içinden size düşen, ama yine de iman etmiş kadınlarla evlenin.”
+    İşte bir ayet ki, hem zamanın yükünü taşır hem insanın vicdanına dokunur. Yoksulun, eli dar olanın, gönlü sıkışanın hâline bakar da, ona yol açar. Özgür bir kadınla evlenmeye gücü yetmeyen kul için, Allah bir kapı aralar. Der ki: “Sahip olduklarınızdan, yani o savaşın, o kargaşanın, o esaretin içinden size düşen, ama yine de iman etmiş kadınlarla evlenin.”
 
-Ama bu öyle kolay bir iş değildir. “İman etmiş olacak,” diyor Allah. Çünkü iman, insanı insan eden cevherdir. Ve ardından ekliyor: “Siz birbirinizdensiniz.” Ne demek bu? Demek ki kimse kimseden üstün değil. Ne özgürlük, ne kölelik insanın özünden bir şey eksiltmez. Hepimiz aynı topraktanız. Aynı gökyüzünün altındayız.
+    Ama bu öyle kolay bir iş değildir. “İman etmiş olacak,” diyor Allah. Çünkü iman, insanı insan eden cevherdir. Ve ardından ekliyor: “Siz birbirinizdensiniz.” Ne demek bu? Demek ki kimse kimseden üstün değil. Ne özgürlük, ne kölelik insanın özünden bir şey eksiltmez. Hepimiz aynı topraktanız. Aynı gökyüzünün altındayız.
 
-Evlenirken onun gönlünü alın. Mal diye değil, insan diye görün onu. Ona çeyizini verin; ama pazarlık eder gibi değil, gönülden, hürmetle. O kadın iffetiyle yaşamalı. Gizli işlere bulaşmamalı. Şehvetle değil, insan onuruyla yürümeli bu yol. Eğer bir hata ederse de, cezası, toplumun şartları gözetilerek daha hafif olur. Çünkü onun yükü zaten ağırdır.
+    Evlenirken onun gönlünü alın. Mal diye değil, insan diye görün onu. Ona çeyizini verin; ama pazarlık eder gibi değil, gönülden, hürmetle. O kadın iffetiyle yaşamalı. Gizli işlere bulaşmamalı. Şehvetle değil, insan onuruyla yürümeli bu yol. Eğer bir hata ederse de, cezası, toplumun şartları gözetilerek daha hafif olur. Çünkü onun yükü zaten ağırdır.
 
-Ama Allah ne diyor sonunda? “Yine de kendinizi tutmanız, sabretmeniz daha hayırlıdır.” Çünkü evlilik bir mecburiyet değil, bir sorumluluktur. Çünkü insan, her işini arzuyla değil, akılla ve vicdanla yapmalıdır.
+    Ama Allah ne diyor sonunda? “Yine de kendinizi tutmanız, sabretmeniz daha hayırlıdır.” Çünkü evlilik bir mecburiyet değil, bir sorumluluktur. Çünkü insan, her işini arzuyla değil, akılla ve vicdanla yapmalıdır.
 
-Bu ayet, köleliğin hüküm sürdüğü bir çağın içinde doğdu. Ama amacı, o zinciri çözüp insanı ayağa kaldırmaktı. Diyor ki Allah: “Sabredin, direnin, zulme bulaşmayın. Ben affediciyim. Ben merhamet sahibiyim.”
+    Bu ayet, köleliğin hüküm sürdüğü bir çağın içinde doğdu. Ama amacı, o zinciri çözüp insanı ayağa kaldırmaktı. Diyor ki Allah: “Sabredin, direnin, zulme bulaşmayın. Ben affediciyim. Ben merhamet sahibiyim.”
 
-İşte böyle. Bu ayet, Allah’ın kuluna sadece yol göstermesi değil, ona yoldaş olmasıdır. Çünkü insan, bazen karanlık bir dehlizde yürür. Ve Allah, ona ışık olur.
+    İşte böyle. Bu ayet, Allah’ın kuluna sadece yol göstermesi değil, ona yoldaş olmasıdır. Çünkü insan, bazen karanlık bir dehlizde yürür. Ve Allah, ona ışık olur.
 
 
 26. **Allah, size açıklamak ve sizden öncekilerin hükümlerini size göstermek istiyor; ve O, size rahmetiyle yönelmeyi diler: Allah, her şeyi bilendir, hüküm ve hikmet sahibidir.**
@@ -347,42 +347,42 @@ Bu ayet, köleliğin hüküm sürdüğü bir çağın içinde doğdu. Ama amacı
 
 38. **Allah’a ve ahiret gününe inanmadıkları halde, insanlara gösteriş için mallarından harcayanlar: Kim şeytanı kendine yakın edinirse, o ne kötü yakındır!**
 
-Kuran, duyan kulaklara, titreyen yüreklere, adaletin izini süren vicdanlara seslenir. Sadaka verirken, hayır işlerken, elinden malını çıkarırken, niyetini yüreğinde tart diyor bu kitap. Bir elin verdiğini öteki el bilmeyecek ya hani, işte öyle bir sır, öyle bir sessizlikle yap diyor iyiliği. Çünkü Allah, sadece yapılanı değil, niyetin derinini de bilir. Kalbin nereye döndüğünü, gözün kimi kolladığını, kulağın hangi övgüye aç olduğunu bilir.
+    Kuran, duyan kulaklara, titreyen yüreklere, adaletin izini süren vicdanlara seslenir. Sadaka verirken, hayır işlerken, elinden malını çıkarırken, niyetini yüreğinde tart diyor bu kitap. Bir elin verdiğini öteki el bilmeyecek ya hani, işte öyle bir sır, öyle bir sessizlikle yap diyor iyiliği. Çünkü Allah, sadece yapılanı değil, niyetin derinini de bilir. Kalbin nereye döndüğünü, gözün kimi kolladığını, kulağın hangi övgüye aç olduğunu bilir.
 
-"Ey iman edenler! Mallarını insanlara gösteriş için harcayan, fakat Allah’a ve ahiret gününe inanmayanlar gibi, cömertliğinizi hatırlatarak veya inciterek sadakanızın hayrını hükümsüz kılmayın/boşa çıkarmayın. Onlar, üzerinde biraz toprak olan sert, çorak bir kaya gibidirler: Üzerine şiddetli bir yağmur yağar ve onu sadece çıplak bir taş bırakır. Kazandıkları şeylerle hiçbir şey yapamayacaklar. Ve Allah imanı/inancı reddedenlere hidayet etmez." : Bakara 264
+    "Ey iman edenler! Mallarını insanlara gösteriş için harcayan, fakat Allah’a ve ahiret gününe inanmayanlar gibi, cömertliğinizi hatırlatarak veya inciterek sadakanızın hayrını hükümsüz kılmayın/boşa çıkarmayın. Onlar, üzerinde biraz toprak olan sert, çorak bir kaya gibidirler: Üzerine şiddetli bir yağmur yağar ve onu sadece çıplak bir taş bırakır. Kazandıkları şeylerle hiçbir şey yapamayacaklar. Ve Allah imanı/inancı reddedenlere hidayet etmez." : Bakara 264
 
-Bu bir uyarıdır, hem de sertinden. Yüreğinde riya barındıran, gösterişle karışık bir iyilik yapanın, yaprağı kurur, kökü çürür. Allah için değil, alkış için verilmiş bir sadaka, sadaka değildir. Sadece bir hayaldir, bir yalandır. Kuru bir kabuktur.
+    Bu bir uyarıdır, hem de sertinden. Yüreğinde riya barındıran, gösterişle karışık bir iyilik yapanın, yaprağı kurur, kökü çürür. Allah için değil, alkış için verilmiş bir sadaka, sadaka değildir. Sadece bir hayaldir, bir yalandır. Kuru bir kabuktur.
 
-Ama bir de öyleleri var ki, Allah için verirler. Gönülleri sarsılmaz, elleri titremez, yüzlerinde bir pişmanlık gölgelenmez. Yaptıkları işin arkasında dururlar. Çünkü bilirler ki, Allah rızası için verilen şey boşa gitmez. 
+    Ama bir de öyleleri var ki, Allah için verirler. Gönülleri sarsılmaz, elleri titremez, yüzlerinde bir pişmanlık gölgelenmez. Yaptıkları işin arkasında dururlar. Çünkü bilirler ki, Allah rızası için verilen şey boşa gitmez. 
 
-Ama insan, işte insan… Gönlünü, niyetini bazen bir övgüye, bir takdire, bir alkışa satar. 
+    Ama insan, işte insan… Gönlünü, niyetini bazen bir övgüye, bir takdire, bir alkışa satar. 
 
-Bu söz bir tokattır. Sadece dışarıya oynayan, içini boş bırakan her kalbe iner. O iyilik değil, inkârdır. Çünkü Allah için olmayan hiçbir işin sonu yoktur.
+    Bu söz bir tokattır. Sadece dışarıya oynayan, içini boş bırakan her kalbe iner. O iyilik değil, inkârdır. Çünkü Allah için olmayan hiçbir işin sonu yoktur.
 
-Ameller, niyetlere göredir.
-Sadakayı verirken elin değil, yüreğin konuşmalı. Diline değil, kalbine sormalısın: “Bu amel kimin için?” Eğer cevabın Allah değilse, o sadaka ağırlık olur sana, bir yük olur. O yükü ahirette taşıyamazsın.
+    Ameller, niyetlere göredir.
+    Sadakayı verirken elin değil, yüreğin konuşmalı. Diline değil, kalbine sormalısın: “Bu amel kimin için?” Eğer cevabın Allah değilse, o sadaka ağırlık olur sana, bir yük olur. O yükü ahirette taşıyamazsın.
 
-Gösteriş, riyanın ta kendisidir. Riya, insanı Allah’tan uzaklaştırır. İçini boşaltır. 
+    Gösteriş, riyanın ta kendisidir. Riya, insanı Allah’tan uzaklaştırır. İçini boşaltır. 
 
-Kur’an, sadece malı dağıtanı değil, niyeti kirli olanı hedef alır. Çünkü bir insan Allah’a inanıyorsa, onun gözünde insanlar ne der değil, Allah ne buyurur vardır. Çünkü ahirete inanan bilir ki, esas ödül oradadır. Dünyevi övgü geçer, silinir. Ama Allah katındaki mükâfat kalıcıdır.
+    Kur’an, sadece malı dağıtanı değil, niyeti kirli olanı hedef alır. Çünkü bir insan Allah’a inanıyorsa, onun gözünde insanlar ne der değil, Allah ne buyurur vardır. Çünkü ahirete inanan bilir ki, esas ödül oradadır. Dünyevi övgü geçer, silinir. Ama Allah katındaki mükâfat kalıcıdır.
 
-Doğru sadaka gizlidir, sessizdir. Ne fakir incinir, ne veren böbürlenir. Böylesi bir sadaka, hem kalbi korur, hem insanı riyadan uzak tutar.
+    Doğru sadaka gizlidir, sessizdir. Ne fakir incinir, ne veren böbürlenir. Böylesi bir sadaka, hem kalbi korur, hem insanı riyadan uzak tutar.
 
-Sadakada niyet kirlenirse, amel solar. İşte bu yüzden, sadaka vermek sadece elin işi değil, yüreğin işidir.
+    Sadakada niyet kirlenirse, amel solar. İşte bu yüzden, sadaka vermek sadece elin işi değil, yüreğin işidir.
 
-Öyleyse, nasıl yapmalı bu işi?
+    Öyleyse, nasıl yapmalı bu işi?
 
-Niyetini temizle. Başlamadan önce, neden verdiğini kendine sor.
+    Niyetini temizle. Başlamadan önce, neden verdiğini kendine sor.
 
-Gizlice ver. Göze değil, Allah’a görünmek yeter.
+    Gizlice ver. Göze değil, Allah’a görünmek yeter.
 
-Kalbini yokla. Bu seninle Allah arasında mı, yoksa seninle toplum arasında mı?
+    Kalbini yokla. Bu seninle Allah arasında mı, yoksa seninle toplum arasında mı?
 
-Ahireti unutma. Bu dünya geçicidir. Kalıcı olan, Allah katında saklanandır.
+    Ahireti unutma. Bu dünya geçicidir. Kalıcı olan, Allah katında saklanandır.
 
-Sadakayı bir yük değil, bir şeref bil.
+    Sadakayı bir yük değil, bir şeref bil.
 
-Çünkü Allah her şeyi bilir. Ve Allah için olan her şey, boşa gitmez.
+    Çünkü Allah her şeyi bilir. Ve Allah için olan her şey, boşa gitmez.
 
 39. Allah’a ve ahiret gününe inansalar ve Allah’ın kendilerine verdiği rızıktan harcasalardı, üzerlerine ne yük olurdu? Oysa Allah, onları hakkıyla bilmektedir.
 40. Allah hiçbir şekilde zerre kadar zulmetmez: Eğer bir iyilik yapılırsa onu ikiye katlar ve katından büyük bir mükâfat verir.
@@ -408,11 +408,11 @@ Sadakayı bir yük değil, bir şeref bil.
 58. **Allah size, emanetleri/yetki, görev ve sorumlulukları ehline vermenizi ve insanla insan arasında hükmettiğiniz zaman adaletle hükmetmeniz emrediyor: Gerçekten O’nun size verdiği öğreti ne güzeldir! Çünkü Allah her şeyi işiten ve görendir.**
 
 
-"Emaneti, görevi, sorumluluğu, onu taşıyabilecek olana verin! Sert bir taşa tohum ekmeye kalkmayın, yükü boynu eğik eşeğe değil, ayakları sağlam atın sırtına yükleyin! İnsanlar arasında hükmederken, bıçağın keskin yüzü gibi dosdoğru olun. Adaletiniz, geceye düşen yıldırım gibi aydınlık, demir gibi katı olsun!
+    "Emaneti, görevi, sorumluluğu, onu taşıyabilecek olana verin! Sert bir taşa tohum ekmeye kalkmayın, yükü boynu eğik eşeğe değil, ayakları sağlam atın sırtına yükleyin! İnsanlar arasında hükmederken, bıçağın keskin yüzü gibi dosdoğru olun. Adaletiniz, geceye düşen yıldırım gibi aydınlık, demir gibi katı olsun!
 
-Allah’ın size öğrettiği bu yol, en doğru yoldur. O, her sözü duyar, her işi görür. Yoksulun ahını, zalimin zulmünü, mazlumun gözyaşını bilir. Kim haktan saparsa, onun sonu, kırılmış kılıcın ucu gibi kör ve işe yaramaz olur!"
+    Allah’ın size öğrettiği bu yol, en doğru yoldur. O, her sözü duyar, her işi görür. Yoksulun ahını, zalimin zulmünü, mazlumun gözyaşını bilir. Kim haktan saparsa, onun sonu, kırılmış kılıcın ucu gibi kör ve işe yaramaz olur!"
 
-Bu emri tutmayanlar, yıkık duvar gibi ayakta dursa da, bir gün yerle bir olur. Allah’ın adaleti, örsün altındaki demir gibi, her şeyi düzeltir!
+    Bu emri tutmayanlar, yıkık duvar gibi ayakta dursa da, bir gün yerle bir olur. Allah’ın adaleti, örsün altındaki demir gibi, her şeyi düzeltir!
 
 59. Ey iman edenler! Allah’a itaat edin, Peygamber’e ve aranızda sizden olan görevli yük sahiplerine/otorite yetkisi verilmişlere itaat edin. Eğer herhangi bir şeyde anlaşmazlığa düşerseniz, Allah’a ve ahiret gününe inanıyorsanız, onu Allah’a ve Resulü’ne götürün/atfedin/başvurun: Bu, en hayırlısı ve kesin hüküm için en uygun olanıdır.
 60. Senden öncekilere ve Sana gelen âyetlere inandıklarını beyan edenleri görmüyor musun? Gerçek arzuları, onu reddetmeleri emredilmiş olmasına rağmen, anlaşmazlıklarında hep birlikte Kötü Olan’a/tağuta hüküm için başvurmaktır. Ancak şeytanın arzusu, onları haktan çok uzaklaştırmaktır.
@@ -440,29 +440,29 @@ Bu emri tutmayanlar, yıkık duvar gibi ayakta dursa da, bir gün yerle bir olur
 
 82. **Onlar Kur’an’ı özenle düşünüp hiç dikkate almıyorlar mı? Eğer o, Allah’tan başkasının katından olsaydı, elbette onda birçok çelişkiler bulurlardı.**
 
-Ne kralın fermanı, ne zenginin destanı. Ne de bir bilgenin sözü. Bu kitap, halkın içinde ama halktan da öte; mazlumun sesi, adaletin terazisi. Ebediyete kadar ayakta kalacak, harf harf korunmuş.  Çünkü bu kitap, Allah’ın kelamıdır. Sözün özü, hakikatin kendisidir.
+    Ne kralın fermanı, ne zenginin destanı. Ne de bir bilgenin sözü. Bu kitap, halkın içinde ama halktan da öte; mazlumun sesi, adaletin terazisi. Ebediyete kadar ayakta kalacak, harf harf korunmuş.  Çünkü bu kitap, Allah’ın kelamıdır. Sözün özü, hakikatin kendisidir.
 
-Düşünün: Yirmi üç sene boyunca, farklı zamanlarda, farklı yerlerde, savaşta, barışta, kıtlıkta, bollukta gelmiş bu ayetler. Ama bir satırı ötekine ters düşmemiş. Hiçbir kelimesi kendisiyle kavga etmemiş. Bu, insanın harcı değil. Bu, ne bir şairin ne de bir dahinin işi. Bu, yeri göğü yaratanın sözü.
+    Düşünün: Yirmi üç sene boyunca, farklı zamanlarda, farklı yerlerde, savaşta, barışta, kıtlıkta, bollukta gelmiş bu ayetler. Ama bir satırı ötekine ters düşmemiş. Hiçbir kelimesi kendisiyle kavga etmemiş. Bu, insanın harcı değil. Bu, ne bir şairin ne de bir dahinin işi. Bu, yeri göğü yaratanın sözü.
 
-Dilleri döner bazıları. “Şurada çelişki var” derler. Ama ne anlarlar bağlamdan, ne bilirler hangi ayet ne vakitte inmiş. Bir hüküm savaş zamanı gelir, biri barış vaktinde. Sen zamanı karıştırırsan, söz sana ters görünür. Ama zamanını bilirsen, her şey yerine oturur. İşte o yüzden Allah, “Düşünmezler mi?” diye sorar insana. Çünkü Kur’an, akla gelmiştir, aklını çalıştırana hitap eder, ezberleyene değil.
+    Dilleri döner bazıları. “Şurada çelişki var” derler. Ama ne anlarlar bağlamdan, ne bilirler hangi ayet ne vakitte inmiş. Bir hüküm savaş zamanı gelir, biri barış vaktinde. Sen zamanı karıştırırsan, söz sana ters görünür. Ama zamanını bilirsen, her şey yerine oturur. İşte o yüzden Allah, “Düşünmezler mi?” diye sorar insana. Çünkü Kur’an, akla gelmiştir, aklını çalıştırana hitap eder, ezberleyene değil.
 
-Bilim dediler, gelişti dünya. Ama Kur’an, daha o zamanlardan insanın yaratılışını da söyledi, yıldızların doğuşunu da. Öyle laf olsun diye değil; özüyle, gerçeğiyle, belgeleriyle. Bilim neyi keşfettiyse, Kur’an’da izi vardı zaten. 
+    Bilim dediler, gelişti dünya. Ama Kur’an, daha o zamanlardan insanın yaratılışını da söyledi, yıldızların doğuşunu da. Öyle laf olsun diye değil; özüyle, gerçeğiyle, belgeleriyle. Bilim neyi keşfettiyse, Kur’an’da izi vardı zaten. 
 
-Ve bir de dil meselesi. Öyle bir söz ki bu, Arap’ın en büyük şairleri dilini yuttu. “Haydi, benzerini yazın bakalım” dendi. Ne cin başarabildi, ne insan. Bu kitap öyle bir söz ki, sözün en kudretlisi bile diz çöker önünde. Çünkü bu kitap, kudretin kendisinden doğmuş.
+    Ve bir de dil meselesi. Öyle bir söz ki bu, Arap’ın en büyük şairleri dilini yuttu. “Haydi, benzerini yazın bakalım” dendi. Ne cin başarabildi, ne insan. Bu kitap öyle bir söz ki, sözün en kudretlisi bile diz çöker önünde. Çünkü bu kitap, kudretin kendisinden doğmuş.
 
-Ve o kitap, baştan dedi: “Ben korunacağım.” Nice kitap tahrif oldu, nice yazı değişti. Ama bu kitap, ne kalemle oynandı ne de dille bozuldu. Duyan da ezberledi, yazan da sakladı. Sayfa sayfa, harf harf korundu.
+    Ve o kitap, baştan dedi: “Ben korunacağım.” Nice kitap tahrif oldu, nice yazı değişti. Ama bu kitap, ne kalemle oynandı ne de dille bozuldu. Duyan da ezberledi, yazan da sakladı. Sayfa sayfa, harf harf korundu.
 
-Ama mesele ne biliyor musun? Okuyup geçmek değil. Tefekkür edeceksin. Derin düşüneceksin. Kalbinle anlayacaksın. Kur’an, öyle her gözün görüp de her kulağın duyacağı bir kitap değildir. Onu ancak vicdanı temiz olan, önyargısını gömmüş olan kavrayabilir.
+    Ama mesele ne biliyor musun? Okuyup geçmek değil. Tefekkür edeceksin. Derin düşüneceksin. Kalbinle anlayacaksın. Kur’an, öyle her gözün görüp de her kulağın duyacağı bir kitap değildir. Onu ancak vicdanı temiz olan, önyargısını gömmüş olan kavrayabilir.
 
-Kur’an, sadece bir kitap değil, bir çağrıdır.
-Zulme karşı adaletin, yalana karşı gerçeğin, şaşkınlığa karşı doğru yolun sesi.
+    Kur’an, sadece bir kitap değil, bir çağrıdır.
+    Zulme karşı adaletin, yalana karşı gerçeğin, şaşkınlığa karşı doğru yolun sesi.
 
-“Şüphesiz bu Kur’an, insanlara doğru yolu gösterir.”
+    “Şüphesiz bu Kur’an, insanlara doğru yolu gösterir.”
 
-"Eğer kulumuza indirdiğimizden kuşku içindeyseniz, hadi onun benzerinden bir sure getirin. Allah dışındaki destekçilerinizi/tanıklarınızı da çağırın. Eğer doğru sözlü kişilerseniz… Eğer yapamazsanız -ki asla yapamayacaksınız- korkun o ateşten ki yakıtı insanlarla taşlardır. İnkâra sapanlar için hazırlanmıştır o.": Bakara
-Suresi 23-24
+    "Eğer kulumuza indirdiğimizden kuşku içindeyseniz, hadi onun benzerinden bir sure getirin. Allah dışındaki destekçilerinizi/tanıklarınızı da çağırın. Eğer doğru sözlü kişilerseniz… Eğer yapamazsanız -ki asla yapamayacaksınız- korkun o ateşten ki yakıtı insanlarla taşlardır. İnkâra sapanlar için hazırlanmıştır o.": Bakara
+    Suresi 23-24
 
-"Onlar, O Kur’an kendilerine geldiğinde onu inkâr edenlerdir. Hâlbuki o, benzeri bulunmaz bir kitaptır." : Fussilet Suresi 41
+    "Onlar, O Kur’an kendilerine geldiğinde onu inkâr edenlerdir. Hâlbuki o, benzeri bulunmaz bir kitaptır." : Fussilet Suresi 41
 
 83. Kendilerine asayiş veya korkuya dokunan bir şey/haber gelince onu ortaya dökerler/ifşa ederler/yayarlar. Eğer onu Rasûl’e veya içlerinden yetkili olanlara havale etselerdi, doğru araştırıcılar o şeyi/haberi doğrudan onlardan test ederlerdi/analizini yaparlardı. Allah’ın lütfu ve rahmeti üzerinizde olmasaydı, çok azınız dışında hepiniz şeytanın pençesine düşerdiniz.
 84. O halde Allah yolunda savaşın -yalnızca kendinizden sorumlu olduğunuz halde – ve müminleri harekete geçirin. Umulur ki Allah, kâfirlerin öfkesini bastırır/dizginler; Allah, güç ve azap bakımından en güçlü olandır.
@@ -475,11 +475,11 @@ Suresi 23-24
 
 90. **Ancak sizinle aranızda barış akdi bulunan bir topluluğa katılanlar veya sizinle ve kendi kavimleriyle savaşmaktan kendilerini alıkoyarak size yaklaşanlar müstesna. Allah dileseydi, onları size musallat ederdi ve sizinle savaşırlardı: O hâlde, eğer sizden uzaklaşırlar, sizinle savaşmazlar ve bunun yerine size barış güvenceleri gönderirlerse, o halde Allah onlara karşı size savaş için bir yol açmadı.**
 
-Unutulmasın ki, inananlarla antlaşma yapmış bir topluma sığınmış olanlar vardır. Onlar, savaş istememişlerdir. Silaha sarılmamış, kana susamamışlardır. Ve bir de öyleleri vardır ki, ne kendi halkına el kaldırabilmiş, ne de inananlara düşmanlık edebilmişlerdir. İçlerine sindirememişlerdir kardeş kanını. Ellerine kılıç alıp da inananlara karşı yürümemişlerdir. Susmuşlar, uzak durmuşlar, başlarını eğmişlerdir. Bu yüzden onlara ilişilmez. Bu yüzden onların üstüne yürünmez. Çünkü onlar barış demiştir. Çünkü onlar taraf olmamış, yangına körükle gitmemiştir.
+    Unutulmasın ki, inananlarla antlaşma yapmış bir topluma sığınmış olanlar vardır. Onlar, savaş istememişlerdir. Silaha sarılmamış, kana susamamışlardır. Ve bir de öyleleri vardır ki, ne kendi halkına el kaldırabilmiş, ne de inananlara düşmanlık edebilmişlerdir. İçlerine sindirememişlerdir kardeş kanını. Ellerine kılıç alıp da inananlara karşı yürümemişlerdir. Susmuşlar, uzak durmuşlar, başlarını eğmişlerdir. Bu yüzden onlara ilişilmez. Bu yüzden onların üstüne yürünmez. Çünkü onlar barış demiştir. Çünkü onlar taraf olmamış, yangına körükle gitmemiştir.
 
-Kur’an, işte bu adaleti koyar önümüze. “Onlara dokunmayın,” der. “Eğer savaşı istememişlerse, eğer size karşı bir kötülük taşımamışlarsa, yollarına gitmelerine izin verin.” Çünkü hak olan budur. Çünkü insan olan bunu yapar.
+    Kur’an, işte bu adaleti koyar önümüze. “Onlara dokunmayın,” der. “Eğer savaşı istememişlerse, eğer size karşı bir kötülük taşımamışlarsa, yollarına gitmelerine izin verin.” Çünkü hak olan budur. Çünkü insan olan bunu yapar.
 
-İsterse fırtınalar kopsun, isterse yeryüzü ikiye ayrılsın, bir insan, kan dökmek istemiyorsa, yüreği barış diyorsa, ona zorla savaş giydirilemez. Kur’an bunu söyler. Allah bunu emreder.
+    İsterse fırtınalar kopsun, isterse yeryüzü ikiye ayrılsın, bir insan, kan dökmek istemiyorsa, yüreği barış diyorsa, ona zorla savaş giydirilemez. Kur’an bunu söyler. Allah bunu emreder.
 
 91. Başkalarının da hem senin hem de kendi halklarının güvenini kazanmak istediğini göreceksin: Ne zaman fitneye geri gönderilseler, buna yenik düşüyorlar: eğer senden geri çekilmezler ve ellerini çekmenin yanı sıra sana barış garantisi vermezlerse, onları yakalayın ve bulduğunuz yerde öldürün: Onların hakkında size aleyhlerinde apaçık bir delil verdik.
 92. Asla bir mümin, bir mümini öldürmesin; Ancak yanlışlıkla olursa, tazminat gerekir: Bir kimse bir mümini öldürürse, bir mümin köle azat etmesi ve ölenin ailesine, onlar özgürce karşılıktan vazgeçmedikçe, tazminat vermesi farz kılınmıştır. Eğer ölen, sizinle savaş halinde olan bir kavimden olup da mü’min ise, mü’min bir köle azad etmesi yeterlidir. Eğer o, ittifak yaptığınız bir kavme mensupsa, ailesine tazminat ödenmeli ve mümin bir köle azat edilmelidir. Buna güç yetiremeyenlere, Allah’a tövbe etmeleri için iki ay peşpeşe oruç farz kılındı. Allah her şeyi bilir ve tamamen hikmet sahibidir.
@@ -499,49 +499,49 @@ Kur’an, işte bu adaleti koyar önümüze. “Onlara dokunmayın,” der. “E
 
 105. **Biz sana Kitab’ı hak olarak indirdik ki, insanlar arasında Allah’ın gösterdiği şekilde hükmedesin, bu yüzden kendi kabuklarına/benliklerine hıyanet edenler tarafından bir yandaş tutulma;**
 
-"De ki: “Ben, Rabbimden gelen apaçık bir âyet üzerinde çalışıyorum, fakat siz onu inkâr ediyorsunuz. Sizin acele gördüğünüz şey benim elimde değildir. Hüküm ancak Allah’ındır. O, doğruyu söyler ve O, hakimlerin en iyisi.”" : Enam 57
+    "De ki: “Ben, Rabbimden gelen apaçık bir âyet üzerinde çalışıyorum, fakat siz onu inkâr ediyorsunuz. Sizin acele gördüğünüz şey benim elimde değildir. Hüküm ancak Allah’ındır. O, doğruyu söyler ve O, hakimlerin en iyisi.”" : Enam 57
 
-Kur’an, yalnızca inananların ibadet kitabı değildir. O, insanın yeryüzünde neyle hükmedeceğini, hakla mı yoksa keyfîlikle mi karar vereceğini belirleyen, Allah’tan gelen yegâne ölçüdür. Bu ölçü, bir topluluğu ayakta tutar, adaleti yüceltir, zalimi sınırlandırır, mazluma nefes olur. Kur’an, indiği günden bugüne kadar, insanın sözüyle değil, Allah’ın kelamıyla hüküm kurulabileceğini ilan etmiştir.
+    Kur’an, yalnızca inananların ibadet kitabı değildir. O, insanın yeryüzünde neyle hükmedeceğini, hakla mı yoksa keyfîlikle mi karar vereceğini belirleyen, Allah’tan gelen yegâne ölçüdür. Bu ölçü, bir topluluğu ayakta tutar, adaleti yüceltir, zalimi sınırlandırır, mazluma nefes olur. Kur’an, indiği günden bugüne kadar, insanın sözüyle değil, Allah’ın kelamıyla hüküm kurulabileceğini ilan etmiştir.
 
-Hüküm Allah’ındır.
+    Hüküm Allah’ındır.
 
-Allah’ın hükmü bellidir, ortadadır. Onun dışında kalan her söz, ya eksiktir ya şaşıktır. İnsanın elinden çıkan kanunlar, çoğu zaman kuvvetliden yanadır. Ama Allah’ın hükmü, mazlumun yanındadır. Bu kelam, yeryüzündeki bütün zalimlerin kulağına çalınması gereken bir sözdür. Her kim Allah’ın hükmünü bırakır da başka yollarla adalet kurmaya kalkarsa, sonunda adaleti de unutur, insanlığı da.
+    Allah’ın hükmü bellidir, ortadadır. Onun dışında kalan her söz, ya eksiktir ya şaşıktır. İnsanın elinden çıkan kanunlar, çoğu zaman kuvvetliden yanadır. Ama Allah’ın hükmü, mazlumun yanındadır. Bu kelam, yeryüzündeki bütün zalimlerin kulağına çalınması gereken bir sözdür. Her kim Allah’ın hükmünü bırakır da başka yollarla adalet kurmaya kalkarsa, sonunda adaleti de unutur, insanlığı da.
 
-Kur’an Hakkı Ayakta Tutmak İçin İndirilmiştir.
+    Kur’an Hakkı Ayakta Tutmak İçin İndirilmiştir.
 
-Kur’an’ın indirilişi, bir toplumun vicdanı çürümeye yüz tuttuğunda, araya adaletin girmesi içindir. O, karanlığın ortasına bir nur gibi inmiştir. Her kelimesi hesaplı, her hükmü dengelidir. Bu hüküm, zengini kayırmaz, yoksulu ezmez. Anaya, babaya, yetime, borçluya, haklının hakkını verir. Faize karşı durur, zekâtla toplumu ayakta tutar. Kur’an’ın adaleti, kelimelerle değil, hayatla yazılmıştır.
+    Kur’an’ın indirilişi, bir toplumun vicdanı çürümeye yüz tuttuğunda, araya adaletin girmesi içindir. O, karanlığın ortasına bir nur gibi inmiştir. Her kelimesi hesaplı, her hükmü dengelidir. Bu hüküm, zengini kayırmaz, yoksulu ezmez. Anaya, babaya, yetime, borçluya, haklının hakkını verir. Faize karşı durur, zekâtla toplumu ayakta tutar. Kur’an’ın adaleti, kelimelerle değil, hayatla yazılmıştır.
 
-Kur’an her detayı tek tek anlatmaz. Ama ilkeleri öyle sağlam koyar ki, değişen zamana rağmen özü asla sarsılmaz. İnsan aklıyla değil, Allah’ın hükmüyle yol bulur ama bu yolun taşlarını döşemek de insana düşer. Kur’an, insana düşünmeyi, danışmayı ve en doğru kararı vermeyi emreder.
+    Kur’an her detayı tek tek anlatmaz. Ama ilkeleri öyle sağlam koyar ki, değişen zamana rağmen özü asla sarsılmaz. İnsan aklıyla değil, Allah’ın hükmüyle yol bulur ama bu yolun taşlarını döşemek de insana düşer. Kur’an, insana düşünmeyi, danışmayı ve en doğru kararı vermeyi emreder.
 
-Her hüküm, insana taşımayacağı kadar değil, yüklenebileceği kadar verilmiştir.
+    Her hüküm, insana taşımayacağı kadar değil, yüklenebileceği kadar verilmiştir.
 
-Adaletin Ölçüsü: İnsanların Değil, Allah’ın Terazisi.
+    Adaletin Ölçüsü: İnsanların Değil, Allah’ın Terazisi.
 
-Kur’an’ın adaleti, yalnız mahkemede değil, pazarda da, evde de, sokakta da yaşanır. Herkesin önünde terazisi vardır Allah’ın. Kimse kimseden üstün değildir. Soyla, servetle, unvanla kimse kendini başkasından yukarıda göremez.
+    Kur’an’ın adaleti, yalnız mahkemede değil, pazarda da, evde de, sokakta da yaşanır. Herkesin önünde terazisi vardır Allah’ın. Kimse kimseden üstün değildir. Soyla, servetle, unvanla kimse kendini başkasından yukarıda göremez.
 
-Kur’an’ın adaleti, yalnız kanunda değil, insanın kalbinde yaşar.
+    Kur’an’ın adaleti, yalnız kanunda değil, insanın kalbinde yaşar.
 
-Kur’an’ın Hükmü, Zamanla Eskimez, Evrenseldir.
+    Kur’an’ın Hükmü, Zamanla Eskimez, Evrenseldir.
 
-Kur’an’ın sözü, bir döneme değil, bütün insanlığa yazılmıştır. Ne zamanın modasıyla eskir, ne hükmü başka sistemlerle geçersiz olur. Çevreyi korumak da ondadır, kadınların hakkını savunmak da. Gelişen dünya, Kur’an’ın gerisinde değil, onun ışığında yol bulmalıdır.
+    Kur’an’ın sözü, bir döneme değil, bütün insanlığa yazılmıştır. Ne zamanın modasıyla eskir, ne hükmü başka sistemlerle geçersiz olur. Çevreyi korumak da ondadır, kadınların hakkını savunmak da. Gelişen dünya, Kur’an’ın gerisinde değil, onun ışığında yol bulmalıdır.
 
-Kur’an’ın Hükümleri Yanlış Anlamalara Kurban Edilemez.
+    Kur’an’ın Hükümleri Yanlış Anlamalara Kurban Edilemez.
 
-Kur’an’ın bazı hükümleri, bilmeyenlerin elinde eğilip bükülmeye çalışılır. Oysa her hükmün bir zemini, her ayetin bir bağlamı vardır. Hudud cezaları, delilsiz uygulanmaz. Miras hükümleri, adaletsizlik değil, bir toplumun yükünü dengelemek içindir. Her hükmü anlamak için akıl, ilim, sabır ve vicdan gerekir.
+    Kur’an’ın bazı hükümleri, bilmeyenlerin elinde eğilip bükülmeye çalışılır. Oysa her hükmün bir zemini, her ayetin bir bağlamı vardır. Hudud cezaları, delilsiz uygulanmaz. Miras hükümleri, adaletsizlik değil, bir toplumun yükünü dengelemek içindir. Her hükmü anlamak için akıl, ilim, sabır ve vicdan gerekir.
 
-Kur’an, Hakkı Ayakta Tutan Kitaptır.
+    Kur’an, Hakkı Ayakta Tutan Kitaptır.
 
-Kur’an, Allah’ın kullarına verdiği emanettir. Bu emanet, sadece arapça telaffuz etmek için değil, sokakta, mahkemede, çarşıda uygulanmak içindir. Kim bu kitabın hükmüyle hükmederse, zulmü alt eder. Kim bu kitabı hayatının dışına atarsa, önce vicdanını kaybeder.
+    Kur’an, Allah’ın kullarına verdiği emanettir. Bu emanet, sadece arapça telaffuz etmek için değil, sokakta, mahkemede, çarşıda uygulanmak içindir. Kim bu kitabın hükmüyle hükmederse, zulmü alt eder. Kim bu kitabı hayatının dışına atarsa, önce vicdanını kaybeder.
 
-Kur’an, bir inançtan çok daha fazlasıdır. O, insanı insan yapan, toplumu ayakta tutan, karanlığı aydınlatan bir adalet meşalesidir.
+    Kur’an, bir inançtan çok daha fazlasıdır. O, insanı insan yapan, toplumu ayakta tutan, karanlığı aydınlatan bir adalet meşalesidir.
 
-Din üstüne konuşmak öyle herkesin harcı değildir. Bu işin tek sahibi vardır: Allah. Sözü söyleyen O’dur, hükmü koyan da. İnsan, ne kadar bilse de, ne kadar iddia etse de, eğer dili Kur’an’la konuşmuyorsa, söylediği kendi sözüdür, Allah’ın değil.
+    Din üstüne konuşmak öyle herkesin harcı değildir. Bu işin tek sahibi vardır: Allah. Sözü söyleyen O’dur, hükmü koyan da. İnsan, ne kadar bilse de, ne kadar iddia etse de, eğer dili Kur’an’la konuşmuyorsa, söylediği kendi sözüdür, Allah’ın değil.
 
-Birinin ağzından çıkan “din” sözü, Kur’an’a yaslanıyorsa doğrudur. Yok eğer kendi aklından, çıkarından, hevesinden konuşuyorsa, o söz Allah’a değil, insana aittir.
+    Birinin ağzından çıkan “din” sözü, Kur’an’a yaslanıyorsa doğrudur. Yok eğer kendi aklından, çıkarından, hevesinden konuşuyorsa, o söz Allah’a değil, insana aittir.
 
-Peygamber bile — ki o Allah’ın seçtiğidir — halka dini anlatırken kendi nefsinden bir şey söylemedi. Onun dili Allah’ın kelamını dillendirdi. O, Allah’ın indirdiğiyle hükmetti, çünkü Allah onu bu yüzden seçti, bu yüzden kitap indirdi.
+    Peygamber bile — ki o Allah’ın seçtiğidir — halka dini anlatırken kendi nefsinden bir şey söylemedi. Onun dili Allah’ın kelamını dillendirdi. O, Allah’ın indirdiğiyle hükmetti, çünkü Allah onu bu yüzden seçti, bu yüzden kitap indirdi.
 
-Kitap, insanlık adaletle yaşasın, zulme uğramasın, doğruyla yanlış birbirine karışmasın diye indi. Kim bu kitabı bırakıp başka sözlere tutunursa, er ya da geç, haktan sapar, adaleti çürütür.
+    Kitap, insanlık adaletle yaşasın, zulme uğramasın, doğruyla yanlış birbirine karışmasın diye indi. Kim bu kitabı bırakıp başka sözlere tutunursa, er ya da geç, haktan sapar, adaleti çürütür.
 
 
 
@@ -562,67 +562,67 @@ Kitap, insanlık adaletle yaşasın, zulme uğramasın, doğruyla yanlış birbi
 
 119. **“Onları saptıracağım ve onlarda kuruntular/yanlış arzular yaratacağım; hayvanların kulaklarını kesmelerini ve Allah’ın yarattığı güzel tabiatı bozmalarını emredeceğim.” Kim Allah’ı bırakıp şeytanı dost edinirse, kesinlikle apaçık bir hüsrana uğramıştır.**
 
-O şeytan dedikleri, insanın kalbine çöreklenen, usul usul aklını kemiren, gözünü boyayan bir beladır. Kur’an, bu belanın adını koymuş: vesvese... Fısıltı gibi gelir, ama sonunda yürekleri taş eder. Şeytan dediğin, düşmanların en sinsisi; silahı da kılıç değil, sözdür, kuşkudur, yaldızlı yalanlardır.
+    O şeytan dedikleri, insanın kalbine çöreklenen, usul usul aklını kemiren, gözünü boyayan bir beladır. Kur’an, bu belanın adını koymuş: vesvese... Fısıltı gibi gelir, ama sonunda yürekleri taş eder. Şeytan dediğin, düşmanların en sinsisi; silahı da kılıç değil, sözdür, kuşkudur, yaldızlı yalanlardır.
 
-Kur’an der ki, bu alçak vesvese verir. Kulağının dibinden konuşur. “Ya yanlış yaparsan?”, “Ya kabul olunmazsa?” diye sorar durur. Oysa Allah, samimiyeti bilir; şeytansa şüphe eker. Şüpheyle, ibadeti külfet gibi gösterir. Salatta aklı karıştırır, oruçta niyeti sorgulatır. Kalbin içine işleyen, görünmeyen bir pas gibi yayılır.
+    Kur’an der ki, bu alçak vesvese verir. Kulağının dibinden konuşur. “Ya yanlış yaparsan?”, “Ya kabul olunmazsa?” diye sorar durur. Oysa Allah, samimiyeti bilir; şeytansa şüphe eker. Şüpheyle, ibadeti külfet gibi gösterir. Salatta aklı karıştırır, oruçta niyeti sorgulatır. Kalbin içine işleyen, görünmeyen bir pas gibi yayılır.
 
-Sonra arzuları kaşır. İnsanın en zayıf yerinden girer: tutkularından. Kur’an’da yazar: “Onlara kuruntular fısıldarım,” der şeytan. İnsana, olmayacak şeyleri güzel gösterir. Bir fani zengin olacakmış, herkes onu sevecekmiş. Bir öbürü içkiyle derdini unutacakmış. Bir başkası haramla doymayı şeref sayacakmış... Şeytan bunların hepsini, insana kendi iç sesiymiş gibi fısıldar.
+    Sonra arzuları kaşır. İnsanın en zayıf yerinden girer: tutkularından. Kur’an’da yazar: “Onlara kuruntular fısıldarım,” der şeytan. İnsana, olmayacak şeyleri güzel gösterir. Bir fani zengin olacakmış, herkes onu sevecekmiş. Bir öbürü içkiyle derdini unutacakmış. Bir başkası haramla doymayı şeref sayacakmış... Şeytan bunların hepsini, insana kendi iç sesiymiş gibi fısıldar.
 
-Bir de kavga çıkarır, kin sokar insanların arasına. Kur’an, içkiyle kumarın şeytanın oyunu olduğunu söyler. Düşmanlık eker, Kuran'dan, salattan, Allah’ı anmaktan uzaklaştırır. Çünkü şeytan bilir ki, zikir olan yerde onun hükmü geçmez.
+    Bir de kavga çıkarır, kin sokar insanların arasına. Kur’an, içkiyle kumarın şeytanın oyunu olduğunu söyler. Düşmanlık eker, Kuran'dan, salattan, Allah’ı anmaktan uzaklaştırır. Çünkü şeytan bilir ki, zikir olan yerde onun hükmü geçmez.
 
-Ama asıl marifeti nedir biliyor musun? Günahı normalleştirmek. "Herkes yapıyor", der. "Bu çağda kim neye dikkat ediyor ki?" der. Kalbi katılaştırır, kulun utancını çalar. Zina eden utanmaz olur, yalan söyleyen gözünü kaçırmaz olur. Çünkü artık kötülük güzel görünmeye başlar.
+    Ama asıl marifeti nedir biliyor musun? Günahı normalleştirmek. "Herkes yapıyor", der. "Bu çağda kim neye dikkat ediyor ki?" der. Kalbi katılaştırır, kulun utancını çalar. Zina eden utanmaz olur, yalan söyleyen gözünü kaçırmaz olur. Çünkü artık kötülük güzel görünmeye başlar.
 
-Bir de Allah’ın merhametini kullanır. Der ki: “Allah affedicidir, nasılsa bağışlar.” Böylece insan günahı alışkanlık eder, tövbeyi erteler. Kur’an uyarır: Affa sığınmak başka şey, suçu alışkanlık etmek başka…
+    Bir de Allah’ın merhametini kullanır. Der ki: “Allah affedicidir, nasılsa bağışlar.” Böylece insan günahı alışkanlık eder, tövbeyi erteler. Kur’an uyarır: Affa sığınmak başka şey, suçu alışkanlık etmek başka…
 
-Ve unutma: şeytan sadece çağırır. Zorla yaptırmaz hiçbir şeyi. "Ben çağırdım, siz geldiniz," der kıyamet günü. İnsan kendi adımını kendi atar. Şeytan yol gösterir, ama yürümek insana kalır. Kur’an açık söyler: “Şeytanın, ancak onunla dost olanlara etkisi vardır.”
+    Ve unutma: şeytan sadece çağırır. Zorla yaptırmaz hiçbir şeyi. "Ben çağırdım, siz geldiniz," der kıyamet günü. İnsan kendi adımını kendi atar. Şeytan yol gösterir, ama yürümek insana kalır. Kur’an açık söyler: “Şeytanın, ancak onunla dost olanlara etkisi vardır.”
 
-O büyük gün geldiğinde, şeytan ardına bile bakmaz. "Ben karışmam," der. "Ben sadece söyledim, siz istediniz," der. İşte o zaman insan yalnız kalır. Ne dostu kalır, ne bahanesi...
+    O büyük gün geldiğinde, şeytan ardına bile bakmaz. "Ben karışmam," der. "Ben sadece söyledim, siz istediniz," der. İşte o zaman insan yalnız kalır. Ne dostu kalır, ne bahanesi...
 
-Peki ne yapmalı? Kur’an açık yollar sunar. Allah’a sığınmalı. Zikretmeli. Kur’an okumalı. Dua etmeli. Kalbini diri tutmalı. Tövbe etmeli. Çünkü bu bir savaş değil, bu bir büyük mücadeledir: Cihad-ı Ekber. İnsanın kendi nefsine, vesveseye, yalana, riyaya karşı açtığı savaş.
+    Peki ne yapmalı? Kur’an açık yollar sunar. Allah’a sığınmalı. Zikretmeli. Kur’an okumalı. Dua etmeli. Kalbini diri tutmalı. Tövbe etmeli. Çünkü bu bir savaş değil, bu bir büyük mücadeledir: Cihad-ı Ekber. İnsanın kendi nefsine, vesveseye, yalana, riyaya karşı açtığı savaş.
 
-“Kim Allah’a sarılırsa, onun için korku yoktur.”
-İşte o zaman şeytan fısıldasa da ulaşamaz. O zaman insan düşmez, yolunu şaşırmaz. Allah’ı unutmayan, şeytanı da unutur. Gerçek kurtuluş, işte budur.
+    “Kim Allah’a sarılırsa, onun için korku yoktur.”
+    İşte o zaman şeytan fısıldasa da ulaşamaz. O zaman insan düşmez, yolunu şaşırmaz. Allah’ı unutmayan, şeytanı da unutur. Gerçek kurtuluş, işte budur.
 
 
 120. **Şeytan onlara vaatlerde bulunur ve onlarda kuruntular/yanlış arzular yaratır. Ancak şeytanın vaatleri bir aldatmacadan başka bir şey değildir.**
 
-Bu şeytan dedikleri var ya, insanın içine sızar da bir fısıltı gibi kulağına sokulur. Ne bağırır, ne çağırır. Bir gölge gibi gelir, bir yel gibi geçer. Ama o geçtiği yerde iz bırakır, akıl almaz bir iz... Öyle büyük hilebazdır ki, yalanı hakikat gibi gösterir. Sözle vurmaz, umutla vurur. “Olur,” der, “Yaparsan çok büyük adam olursun.” “Kimseye bir şey deme, bu işi yaparsan zengin olursun.” “Hem Allah affeder, sen gönlünü ferah tut,” der. Ve insan bu lafları duydukça, yüreği kabarır, gözünü karanlık basar.
+    Bu şeytan dedikleri var ya, insanın içine sızar da bir fısıltı gibi kulağına sokulur. Ne bağırır, ne çağırır. Bir gölge gibi gelir, bir yel gibi geçer. Ama o geçtiği yerde iz bırakır, akıl almaz bir iz... Öyle büyük hilebazdır ki, yalanı hakikat gibi gösterir. Sözle vurmaz, umutla vurur. “Olur,” der, “Yaparsan çok büyük adam olursun.” “Kimseye bir şey deme, bu işi yaparsan zengin olursun.” “Hem Allah affeder, sen gönlünü ferah tut,” der. Ve insan bu lafları duydukça, yüreği kabarır, gözünü karanlık basar.
 
-İşte budur şeytanın oyunu. Hayal kurdurur, kuruntuyla büyütür insanı. Herkesin içinde bir boşluk vardır, bir arayış, bir eksik. Şeytan tam oraya dokunur.
-“Senin zamanın gelecek,” der.
-“Biraz daha dayan, biraz daha bastır, hak ettiğini alacaksın.”
-Ama insan alacağını sanırken, kendini satmıştır. Hem de ucuza...
+    İşte budur şeytanın oyunu. Hayal kurdurur, kuruntuyla büyütür insanı. Herkesin içinde bir boşluk vardır, bir arayış, bir eksik. Şeytan tam oraya dokunur.
+    “Senin zamanın gelecek,” der.
+    “Biraz daha dayan, biraz daha bastır, hak ettiğini alacaksın.”
+    Ama insan alacağını sanırken, kendini satmıştır. Hem de ucuza...
 
-Zenginlik mi vaat etti sana? Haksızlıkla, başkasının hakkıyla mı?
-Mutluluk mu vaat etti? Haramın gölgesinde mi?
-İtibar mı vaat etti? Gururla, kibirle mi?
+    Zenginlik mi vaat etti sana? Haksızlıkla, başkasının hakkıyla mı?
+    Mutluluk mu vaat etti? Haramın gölgesinde mi?
+    İtibar mı vaat etti? Gururla, kibirle mi?
 
-Kimi paranın, kimi şehvetin, kimi şöhretin ardına düşer. “Kimse bilmez,” der. “Yapsan ne olur?” der. “Sen bir kere yaşarsın,” der. Ama insan o bir kereyi kendine harcar, ömrünü karartır, ahiretini yitirir. O ümit dedikleri, aslında bir kandırmacadır. Şeytan, insanın arzularını şişirir, büyütür, çarpıtır. Herkes yapıyor der. Oysa herkes uçuruma yürürken, yürümek erdem değildir.
+    Kimi paranın, kimi şehvetin, kimi şöhretin ardına düşer. “Kimse bilmez,” der. “Yapsan ne olur?” der. “Sen bir kere yaşarsın,” der. Ama insan o bir kereyi kendine harcar, ömrünü karartır, ahiretini yitirir. O ümit dedikleri, aslında bir kandırmacadır. Şeytan, insanın arzularını şişirir, büyütür, çarpıtır. Herkes yapıyor der. Oysa herkes uçuruma yürürken, yürümek erdem değildir.
 
-Kuruntu dediği, insanın içindeki zehir gibidir. Görünmez ama işler. Hakla bâtılı karıştırır. Doğruyu yanlış gösterir. Haramı meşru gibi süsler. Oyun kurar, kalbi yorar. Çünkü şeytan aldatır. İnsan da aldanmaya hazırsa, birlikte düşerler.
+    Kuruntu dediği, insanın içindeki zehir gibidir. Görünmez ama işler. Hakla bâtılı karıştırır. Doğruyu yanlış gösterir. Haramı meşru gibi süsler. Oyun kurar, kalbi yorar. Çünkü şeytan aldatır. İnsan da aldanmaya hazırsa, birlikte düşerler.
 
-Şimdi sor kendine:
-Şeytan sana ne vaat etti?
-Neyi alacağını söyledi, neyi feda ettirdi?
+    Şimdi sor kendine:
+    Şeytan sana ne vaat etti?
+    Neyi alacağını söyledi, neyi feda ettirdi?
 
-Hesap günü geldiğinde, o sinsi dost kaçar. Kaçarken de şöyle der:
+    Hesap günü geldiğinde, o sinsi dost kaçar. Kaçarken de şöyle der:
 
-Ve iş bitirilince şeytan der ki: “Size hak va’d eden Allah’tır. Ben de söz verdim, fakat size verdiğim sözden caydım. Benim ancak sizi çağırmaktan başka bir yetkim/sultam yoktu, siz de beni dinlediniz.” “Öyleyse beni kınamayın, kendi nefislerinizi kınayın. Ben sizin feryadınıza kulak veremem, siz de benim feryadımı duyamazsınız. Ben sizin beni Allah’a ortak koşmanızı reddediyorum. Zalimler için elem verici bir azap vardır.” : İbrahim 22
+    Ve iş bitirilince şeytan der ki: “Size hak va’d eden Allah’tır. Ben de söz verdim, fakat size verdiğim sözden caydım. Benim ancak sizi çağırmaktan başka bir yetkim/sultam yoktu, siz de beni dinlediniz.” “Öyleyse beni kınamayın, kendi nefislerinizi kınayın. Ben sizin feryadınıza kulak veremem, siz de benim feryadımı duyamazsınız. Ben sizin beni Allah’a ortak koşmanızı reddediyorum. Zalimler için elem verici bir azap vardır.” : İbrahim 22
 
-İşte o zaman anlarsın: Sen seçtin. Sen yürüdün. O sadece yön gösterdi. Ama yolu sen tuttun. O sadece kandırdı. Ama razı olan sendin.
+    İşte o zaman anlarsın: Sen seçtin. Sen yürüdün. O sadece yön gösterdi. Ama yolu sen tuttun. O sadece kandırdı. Ama razı olan sendin.
 
-Şeytanın bir başka hilesi daha vardır: Günahı küçültmek. “Allah affeder,” der. Evet, affeder. Ama sen af dilemeden, sen o yanlışı sürdürürken, affın ne kıymeti olur? Şeytan, insanın affı istismar etmesini ister. Ve bu, en alçak oyunudur. Allah’ın rahmetini, günahın örtüsüne dönüştürür.
+    Şeytanın bir başka hilesi daha vardır: Günahı küçültmek. “Allah affeder,” der. Evet, affeder. Ama sen af dilemeden, sen o yanlışı sürdürürken, affın ne kıymeti olur? Şeytan, insanın affı istismar etmesini ister. Ve bu, en alçak oyunudur. Allah’ın rahmetini, günahın örtüsüne dönüştürür.
 
-Ama unutma:
-Şeytanın gücü yoktur. Sadece konuşur. Sadece kandırır.
-Asıl güç, Allah’tadır.
-Kim Allah’a sarılırsa, şeytan ona yaklaşamaz.
+    Ama unutma:
+    Şeytanın gücü yoktur. Sadece konuşur. Sadece kandırır.
+    Asıl güç, Allah’tadır.
+    Kim Allah’a sarılırsa, şeytan ona yaklaşamaz.
 
-Allah, cennet ve mağfiret vaat eder. Şeytan ise ateşi ve pişmanlığı.
+    Allah, cennet ve mağfiret vaat eder. Şeytan ise ateşi ve pişmanlığı.
 
 
-Şeytanın yolunu seçen, sonunda yanlız kalır. Hem dünyada hem mahşerde.
-Ama Allah’ın yolunu seçen, dara düştüğünde de bir başına kalmaz.
+    Şeytanın yolunu seçen, sonunda yanlız kalır. Hem dünyada hem mahşerde.
+    Ama Allah’ın yolunu seçen, dara düştüğünde de bir başına kalmaz.
 
 
 121. Aldatanlarının barınacakları yer Cehennem’dir ve oradan hiçbir çıkış yolu bulamayacaklardır.
@@ -634,13 +634,13 @@ Ama Allah’ın yolunu seçen, dara düştüğünde de bir başına kalmaz.
 
 126. **Ancak göklerde ve yerde her şey Allah’ındır: O, her şeyi kuşatandır.**
 
-Şu uçsuz bucaksız evrende ne varsa—göklerde, yerde, dağda, denizde, insanda, hayvanda—hepsi belli bir düzene bağlanmış. Ne bir yıldız yolunu şaşırır, ne bir yaprak zamanı gelmeden düşer. Her şey yerli yerindedir. Her şeyin bir hesabı, bir ölçüsü, bir vakti vardır. Bu düzen rastgele değildir. Bu ahenk, kendiliğinden doğmaz.
+    Şu uçsuz bucaksız evrende ne varsa—göklerde, yerde, dağda, denizde, insanda, hayvanda—hepsi belli bir düzene bağlanmış. Ne bir yıldız yolunu şaşırır, ne bir yaprak zamanı gelmeden düşer. Her şey yerli yerindedir. Her şeyin bir hesabı, bir ölçüsü, bir vakti vardır. Bu düzen rastgele değildir. Bu ahenk, kendiliğinden doğmaz.
 
-Bunu kuran, bunu yürüten bir kudret vardır. O kudret, Allah’ın ilminden gelir. Her şeyi bilen O’dur. Görmediğimiz gizli köşeleri, içimize doğan düşünceleri, daha biz niyet etmeden kalbimizde beliren arzuları bilir. O’nun bilgisi, denizlerin dibini de sarar, yıldızların ötesini de.
+    Bunu kuran, bunu yürüten bir kudret vardır. O kudret, Allah’ın ilminden gelir. Her şeyi bilen O’dur. Görmediğimiz gizli köşeleri, içimize doğan düşünceleri, daha biz niyet etmeden kalbimizde beliren arzuları bilir. O’nun bilgisi, denizlerin dibini de sarar, yıldızların ötesini de.
 
-İrade O’ndadır; neyi dilerse o olur. Kudret O’ndadır; neye “ol” derse, o hemen oluverir. Gök kubbe O’nun sözüyle dimdik durur. Yeryüzü O’nun takdiriyle meyve verir. İnsan O’nun lütfuyla nefes alır, adım atar, düşünür.
+    İrade O’ndadır; neyi dilerse o olur. Kudret O’ndadır; neye “ol” derse, o hemen oluverir. Gök kubbe O’nun sözüyle dimdik durur. Yeryüzü O’nun takdiriyle meyve verir. İnsan O’nun lütfuyla nefes alır, adım atar, düşünür.
 
-Bu evren, Allah’ın ilminden, iradesinden, kudretinden bir damla gösterir bize. Gören göz, düşünen akıl için bu yeter de artar bile.
+    Bu evren, Allah’ın ilminden, iradesinden, kudretinden bir damla gösterir bize. Gören göz, düşünen akıl için bu yeter de artar bile.
 
 
 127. Kadınlar hakkında sana öğüt soruyorlar de ki: Allah, onlar hakkında size şöyle öğüt veriyor: Kendilerine farz payları vermediğiniz halde nikâhlamak istediğiniz kadınların yetimlerine dair, zayıf ve mazlum/baskılanmış çocuklar hakkında da Kitap’ta size okunanları hatırlayın; yetimlere adalet için dik durmanız gerekmektedir/dik durunuz. Yaptığınız hiçbir iyilik yoktur ki, Allah onu hakkıyla bilmesin.
@@ -669,7 +669,7 @@ Bu evren, Allah’ın ilminden, iradesinden, kudretinden bir damla gösterir biz
 
 149. **Bir iyiliği açığa vursanız da, gizleseniz de, bir kötülüğü bağışlayarak örtseniz de, şüphesiz Allah, günahları örter ve ahlâki hüküm vermede/değerlerin yargılanmasında güç yetirendir.**
 
-Afüv: Affeden, hataları ve günahları bağışlayan
+    Afüv: Affeden, hataları ve günahları bağışlayan
 
 
 150. Allah’ı ve elçilerini inkar edenler ve “Bazısına inanır, bazısını inkar ederiz” diyerek Allah’ı elçilerinden ayırmak isteyenler: Ve yarı yolda kalmak isteyenler, –
@@ -689,21 +689,21 @@ Afüv: Affeden, hataları ve günahları bağışlayan
 
 163. **Nuh’a ve ondan sonraki peygamberlere vahyettiğimiz gibi sana da vahyettik: İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına, İsa’ya, Eyyub’a, Yunus’a, Harun’a, Süleyman’a vahyettik. Ve Davud’a Mezmurları verdik.**
 
-İnsanlık yeryüzünde doğrulukla ayakta dursun diye, Allah peygamberlerini birer birer gönderdi. Her biri aynı hakikati dillendirdi: “Allah’tan başka ilah yoktur. O’na boyun eğin.” İşte bu, bütün peygamberlerin dilinden dökülen ilk söz, son söz, tek söz oldu. Çünkü hakikat bir taneydi, eğilip bükülmezdi. Ne zaman, nerede, kime geldiyse, özü aynı kaldı: Tevhid ve teslimiyet. Adı da belliydi: İslam.
+    İnsanlık yeryüzünde doğrulukla ayakta dursun diye, Allah peygamberlerini birer birer gönderdi. Her biri aynı hakikati dillendirdi: “Allah’tan başka ilah yoktur. O’na boyun eğin.” İşte bu, bütün peygamberlerin dilinden dökülen ilk söz, son söz, tek söz oldu. Çünkü hakikat bir taneydi, eğilip bükülmezdi. Ne zaman, nerede, kime geldiyse, özü aynı kaldı: Tevhid ve teslimiyet. Adı da belliydi: İslam.
 
-Ama zaman değişti, halklar değişti, dertler başka türlü aktı toprağa. Allah da her kavme, kendi haline uygun yasa verdi. Musa’ya başka, İsa’ya başka. Şeriatlar farklılaştı, ama inanç değişmedi. Hiçbiri diğerinden üstün değildi. Hepsi bir zincirin halkasıydı. Hepsi bir bütünün parçasıydı. Kur’an bunu açıkça söyler: “Her biriniz için bir yol, bir yöntem koyduk.” Çünkü insanın yolu değişir, ama Allah’ın ışığı değişmez.
+    Ama zaman değişti, halklar değişti, dertler başka türlü aktı toprağa. Allah da her kavme, kendi haline uygun yasa verdi. Musa’ya başka, İsa’ya başka. Şeriatlar farklılaştı, ama inanç değişmedi. Hiçbiri diğerinden üstün değildi. Hepsi bir zincirin halkasıydı. Hepsi bir bütünün parçasıydı. Kur’an bunu açıkça söyler: “Her biriniz için bir yol, bir yöntem koyduk.” Çünkü insanın yolu değişir, ama Allah’ın ışığı değişmez.
 
-Sonra geldi Muhammed. Artık hakikat tamamlandı. Eksik ne varsa kapandı. Ne unutulmuşsa hatırlandı. O, önceki bütün peygamberlerin mührü oldu. Onların söylediklerini doğruladı, ama halkın içine düşürüldüğü karmaşayı da bitirdi. Kur’an ile gelen yasa, artık bir daha değişmeyecek olan yasaydı. Allah dedi ki: “Bugün size dininizi tamamladım.” Bundan sonrası, Allah’ın son sözüydü. Ne eksilir, ne artar.
+    Sonra geldi Muhammed. Artık hakikat tamamlandı. Eksik ne varsa kapandı. Ne unutulmuşsa hatırlandı. O, önceki bütün peygamberlerin mührü oldu. Onların söylediklerini doğruladı, ama halkın içine düşürüldüğü karmaşayı da bitirdi. Kur’an ile gelen yasa, artık bir daha değişmeyecek olan yasaydı. Allah dedi ki: “Bugün size dininizi tamamladım.” Bundan sonrası, Allah’ın son sözüydü. Ne eksilir, ne artar.
 
-İşte bu yüzden, İslam bir halkın değil, insanlığın dinidir. Arap’a da gelir, Acem’e de. Zenginin de payına düşer, yoksulun da. Çünkü bu din, ne bir kavmin geleneğidir, ne de bir bölgenin öyküsü. Bu din, Allah’a teslim olan herkesindir. Yeryüzünde kim nefes alıyorsa, bu söz onadır: “İslam’dan başka din arayan, asla kabul görmez.”
+    İşte bu yüzden, İslam bir halkın değil, insanlığın dinidir. Arap’a da gelir, Acem’e de. Zenginin de payına düşer, yoksulun da. Çünkü bu din, ne bir kavmin geleneğidir, ne de bir bölgenin öyküsü. Bu din, Allah’a teslim olan herkesindir. Yeryüzünde kim nefes alıyorsa, bu söz onadır: “İslam’dan başka din arayan, asla kabul görmez.”
 
-Ama bu yeni din, eskilerini silmedi, unutturmadı. Bilakis, onları doğruladı. Adem’den İsa’ya kadar gelen bütün elçilere, hepsinin getirdiği kitaba iman etti. Mümin dediğin, yalnız Muhammed’e değil, Musa’ya da inanır, İbrahim’e de. Aralarında ayrım yapmaz. Çünkü hakikatin parçalarıdır hepsi.
+    Ama bu yeni din, eskilerini silmedi, unutturmadı. Bilakis, onları doğruladı. Adem’den İsa’ya kadar gelen bütün elçilere, hepsinin getirdiği kitaba iman etti. Mümin dediğin, yalnız Muhammed’e değil, Musa’ya da inanır, İbrahim’e de. Aralarında ayrım yapmaz. Çünkü hakikatin parçalarıdır hepsi.
 
-İslam’ın dili evrenseldir. Kur’an Arapça inmiştir ama söyledikleri tüm halkların dilinde yankı bulur. Çünkü konuştuğu vicdandır, adalettir, akıldır. Onun için Kur’an, yalnız bir inanç kitabı değildir; bir hukuk kitabıdır, bir adalet pusulasıdır, bir insanlık mektubudur.
+    İslam’ın dili evrenseldir. Kur’an Arapça inmiştir ama söyledikleri tüm halkların dilinde yankı bulur. Çünkü konuştuğu vicdandır, adalettir, akıldır. Onun için Kur’an, yalnız bir inanç kitabı değildir; bir hukuk kitabıdır, bir adalet pusulasıdır, bir insanlık mektubudur.
 
-Ve şimdi, bu dinin yasası son yasadır. Öncekiler, kendi zamanlarının hükmüyle gelmişti. Ama çağlar değişti, halklar iç içe geçti, dünya büyüdü. Allah da bu büyüyen dünyaya göre yeni bir söz söyledi: Kur’an. Öncekiler zamanla bozuldu, unutuldu. Bu yüzden son söz söylendi ve o söz mühürlendi.
+    Ve şimdi, bu dinin yasası son yasadır. Öncekiler, kendi zamanlarının hükmüyle gelmişti. Ama çağlar değişti, halklar iç içe geçti, dünya büyüdü. Allah da bu büyüyen dünyaya göre yeni bir söz söyledi: Kur’an. Öncekiler zamanla bozuldu, unutuldu. Bu yüzden son söz söylendi ve o söz mühürlendi.
 
-Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümlerine tutunur, işte o kişi İslam halkasının son halkasına katılmış olur. Ve kim ki birini inkâr eder, zinciri kırar. Bu zincir, insanı karanlıktan aydınlığa çeken zincirdir. Her halkaya tutunan, hakikatin yolcusu olur.
+    Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümlerine tutunur, işte o kişi İslam halkasının son halkasına katılmış olur. Ve kim ki birini inkâr eder, zinciri kırar. Bu zincir, insanı karanlıktan aydınlığa çeken zincirdir. Her halkaya tutunan, hakikatin yolcusu olur.
 
 
 164. Elçilerden bazılarını sana daha önce anlatmıştık; Diğerlerinden bahsetmedik;- ve Allah Musa ile doğrudan konuştu;-
@@ -711,11 +711,11 @@ Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümle
 
 165. **Peygamberler geldikten sonra insanların Allah’a karşı bir mazereti kalmaması gerektiğini hem müjdeleyen hem de uyaran elçi. Çünkü Allah, mutlak güç sahibidir, hüküm ve hikmet sahibidir.**
 
-Allah, insanoğluna akıl vermiştir; öyle sıradan bir akıl değil, yönünü bulsun diye bir pusula gibi, karanlıkta el yordamıyla aramasın diye ışık gibi… Demiştir ki: "Bu aklı kullan, yoldan sapma, doğruyu eğriden ayırt et." Ve bununla da yetinmemiştir Allah. İnsanın içine, fıtratına, bir mayayı işler gibi hak dinin özünü işlemiştir. Doğrunun, güzelin, adaletin ne olduğunu kalbine kodlamıştır insanın.
+    Allah, insanoğluna akıl vermiştir; öyle sıradan bir akıl değil, yönünü bulsun diye bir pusula gibi, karanlıkta el yordamıyla aramasın diye ışık gibi… Demiştir ki: "Bu aklı kullan, yoldan sapma, doğruyu eğriden ayırt et." Ve bununla da yetinmemiştir Allah. İnsanın içine, fıtratına, bir mayayı işler gibi hak dinin özünü işlemiştir. Doğrunun, güzelin, adaletin ne olduğunu kalbine kodlamıştır insanın.
 
-Sonra elçiler göndermiştir birer müjde gibi, birer uyarı gibi. Biri gelmiş dağın ardındaki yangını haber vermiş, biri gelmiş bağ bozumunu, baharın gelişini müjdelemiş. Hepsi de tek bir söz için gelmiştir: “Ey insan, unutma! Yol budur, hak budur!”
+    Sonra elçiler göndermiştir birer müjde gibi, birer uyarı gibi. Biri gelmiş dağın ardındaki yangını haber vermiş, biri gelmiş bağ bozumunu, baharın gelişini müjdelemiş. Hepsi de tek bir söz için gelmiştir: “Ey insan, unutma! Yol budur, hak budur!”
 
-Ve en nihayetinde Allah, apaçık bir kitap indirmiştir kullarına: Kur’an. Ne puslu söz vardır onda, ne eğri büğrü yol. Doğruyla yanlışı ayıran bir kılıç gibi inmiştir yeryüzüne. Adı Furkan’dır. O kitap ki zalimin maskesini düşürür, mazlumun gözyaşını siler. O kitap ki karanlığı deler, aydınlığı getirir.
+    Ve en nihayetinde Allah, apaçık bir kitap indirmiştir kullarına: Kur’an. Ne puslu söz vardır onda, ne eğri büğrü yol. Doğruyla yanlışı ayıran bir kılıç gibi inmiştir yeryüzüne. Adı Furkan’dır. O kitap ki zalimin maskesini düşürür, mazlumun gözyaşını siler. O kitap ki karanlığı deler, aydınlığı getirir.
 
 166. Ama Allah, sana indirdiklerini kendi bilgisinden indirdiğine şahitlik eder ve melekler de şahitlik ederler: Ama şahit olarak Allah yeterdir.
 167. İnkar edenler ve insanları Allah yolundan alıkoyanlar, gerçekten yoldan çok çok uzaklara sapmışlardır.
@@ -725,11 +725,11 @@ Ve en nihayetinde Allah, apaçık bir kitap indirmiştir kullarına: Kur’an. N
 
 170. **Ey İnsanlık! Resul size Allah katından hak olarak geldi. Ona iman edin/inanın: Bu sizin için daha hayırlıdır. Ama eğer inkar ederseniz, bilin ki göklerde ve yerde olan her şey Allah’ındır. Allah, her şeyi bilendir, hüküm ve hikmet sahibidir.**
 
-Kur’an’da apaçık söylenmiş: Allah, kimseyi zorla inkârcı yapmaz, kimseyi nankörlüğe mahkûm etmez. İnsan kendi eliyle kendi yolunu seçer. Kendi gönlüyle hakikate sırt döner, kendi aklıyla inadı seçer, kendi kalbiyle gerçeğe duvar örer. Allah da onun bu inadına, bu körlüğüne mühür vurur. Ama ilk adımı atan, daima insandır.
+    Kur’an’da apaçık söylenmiş: Allah, kimseyi zorla inkârcı yapmaz, kimseyi nankörlüğe mahkûm etmez. İnsan kendi eliyle kendi yolunu seçer. Kendi gönlüyle hakikate sırt döner, kendi aklıyla inadı seçer, kendi kalbiyle gerçeğe duvar örer. Allah da onun bu inadına, bu körlüğüne mühür vurur. Ama ilk adımı atan, daima insandır.
 
-Kimseye zulmedilmez bu düzende. Kimse, doğduğu gün kaderine/yazgısına inkâr yazılmış değildir. Ne varsa, insanın iradesinde var. Allah, insanın elinden özgürlüğünü almamış, onu kendi yolculuğunun yolcusu yapmıştır. Ne hak, zorla sevdirilir insana, ne de sapkınlık dayatılır. Herkes kendi aklıyla seçer, ya nura çıkar ya karanlığa gömülür.
+    Kimseye zulmedilmez bu düzende. Kimse, doğduğu gün kaderine/yazgısına inkâr yazılmış değildir. Ne varsa, insanın iradesinde var. Allah, insanın elinden özgürlüğünü almamış, onu kendi yolculuğunun yolcusu yapmıştır. Ne hak, zorla sevdirilir insana, ne de sapkınlık dayatılır. Herkes kendi aklıyla seçer, ya nura çıkar ya karanlığa gömülür.
 
-Aksi ne olurdu biliyor musun? Aksi, Allah’a iftira etmek olurdu. Onca ayeti yok saymak olurdu. İnsan aklını hiçe saymak, vicdanı susturmak olurdu. Ve işte o zaman, insan kendini hakikatten iyice koparır, düşer de bir daha doğrulamaz olurdu.
+    Aksi ne olurdu biliyor musun? Aksi, Allah’a iftira etmek olurdu. Onca ayeti yok saymak olurdu. İnsan aklını hiçe saymak, vicdanı susturmak olurdu. Ve işte o zaman, insan kendini hakikatten iyice koparır, düşer de bir daha doğrulamaz olurdu.
 
 
 
