@@ -642,7 +642,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Bakarsın birileri der ki, bu yeni bir din mi? Hayır. Bu, çok eski bir sözün yeniden yankılanmasıdır. Tıpkı rüzgâr gibi, her yere değmiş, her taşın altına sızmış, her gönle dokunmuş bir söz…  
       
-    Tevhid der buna eskiler; **Allah’ın birliği**… Bu, Hz. İbrahim’in dağ başlarında aradığı, Hz. Musa’nın denizlere karşı haykırdığı, Hz. İsa’nın mazlumların gözlerine anlattığı ve son olarak Hz. Muhammed’in insanlığa yeniden duyurduğu hakikattir.  
+    Tevhid der buna eskiler; Allah’ın birliği… Bu, Hz. İbrahim’in dağ başlarında aradığı, Hz. Musa’nın denizlere karşı haykırdığı, Hz. İsa’nın mazlumların gözlerine anlattığı ve son olarak Hz. Muhammed’in insanlığa yeniden duyurduğu hakikattir.  
       
     “Hakikat birdir,” der metin. Aynen öyle. Gök nasıl birse, su nasıl bir kaynaktan doğuyorsa, hakikat de öyledir. Bölünmez, değişmez, yıpranmaz. Bütün yollar aynı tepeye çıkar. Dinler değişse de, gönderilen peygamberler farklı kavimlere seslense de, hepsinin parmakları aynı yıldızı gösterir.  
       
@@ -693,10 +693,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 92. **Sevdiğiniz şeylerden karşılıksız vermedikçe asla doğruluğa erişemezsiniz; Gerçek olarak ne verirseniz, Allah onu bilir.**  
       
       
-    Bir insanın yüreği neyle ölçülür? Parayla mı, makamla mı, unvanla mı? Hayır… İnsanın yüreği, **verebildiğiyle** ölçülür. Verdiği ekmekle değil sadece; verdiği zamanla, sevgisiyle, hayatıyla ölçülür. Sadaka dedikleri şey, işte budur. Toprağın bağrından çıkan bir buğday tanesi gibidir sadaka. Öyle durup dururken çıkmaz. Emek ister, alın teri ister, yürek ister.  
+    Bir insanın yüreği neyle ölçülür? Parayla mı, makamla mı, unvanla mı? Hayır… İnsanın yüreği, verebildiğiyle ölçülür. Verdiği ekmekle değil sadece; verdiği zamanla, sevgisiyle, hayatıyla ölçülür. Sadaka dedikleri şey, işte budur. Toprağın bağrından çıkan bir buğday tanesi gibidir sadaka. Öyle durup dururken çıkmaz. Emek ister, alın teri ister, yürek ister.  
       
     Bir adam, neye kıymet veriyorsa, sadakası da onunla olur. Kiminin bir altını vardır, veremez. Kiminin bir saati vardır, paylaşamaz. Kiminin de bir sevgisi vardır, saklar. Ama sadaka, işte tam burada başlar.  
-    **En kıymetli olanı verir insan.**  
+    En kıymetli olanı verir insan.  
     Bir çiftçinin yıllarca beklediği hasadı, bir annenin çocuğuna ayırdığı son lokmayı, bir gencin ömründen kopardığı bir anı… İnsan ne verirse, yüreğinden vermeli. Çünkü gerçek sadaka, insanın en sevdiğini bağışlamasıdır.  
       
     Bir dere vardır, kayadan fışkırır, taşlara çarpar, ovaya ulaşır. Sadaka da öyledir. Küçük bir kaynak gibi başlar, büyür, genişler, bereket olur. Bu yolda dört durak vardır:  
@@ -718,16 +718,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve en sonunda gelir bir an… İnsan canını bile verir. Bir dava uğruna, bir hak uğruna, Allah için… İşte o zaman, sadaka sadece bir elin açılışı değil, bir hayatın adanışı olur.  
       
     İnsanın içini kemiren bir şey vardır: bencillik. Görünmezdir. Ama Allah görür. Kimi kalbinde saklar onu, kimi davranışına döker.  
-    Ama bil ki, **Allah gizliyi de bilir, açığı da.**  
+    Ama bil ki, Allah gizliyi de bilir, açığı da. 
     İnsan, içindeki bencilliği temizlemedikçe, verdiği sadaka gerçek olmaz. Veriyor gibi görünür ama yüreğinden vermezse, o sadece gösteriştir. Gerçek sadaka, gönlün pasını silmektir.  
       
-    Sadaka, kuru bir alışveriş değil, bir **kalp işidir**.  
+    Sadaka, kuru bir alışveriş değil, bir kalp işidir.  
     Veren büyür, alan şükreder.  
     Bir çocuk açlığını unutur, bir yaşlı gözyaşını siler, bir toplum kardeş olur. Sadaka, şehirlerin duvarlarını değil, insanların arasındaki duvarları yıkar. Paylaşmak, bir ekmeği ikiye bölmek değil; iki yüreği birleştirmektir.  
       
     Sadaka, sadece altınla, parayla olmaz. Sadaka, bir tebessümdür, bir selamdır, bir merhamettir. Ve bazen, insan öyle bir an yaşar ki, bütün ömrünü bir avuç ışık gibi ortaya koyar. İşte o zaman, yeryüzü şahittir, gökyüzü duacıdır.  
       
-    Çünkü bu yol, **verenlerin yoludur**.  
+    Çünkü bu yol, verenlerin yoludur.  
       
     Yüreğini açanların, bencilliğini gömenlerin, Allah’a yürüyenlerin yoludur.  
       

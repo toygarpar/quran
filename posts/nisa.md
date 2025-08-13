@@ -898,21 +898,235 @@ Bu yüzden her yaptığımız iyilik, aslında O’nun nimetini yansıtmaktır.
 Ve O’nun izniyle Allah’ın lütfuna/rahmetine çağıran bir kimse ve nur saçan bir kandil olarak.
 O hâlde müminlere Allah’tan pek büyük bir lütuf/cömertlik bulacaklarını müjdele." : Ahzab 45-47
 
-42. O gün inkar edenler ve elçiye isyan edenler, keşke yeryüzü kendileriyle bir olsaydı diye/birleşmesini dileyecekler: Ama Allah’tan hiçbir gerçeği gizlemezler.
-43. Ey iman edenler! Salata, ne söylediğinizi anlayıncaya kadar kafanız buğulu bir şekilde, ne de cünüplük halinde, ancak yolculuk hali müstesna olarak, bütün vücudunuzu yıkayana dek yaklaşmayın. Eğer hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz kum veya toprak alın ve onunla yüzlerinize ve ellerinize sürün. Çünkü Allah günahları siler ve tekrar tekrar bağışlar.
-44. Kendilerine Kitap’tan bir pay verilenleri görmedin mi? Onlar, sapıklıkta ticaret yaparlar ve sizin doğru yolu şaşırmanızı isterler.
-45. Ama Allah, düşmanlarınızı hakkıyla bilmektedir. Dost olarak, yardımcı olarak da Allah yeter.
-46. Yahudilerden öyleleri vardır ki, kelimeleri yerlerinden ederler ve dillerini bükerek ve İnanç’a bir iftira ile “İşittik ve isyan ettik” ve “Duyulmayanları duyun”; ve “davar güder gibi güt bizi”; derler. Keşke: “İşittik ve itaat edelim”; ve “Duyun”; ve “Bize bakın”; deselerdi onlar için daha iyi ve daha uygun olurdu; Fakat Allah, inkarlarından dolayı onları lanetlemiştir ve ancak çok azı inanacaktır.
-47. Ey Kitap Ehli! Sizden bazınızın yüzünü ve ününü tanınmaz hale getirmeden ve geri çevirmeden veya Şabat’ı bozanlara lanet ettiğimiz gibi onları lanetlemeden önce, yanınızda bulunanı tasdik edici olarak şimdi indirdiğimize inanın. Çünkü Allah’ın hükmü yerine getirilmelidir.
-48. Allah, kendisine ortak koşulmasını bağışlamaz. Bunun dışındaki her şeyi dilediğine bağışlar. Allah’a ortak koşmak, gerçekten büyük bir günah tasarlamaktır.
-49. Görüşlerinizi kendileri için kutsallık iddia edenlere/kendilerini temize çıkaranlara çevirmediniz mi? Hayır, Allah dilediğini aziz kılar. Ama en ufak bir şeyde bile adaletten mahrum kalmayacaklar.
+42. **O gün inkar edenler ve elçiye isyan edenler, keşke yeryüzü kendileriyle bir olsaydı diye/birleşmesini dileyecekler: Ama Allah’tan hiçbir gerçeği gizlemezler.**
+
+O gün gelecek. Kimsenin inkâr edemeyeceği, kimsenin “ben bilmiyordum” diyemeyeceği o gün…
+Söz biter, mazeret tükenir, susan susar ama her şey konuşur. Dil sussa da, kalp açılır, vicdan söze gelir.
+
+O gün, dün sırtını dönenler, hakikate gözünü yumanlar, elçiye burun kıvıranlar bir şey isterler: Toprak olmak.
+Ne insan olmak isterler, ne de var olmak. Yalnızca yok olmak.
+Derler ki içlerinden: “Keşke yerle bir olsaydım da bu utancı yaşamasaydım.”
+
+İşte orasıdır, insanın en çıplak kaldığı an.
+Ne ün işe yarar, ne servet, ne çevre, ne de inkârda ustalaşmış cümleler…
+Çünkü artık oyun yoktur.
+Her şey açık, her şey ortada. Allah’ın huzurunda bir perde yoktur, bir örtü kalmaz.
+
+Yıllarca sakladığını sandığın ne varsa, alnına yazılmış gibi çıkar ortaya.
+Kimseyi kandıramazsın. Kendini bile.
+
+İşte o zaman, insanın beline vurur pişmanlık.
+Ama artık geçtir.
+Geri dönemezsin.
+O yoldan tek yönlü geçilir.
+
+Ama şimdi...
+Şimdi bu satırları okuyorsan, hâlâ zamanın var demektir.
+
+Şimdi henüz utanç değil umut var.
+Henüz gözyaşı tövbe sayılır.
+Henüz kalbin Allah’a dönebilir.
+Henüz bir yol var.
+Ve o yol, ancak sen yürürsen açık kalır.
+
+Kalbimizi temizleyelim.
+Sözlerimizi, davranışlarımızı hesap edelim.
+Gözümüzden kaçan eksikliklerimizi fark edelim.
+Allah’tan affı dileyelim, çünkü O, merhamet sahibidir.
+
+43. **Ey iman edenler! Salata, ne söylediğinizi anlayıncaya kadar kafanız buğulu bir şekilde, ne de cünüplük halinde, ancak yolculuk hali müstesna olarak, bütün vücudunuzu yıkayana dek yaklaşmayın. Eğer hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz kum veya toprak alın ve onunla yüzlerinize ve ellerinize sürün. Çünkü Allah günahları siler ve tekrar tekrar bağışlar.**
+
+
+Ey insan…
+Secdeye varacaksan, önce ne söylediğini bil.
+Aklın başında olsun, kalbin yerinde.
+Söz ağzından değil, içinden çıksın.
+
+Ağzı dua eden çoktur bu dünyada.
+Ama gönlü başka yerde olanın duası, sadece ses olur.
+O yüzden Rabb’in buyurur:
+Sarhoşsan, yorgunsan, aklın başka yerdeyse—salata yaklaşma.
+Çünkü o secde, sıradan bir eğilme değil; o, senin boynunu gönüllü olarak kendi iradenle bükmendir.
+
+Yıkansın bedenin.
+Kir sadece toprakta olmaz; derinin üstündeki değil, içinde taşıdığın da arınmalı.
+Yola çıkmışsan, hastaysan, su yoksa…
+O zaman elini toprağa sür.
+Toprak anadır. Onda hayat da temizlik de vardır.
+Yüzünü, elini temizle onunla—çünkü mesele sadece su değil, niyettir.
+
+Allah kolaylık ister kuluna, zorluk değil.
+O yüzden toprakla da temizlenebilirsin.
+Yeter ki yüzsüz olma.
+Yeter ki kirli niyetle çıkma O’nun huzuruna.
+
+Şunu unutma:
+Allah seni affeder.
+Yeter ki dönmesini bil.
+Yeter ki yaptığınla övünme, hatanla da inat etme.
+
+Çünkü O bağışlar.
+Ama sen huşuyla, sadece O'na özgü olarak samimi bir şekilde O'na dönmeyi öğrenmezsen, ibadet dediğin sadece şekildir.
+
+
+44. **Kendilerine Kitap’tan bir pay verilenleri görmedin mi? Onlar, sapıklıkta ticaret yaparlar ve sizin doğru yolu şaşırmanızı isterler.**
+
+"Kendilerine Kitap’tan bir nasip verilenleri görmedin mi? Onlar, aralarındaki anlaşmazlığı gidermek için Allah’ın Kitabına çağrılırlar da içlerinden bir grup, hakemliği reddeder/döneklik ederek ondan yüz çevirir." : Al'i Imran 23
+
+45. **Ama Allah, düşmanlarınızı hakkıyla bilmektedir. Dost olarak, yardımcı olarak da Allah yeter.**
+
+Sözle oynar, kelimeyi bükerek hakikati eğip bükerlerdi.
+Dilleri kibar görünürdü ama yürekleri kinle doluydu.
+Ne söylerlerse, altında başka bir niyet gizliydi.
+
+Sözle Oynayarak İmanı Alaya Aldılar
+
+Dönemin Yahudi topluluğu, Allah’a ve O’nun elçisine aleni değil, sinsi bir şekilde karşı durdu.
+Ağızları bir şey söylerken, kalpleri başka bir şey fısıldıyordu.
+Saygı gösteriyor gibi dururlar, ama aslında alay ederlerdi.
+
+"Duyarız ve itaat ederiz" demeleri gerekirdi. Ama onlar sadece "Duyarız" dediler.
+Sonra arkadan kısık sesle: "Ama boyun eğmeyiz."
+Bu, yüzüne gülüp arkandan bıçaklayan insanın lafıdır.
+
+"İşit!" demeleri gerekirken, lafı eğip büktüler; sinsi bir alaya çevirdiler.
+Sözde dua gibi, ama içinde kin gizliydi.
+Peygamber’i sözle aşağılamak için her fırsatı kullandılar.
+
+"Ra’ina" dediler.
+Dıştan, “Bizi gözet” gibi dursa da, içinde aşağılayıcı bir çarpıtma vardı.
+Lafı öyle söylediler ki, saygı değil hakaret taşır hale geldi.
+Yüzüne dost görünen, ama içinden seni hor gören bir dil tuttular.
+
+Allah Lafza Değil, Kalbe Bakar
+
+Bu ayet bize şunu söyler:
+Gerçek kötülük, dudakta değil; yürekte başlar.
+Dili yumuşak olan, ama niyeti sert olan kimse, Allah’tan gizleyemez oyununu.
+
+Allah sözün yüzeyine değil, altındaki niyete bakar.
+Bir selamda sevgi mi var, yoksa küçümseme mi — O bilir.
+Bu yüzden Allah, o sinsi oyunu kuranları lanetlemiştir.
+Ve içlerinden doğruyu bulan çok az kişi kalmıştır.
+
+Bugün İçin Bir Ders: Dürüstlük, Sözün Anahtarıdır
+
+Bizim de çağımızda çoktur bu tür insan:
+Sözle kandıran, lafla alay eden, kelimeyle insan harcayan…
+Ama unutma:
+
+Her sözcük, yüreğin aynasıdır.
+Alçakgönüllülük dilden değil, kalpten gelir.
+Gerçek saygı lafla olmaz; niyetle, tutumla, gözle anlaşılır.
+
+Allah’a inanan kişi, kelimesini dikkatle seçer.
+Kendi içini temizlemeyen, dilini de temiz tutamaz.
+Ve o kirli sözler, bir gün sahibine döner. Çünkü Allah, her şeyi görür, her kalbi tartar.
+
+46. **Yahudilerden öyleleri vardır ki, kelimeleri yerlerinden ederler/kelimeleri yerinden kaydırıp ve dillerini bükerek/dillerini eğerek ve İmana/İnanç’a bir iftira ile “İşittik ve isyan ettik/itaat etmedik” ve  “Duyulmayanları duyun”; ve “davar güder gibi güt bizi”/"Raina"; derler. Keşke: “İşittik ve itaat edelim”; ve “Duyun”; ve “Bize bakın”; deselerdi onlar için daha iyi ve daha uygun olurdu; Fakat Allah, inkarlarından dolayı onları lanetlemiştir ve ancak çok azı inanacaktır.**
+
+O zamanın kimi insanları vardı… Allah’ın sözünü duydular, peygamberin çağrısını işittiler.
+Ama dudaklarından dökülen başka, yüreklerinden geçen başkaydı.
+
+Allah onlara dedi ki:
+“İşittik ve itaat ettik” deyin.
+Ama onlar ne yaptı?
+Ağız dolusu “İşittik” dediler,
+sonra alçak bir fısıltıyla eklediler:
+“İtaat etmeyiz.”
+
+Bu yetmedi… Peygamber’e “İşit” derken, kelimeyi tersine çevirdiler.
+Söz, dua gibi görünürken, içinde diken vardı.
+
+Bir de “Raîna” dediler… Davar güder gibi güt bizi diye dalga geçtiler. Aslında unzurna, “Bize bak, bizi gözet” demeliydiler.
+Ama dili büktüler, sesini kırdılar, manasını kirlettiler.
+Sözü, görünüşte saygılı, gerçekte aşağılayıcı yaptılar.
+Sanki dost gibi konuşup, gizlice hakaret ettiler.
+
+Allah buyurdu ki:
+Keşke “İşittik ve itaat ettik” deselerdi…
+Keşke “Bize dikkat et” deselerdi…
+Bu, onlar için hem doğru hem hayırlı olurdu.
+
+Ama hayır… Onlar inkarı seçtiler.
+Ve Allah, bu yüzden onları lanetledi.
+İçlerinden imana gelen, ancak bir avuçtu.
+
+Bugün de değişen bir şey yok.
+Sözde saygılı, özde kin dolu insanlar hâlâ var.
+Dili tatlı, niyeti zehirli…
+Unutma: Allah kelimenin yüzüne değil, kalbin içine bakar.
+Söz, yüreğin aynasıdır.
+
+"Ey İnançlılar! Raina! demeyin Unzurna! Deyin/Bizi davar gibi güt diye konuşmayın. Bize bak! Diye konuşun ve dinleyin." : Bakara 104
+
+
+47. **Ey Kitap Ehli! Sizden bazınızın yüzünü ve ününü tanınmaz hale getirmeden ve kötüye/başaşağı/geri çevirmeden veya Şabat’ı bozanlara lanet ettiğimiz gibi onları lanetlemeden önce, yanınızda bulunanı tasdik edici olarak şimdi indirdiğimize inanın. Çünkü Allah’ın hükmü yerine getirilmelidir. / Ey Kitap Ehli! Biz içinizden bazılarının yüzünü ve şöhretini tanınmayacak hale getirip onları kötüye/başaşağı çevirmeden veya Şabat'ı bozanları lanetlediğimiz gibi onları lanetlemeden önce, sizde olanı doğrulayan şimdi indirdiğimize iman edin. Çünkü Allah'ın kararı/emri mutlaka yerine getirilecektir.**
+
+Ey Kitap Ehli! Size, önünüzde duran bu kitabı gönderiyoruz. Bu kitap, elinizdeki hakikati doğruluyor. Daha önce beklediğiniz, dualarınızda adını andığınız peygamber geldi. O’nu tanıdınız, yüzünü bildiniz, sözünü işittiniz. Ama kıskançlıktan, inattan, kendi menfaatinizden sırt çevirdiniz.
+
+Allah size diyor ki:
+“Yüzünüzü silmeden, şerefinizi elinizden almadan, sizi tarihin ön saflarından alıp gerilere atmadan önce iman edin. Geçmişte Şabat’ı bozanları nasıl lanetlediysem, sizi de öyle lanetlemeden önce gelin, doğruya dönün.”
+
+“Yüz” dediğin, insanın şanı, onuru, adıdır. Silinirse, geriye sadece bir hiçlik kalır; kimse selam vermez, kimse hatırlamaz. 
+
+Zamanı gelince Allah’ın hükmü mutlaka iner. Lütfu geniştir ama sabrı sonsuz değildir.
+O gün geldiğinde, artık ne eski şanınız kalır ne de sözünüz dinlenir.
+
+Bugün hâlâ fırsat var. Ama fırsat, sonsuza kadar beklemez.
+
+"Ve içinizden Şabat/Cumartesi gününde haddi aşanları iyi tanıyordunuz: Onlara dedik ki:”Hor görülen ve reddedilen maymunlar olun”" : Bakara 65
+
+
+48. **Allah, kendisine ortak koşulmasını bağışlamaz. Bunun dışındaki her şeyi dilediğine bağışlar. Allah’a ortak koşmak, gerçekten büyük bir günah tasarlamaktır.**
+
+Allah, kendisine ortak koşanı bağışlamaz. Başka günahlar, dilerse bağışlanır. Ama bu, en ağır suçtur; hem Hak’ka, hem insana karşı işlenmiş en büyük zulümdür.
+
+Nasıl ki bir devlette en büyük ihanet, başa ve ülkeye karşı işlenirse; manevi dünyada da en büyük ihanet, Allah’ın yanına bir başka kudret koymaktır. Bu, insanın kalbine ve ruhunun özüne atılmış bir zehir gibidir.
+
+Ama bir şey bilmeden, yanılarak yapılmışsa, sonra da insan, hatasını görüp pişman olmuşsa… işte o zaman kapı kapanmaz. Allah’ın merhameti engin, dönüş yolu açıktır.
+
+Fakat bile bile, inatla, içinden gelerek ortak koşan, kendi yolunu kendi elleriyle mühürler.
+
+Bu söz, hem bir tehdit hem bir umut taşır:
+Bağışlanmaz denen bile, dönüşle bağış bulur; ama dönüş, içtenlik ve doğrulukla olur.
+
+
+49. **Görüşlerinizi kendileri için kutsallık iddia edenlere/kendilerini temize çıkaranlara çevirmediniz mi? Hayır, Allah dilediğini aziz kılar. Ama en ufak bir şeyde bile adaletten mahrum kalmayacaklar.**
+
+
+Vardır öyleleri… Kendi kendine “Ben seçilmişim, ben üstünüm” der. Üzerinde kutsallık elbisesi taşır gibi gezer. Kendi sözünü kendi kitabı sayar. Oysa ne kalbi temizdir, ne de dili doğru.
+
+Temizlik, insanın kendi ağzıyla ilan ettiği bir şey değildir. Allah dilerse arındırır, dilerse bırakır kirin içinde. Gerçek temizlik, Allah’ın rahmetindedir, insanın övünmesinde değil.
+
+Hurma çekirdeğinin içindeki ince zar kadar bile haksızlık edilmeyecek o gün. Herkes ne ektiğini biçecek. Ne bir başkasının günahı sana yazılır, ne senin sevabın başkasına.
+
+O yüzden, “Ben iyiyim” diyen değil, iyiliği sessizce yapan kurtulur. Allah’ın terazisinde gösterişin gramı yoktur.
+
+
+
+
 50. İşte bakın! Allah’a nasıl da yalan uyduruyorlar. Ama bu başlı başına apaçık bir günahtır!
+
+
 51. Kendilerine Kitap’tan bir pay verilenleri görmedin mi? Onlar, sihire/aldatmacaya ve kötülüğe inanırlar ve kâfirlere, kendilerinin müminlerden daha doğru yolu bulduğunu söylerler!
+
+
 52. İşte onlar, Allah’ın lânetlediği kimselerdir: Allah’ın lânetlediği kimselere ise, yardım edecek kimse bulamazsın.
+
+
 53. Hakimiyet veya iktidarda bir payları mı var? Dikkatle gözlemleyin, hemcinslerine bir metelik bile vermezlerdi.
+
+
 54. Yoksa onlar, Allah’ın lütuf ve ihsanından kendilerine verdiği şeyler için insanları mı kıskanıyorlar? Fakat Biz İbrahim’in kavmine Kitap ve Hikmet ve onlara büyük bir mülk vermiştik.
+
+
 55. Onlardan bir kısmı iman etti, bir kısmı da ondan yüz çevirdi: Cehennem alevli bir ateş olarak yeterdir.
+
+
 56. Âyetlerimizi yalanlayanları, yakında ateşe atacağız: Derileri ne zaman kavrulsa azabı tatsınlar diye onları yeni derilerle değiştireceğiz: çünkü Allah, mutlak güç sahibidir, hüküm ve hikmet sahibidir.
+
+
 57. Ama iman edip salih ameller işleyenleri, içinde ebedi kalacakları, altından ırmaklar akan cennetlere sokacağız. Orada onların, tertemiz ve mukaddes arkadaşları vardır: Onları, serin ve derinleşen gölgelere sokacağız.
 
 
