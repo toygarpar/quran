@@ -334,15 +334,412 @@ Evlilik, bir kazanç değil, bir emanet işidir. Adalet ister, vicdan ister. Kad
 28. **Allah, sıkıntılarınızı hafifletmek diler. Çünkü insan beden olarak zayıf yaratılmıştır.**
 
 
-29. Ey iman edenler! Mallarınızı kendi aranızda boş yere yemeyin: Ama aranızda alışveriş ve karşılıklı iyi niyetle ticaret olsun: Kendinizi ne öldürün ne de yok edin: çünkü Allah size karşı çok merhametlidir!
-30. Kim bunu kin/garez ve zulümle/adaletsizlikle yaparsa, artık onları ateşe atacağız. Ve bu, Allah’a göre kolaydır.
-31. Eğer ancak size yasaklanan şeylerin en çirkininden kaçınırsanız, içinizdeki bütün kötülükleri üzerinizden çıkarır ve sizi şerefli bir kapıya koyarız/kabul ederiz.
-32. Ve Allah’ın kiminize kiminizden daha fazla lütufta bulunduğu şeylere asla tamah etmeyin: Erkeklere kazandıklarından nasip verilir, kadınlara da kazandıklarından: Ama Allah’ın lütfundan isteyin. Çünkü Allah, her şeyi hakkıyla bilendir.
-33. Biz, herkesin yararlanması için, ana-baba ve akrabaların bıraktığı mallara hisse ve mirasçılar tayin ettik. Sağ elinizin ahd edildiği kimselere de paylarını verin. Çünkü gerçekten Allah her şeye şahittir.
-34. Erkekler, Allah’ın birine diğerinden daha fazla güç vermesi ve kadınları imkanlarıyla desteklemeleri nedeniyle kadınların koruyucusu ve gözeticisidir. Bu nedenle salih kadınlar, samimi/içten olarak itaatkardırlar/sadıktırlar ve Allah’ın korumalarını istediği şeyleri yokluğunda korurlar. Sadakatsizlik ve edepsizliklerinden endişe ettiğiniz kadınlara önce öğüt verin, sonra yatakları paylaşmaktan vazgeçin ve son olarak bulundukları yerden ayırın, eğer itaate/sadakate dönerlerse onlara karşı bir eziyet aramayın/ onları rahatsız edecek vesileler aramayın. Çünkü Allah yücedir, hepinizden büyüktür.
-35. Eğer ikisinin aralarının açılmasından korkarsanız, biri onun ailesinden, diğeri de kendi soyundan iki hakem tayin edin; eğer barış dilerlerse, Allah onları uzlaştıracaktır: Allah her şeyi bilendir, her şeyden haberdardır.
-36. Allah’a kulluk edin ve O’na hiçbir şeyi ortak koşmayın. Anaya, babaya, akrabaya, yetimlere, yoksullara, yakın komşuya, uzak komşuya, yanınızdaki arkadaşa, yolda kalmışa ve sağ ellerinizin altında bulunanlara iyilik edin. Çünkü Allah kibirli/küstah, büyüklük taslayanları/gururluları sevmez ;-
-37. Cimrilik eden, başkalarına cimriliği emreden ve Allah’ın kendilerine verdiği nimeti gizleyen kimseleri de; Biz, inkar edenler için, onların hor görülmelerine yol açacak bir azap hazırladık;-
+29. **Ey iman edenler! Mallarınızı kendi aranızda boş yere yemeyin: Ama aranızda alışveriş ve karşılıklı iyi niyetle/rızaya dayanan ticaret ve alışveriş olsun: Kendinizi ne öldürün ne de yok edin: çünkü Allah size karşı çok merhametlidir!**
+
+Ey insan, ey aç kalmış kardeşim, ey mal peşinde koşarken insanlığını düşüren dostum! Kulak ver şimdi. Allah diyor ki: “Mallarınızı aranızda batıl yollarla yemeyin.”
+
+Yani ne demek bu? Haksızlıkla, yalanla, dolanla, rüşvetle, torpille, kul hakkıyla bir lokma bile yutma. Çünkü o lokma, bir çocuğun ağzından çıkmış olabilir. Bir kadının sütünden, bir işçinin nasırından, bir öğrencinin defterinden eksilmiş olabilir. Yeme! Allah’ın verdiği malı, alın teriyle alın. Zorla değil. Aldatmayla değil. Helalle.
+
+Diyor ki: “Karşılıklı rızaya dayanan alışveriş yapın.” Rıza nedir bilir misin? Bir annenin, çocuğuna verdiği ekmeği, içi rahat verişidir. İşte öyle olacak alışverişin. Kandırmadan, ezmeden, hakkını vererek.
+
+Ve sonra asıl acı kısım gelir:
+"Kendinizi öldürmeyin. Birbirinizi de."
+Bunun adı, yalnızca bıçakla ya da kurşunla olmaz. Bir adamı aç bırakmak, işsiz bırakmak, umutsuz bırakmak da öldürmektir. Taksit taksit, yavaş yavaş…
+Her sabah işe giden bir babaya hakkını vermemek, onun çocuklarının gözlerini karartmaktır.
+Bir kadının emeğini görmezden gelmek, onu yok saymaktır.
+Gençlerin hayalini çalmak, kendi ellerinle geleceği gömmektir.
+
+Allah diyor ki: "Ben size merhametliyim."
+O zaman sen de ol. Sen de kardeşine merhametli ol. Komşunun ekmeğini çalmadan yaşa. Zengine dalkavuk, yoksula cellât olma. Mallarınızın, zamanınızın, gücünüzün emanet olduğunu bil. İsraf etme. Çünkü israf, fakirin yüzüne atılmış küflü bir ekmek gibidir.
+
+Kendine de merhamet et. İçindeki iyiliği tüketme. Nefretle beslenme. Çünkü kendini öldürmek, bazen ruhunu aç bırakmaktır. Vicdanını susturmaktır. Bir çocuğun gülüşünü umursamadan yaşamak, kendi ruhunu da öldürmektir.
+
+Ve bil ki bu sözlerin sahibi Allah’tır.
+Sonsuz merhamet sahibi, her şeyi gören…
+Sen şimdi malını sayarken, o senin kalbini tartar.
+Bir tas çorbayla sınanırsın bazen, bir tokatla, bir imza ile.
+Ve gün gelir, her şeyin hesabı sorulur.
+İşte o gün, haklı olanın başı dik, batıl yiyenin dili tutulur.
+
+Dolayısıyla bu ayet, modern dünyada yaşarken özellikle şunları düşünmemizi sağlar:
+
+Ekonomide etik: Kazanç sağlarken adalet, dürüstlük ve karşılıklı fayda ilkelerini benimsemek.
+Kişisel sorumluluk: Zamanımızı, paranızı, enerjimizi nasıl kullandığımızı sorgulamak.
+Toplumsal barış: Şiddetin her türlüsünden kaçınmak, sevgi ve anlayışla iletişim kurmak.
+Merhamet ve vicdan: Allah’ın bize sunduğu hayatı, O’nun merhameti gibi başkalarına da merhametle yaşamak.
+
+
+a. "Malları batıl yollarla yememek" – Emanete Saygı ve İsraf Karşısı Duruş
+“Allah’ın verdiği rızık” olarak görebileceğimiz mallarımız yalnızca kendi özel varlığımıza ait olanlar değil; emanet olarak elimize geçen her şeyi kapsar: başkalarının parası, doğa kaynakları, zaman, yetenekler… Bu ayet bize, bu malları israf etmemeyi, adaletsizce tüketmemeyi ve emin olunan yerden sapmamayı öğütler.
+
+İsraf , Allah’ın insanlara verdiği nimetleri gereksiz yere harcamaktır.
+Emaneti kötü kullanmak , başkalarına güvenle bırakılan şeyleri zarar vermek ya da onları kişisel çıkar için istismar etmektir.
+Burada vurgu, ahlaki sorumluluk üzerine: İnsanlar arasında adil ve dürüst ilişkiler kurabilmek için mal mülk konusunda bilinçli davranmalıyız.
+
+b. Ticaret ve Alışverişte Rıza Esası – Ekonomik Ahlak ve Kalkınma
+“Karşılıklı rızaya dayanan ticaret ve alışveriş”, sadece ekonomik faaliyetlerde adil davranmakla kalmaz, aynı zamanda üretim, paylaşım ve refah oluşturma duygusunu da çağrıştırır.
+
+Bu noktada bahsettiğin İsa’nın Yetenekler Benzetmesi (Matta 25:14–30) gerçekten çok anlamlı: Servet ya da yetenekler, saklanıp gizlenmeye değil, geliştirilip çoğaltılmaya mahsustur.
+Ticaret burada, insanların iş birliği içinde gelişmesinin sembolüdür. Birbirini yok etmeden, zulmetmeden, aldatmadan kazan-kazan prensibiyle ilişki kurma yoludur.
+İslam ekonomisinde de “haramdan kaçınmak, helaldedir” düşüncesiyle, ekonomik faaliyetlerin ahlaki sınırlar içinde olması şart koşulmuştur.
+
+c. Kendini Yok Etmemek – Hem Fiziksel Hem Manevi Bir Uyarı
+“Ne kendinizi öldürün ne de birbirinizi yok edin.” Bu cümle, fiziksel ölümden çok daha fazlasını kapsıyor:
+
+Fiziksel intihar : Kendine zarar verme veya kasıtlı ölüm.
+Manevi intihar : Ruhun, vicdanın, erdemin yok oluşu. Aşırı tüketime, haksızlığa, nefse hâkimiyetsizliğe kapılmak da manevi yıkıma yol açar.
+Toplumsal intihar : Toplumda adaleti bozmak, barışı bozmak, kardeşliği zedelemek gibi davranışlar da “yok olma”nın bir biçimi sayılabilir.
+Bu uyarı, hayatı koruma ve insani değerleri savunma temeline dayanmaktadır.
+
+d. Allah’ın Merhameti – İnsan Olarak Sorumluluğumuzun Temeli
+Sonuçta tüm bu öğütlerin altında yatan büyük tema, Allah’ın evrensel merhametidir. Allah, “Sizinle beraber merhametlidir” diyerek bizlere şu gerçeği hatırlatıyor:
+
+Biz insanlar, birer emanetçiyiz, birer sorumluyuz.
+Allah'ın merhameti bizim iyiliğimize yöneliktir; o yüzden biz de başkalarına karşı merhametli olmalı, şiddetten uzak durmalı, adaleti sağlamak için çalışmalıyız.
+Kardeşimizi, komşumuzu, hatta düşmanımızı bile bir “Allah'ın yaratığı” olarak görmek, ona zarar vermenin aslında O'nun merhametine karşı gelmek olduğunu fark etmektir.
+Genel Değerlendirme:
+Bu ayet, sadece ekonomik etkinliklerde dürüstlükten değil, aynı zamanda hayatın değerini bilme, başkalarına saygı gösterme ve kendimizi hem manevi hem maddi yönden geliştirme görevinden de söz ediyor.
+
+
+
+
+30. **Kim bunu kin/garez ve zulümle/adaletsizlikle yaparsa, artık onları ateşe atacağız. Ve bu, Allah’a göre kolaydır.**
+
+
+31. **Eğer ancak size yasaklanan şeylerin en çirkininden kaçınırsanız, içinizdeki bütün kötülükleri üzerinizden çıkarır ve sizi şerefli bir kapıya koyarız/kabul ederiz.**
+
+
+32. **Ve Allah’ın kiminize kiminizden daha fazla lütufta bulunduğu /cömertçe bahşettiği  şeylere asla tamah etmeyin/göz dikneyin: Erkeklere kazandıklarından nasip verilir, kadınlara da kazandıklarından: Ama Allah’ın lütfundan isteyin. Çünkü Allah, her şeyi hakkıyla bilendir.**
+
+Bak şimdi, Allah diyor ki:
+“Başkasının elindekine göz dikme. Senin olanla yetin. Lütuf mu istersin? O'ndan iste.”
+
+İnsan var ya, gözü doymuyor. Komşunun buğdayı daha beyaz, onun ineği daha sütlü, onun nasibi daha bereketli diye içi içini yiyor. Ama bilmiyor ki her nimetin bir yükü var. Her nasibin bir sınavı...
+
+Birisi malıyla sınanır, birisi sabrıyla.
+Birinin kolu kuvvetlidir, toprağı deler; birinin yüreği geniştir, mazlumu kucaklar.
+Birisi bir lokmayla doyar, birisi dünyanın bütün altınını yese doyamaz.
+Ama herkesin payı bellidir. Allah’tan gelmiştir. O bilir. Biz bilmeyiz.
+
+Sen şimdi başkasının nasibine göz dikersen, kendi nimetine körleşirsin.
+Ve bir vakit gelir, elindeki ekmeğin kıymetini bilmez, başkasının kabuğuna meyledersin.
+Oysa o kabuk, belki içi çürük bir meyvenin kalıntısıdır. Nereden bileceksin?
+
+Ayet der ki:
+“Erkeklere kazandıklarından nasip verilir, kadınlara da kazandıklarından.”
+Yani ne demek bu? Allah herkese ayrı bir yol vermiştir.
+Bir kadının sabrı, bir adamın gücüyle tartılmaz.
+Bir adamın alın teri, bir annenin uykusuz gecesiyle kıyas edilmez.
+Herkesin alnında ayrı bir ter, yüreğinde ayrı bir hikâye vardır.
+
+Ve sonra Allah seslenir:
+“Lütuf istiyorsan, benden iste.”
+Gitme başkasının bahçesine. Senin toprağın neyse orada çiçek açtır.
+Komşunun üzümünden şarap hayal etme, kendi incirinden helva yap.
+Yüreğinin taşını, sabırla, dua ile yoğur.
+Çünkü O seni senden iyi bilir.
+
+Bir de şunu unutma:
+Kimi var ki saraylarda yaşar ama geceleri gözünü tavana diker.
+Kimi var ki kuru bir ekmeği ısırırken dua eder, huzurla uyur.
+Hangisi zengin? Hangisi nimet sahibi?
+
+İşte bunu ancak Allah bilir.
+Ve işte bu yüzden, insan kendine bakmalı.
+İçindeki boşluğu başkalarının doluluğuyla ölçmemeli.
+Çünkü her nasip, sahibine yakışır. Her yük, taşıyanına...
+
+a. Kıskançlık ve Tamahkarlık Karşısında İnançla Başa Çıkma
+Allah’ın insanlar arasında dağıttığı nimetler farklıdır. Kimi zengin doğar, kimi yetenekli, kimi bilgili, kimi sabırlı... Bu farklılıklar, hayatın doğal yapısıdır. Ancak burada vurgulanan şey şudur:
+
+Göz dikmek , yani başka insanların nimetlerine haset etmek ya da onları aşağılamak, içsel bir eksiklik hissinden kaynaklanır.
+Kıskançlık, kişinin kendisini değerlendirme biçimindeki bozukluğu gösterir. Kendi nimetlerinin farkında olmayan kişi, başkasının elindekini aşırı değerli görür.
+Ayet bize der ki: “Sen sadece senin payına düşeni düşün. Başkasının rızkını senin rızkınla kıyaslamak boş bir çabadır.”
+
+b. Nimetler Allah’ın Lütuflarıdır – Onlardan İsteyin
+“Allah’ın lütfundan isteyin” emri, hem dua hem de ahlaki bir yol göstermedir:
+
+Allah’ın nimetleri sınırsızdır. Eğer bir şeyi hakça arzu ediyorsan, onu O’ndan istemekte hiçbir engel yoktur.
+Ancak önemli olan, bu isteğin kıskançlık ya da tamahkarlık temelli olmamasıdır. Gerçek dua, ihtiyaçtan gelir; gururdan değil.
+Ayrıca dua, sadece Allah’a seslenme değildir; aynı zamanda kendimize karşı dürüstlük tür. Dua ettiğimizde, neden bu şeye ihtiyacımız olduğunu anlama fırsatı buluruz.
+
+c. Eşitlik Değil, Adalet Vardır
+“Erkeklere kazandıklarından, kadınlara da kazandıklarından nasip vardır.” Buradaki mesaj çok önemlidir:
+
+Allah’ın adaleti, herkesi aynı şekilde değil , ama gerektiği kadarıyla ödüllendirir.
+Kazandığımız şeyler, sadece maddi başarıyla değil; sabır, emek, niyet, fedakârlık gibi görünmeyen değerlerle de ölçülür.
+İnsan gözüne eşit görünmeyen şeyler, göklerin hesabıyla dengeye oturmuş olabilir.
+Bu yüzden ayet şöyle devam eder: “Çünkü Allah her şeyi hakkıyla bilendir.”
+
+d. Allah Bilir, Biz Bilmiyoruz
+Bu ayet, aynı zamanda insanın sınırlı bilgisini kabul etmesi gerektiğini hatırlatır:
+
+Başkaları bizden daha mutlu, daha güçlü ya da daha başarılı görünse de, biz onların içinde bulunduğu tüm testleri bilmiyoruz.
+Belki o kişi, görünmeyen bir hastalığı ya da içsel bir çöküntüyü yaşarken, biz sadece dış görünüşüne odaklanıyoruz.
+Allah, herkesi onun taşıyabileceği yük ve imtihanla sınar. Bu bağlamda, göze güzel görünen her şey, kalbe iyi gelmeyecek demektir.
+
+e. İçsel Zenginliği Kazanmak: Nefse Hâkim Olmak
+Bu ayetin en büyük öğütlerinden biri, nefsi terbiye etmektir :
+
+Ne zaman bir başkasını kıskansak, o an nefsimizin kontrolünü ele almalıyız.
+Kendimizi şu sorularla sorgulamalıyız: “Ben bunu gerçekten ihtiyaçtan mı istiyorum? Yoksa benim egom mu besleniyor?”
+Ve en önemlisi: Kendi nimetlerime şükrediyor muyum? Çünkü şükür, kıskançlığın antidotudur.
+Sonuç: Allah'a Güven ve Kendine Saygı Arasında Dengede Yaşamak
+Bu ayet, bize hayatta karşılaşacağımız ekonomik, sosyal veya duygusal eşitsizlikler karşısında nasıl duruş sergilememiz gerektiği konusunda büyük bir ilham kaynağıdır.
+
+Kıskançlığa kapılmayın , çünkü Allah herkese göre verir.
+Tamahkar olmayın , çünkü Allah her şeye şahittir.
+Dua edin , çünkü Allah her dileği duyar.
+Şükredin , çünkü şükür, nimeti çoğaltan anahtardır.
+Sabredin , çünkü sabır, Allah’a güvenin ta kendisidir.
+Ve unutmayalım:
+
+Allah’ın lütfu sınırsızdır.
+Onu aramaktan asla vazgeçmeyelim.
+Bir gün, göreceğiz ki her şeyin bir hikmeti vardır. 
+
+
+33. **Biz, herkesin yararlanması için, ana-baba ve akrabaların bıraktığı mallara hisse ve mirasçılar tayin ettik. Sağ elinizin ahd edildiği kimselere de paylarını verin. Çünkü gerçekten Allah her şeye şahittir.**
+
+Payın Hakkı 
+
+Ana baba ardında kalır miras; kardeş, evlat, yetim, uzak-yakın akraba… Allah buyurur:
+“Her birine payını verin. O payın içinde alın teri, gözyaşı, beklenti vardır; sakın ola eksiltmeyin.”
+
+Mevâli diyor Kur’an – öyle kuru bir kelime değil:
+Kimi sana kan yakın, kimi yoldaş, kimi komşu; kimi zamanında ekmeğini bölüp seninle yemiş. Hepsi bir şekilde emanet. Ve Allah şahit: Payı kesen, hakkı yiyen, gözü kapalı zannedip mazlumu unutan, gün gelir o yediği lokmayı boğazında bulur.
+
+Mirasın Ahlakı: Bağlara Saygı, Hakka Teslimiyet
+
+Bu ayet, sadece kuru bir miras hukukunu değil, bağların, emeklerin ve sadakatin hukukunu anlatır.
+"Mevâli" kelimesiyle, yalnızca kan bağı değil; bir zaman sofranı paylaşan, sırrını saklayan, yanında yol yürüyen insan da kast edilir. Bu;
+
+Bazen bir dosttur,
+
+Bazen bir komşu,
+
+Bazen bir hizmetkâr,
+
+Bazen yıllarca senin yükünü çeken biridir.
+
+Allah der ki: "Onları unutma."
+Zira miras sadece mal değildir. Hatıraların, emeklerin ve bağlılıkların da bir payı vardır. Allah her şeyi görür. Verilmesi gereken bir hakkı kim saklarsa, bilsin ki o hak, kıyamete kadar eksik yazılır.
+
+
+34. **Erkekler, Allah’ın birine diğerinden daha fazla güç vermesi ve kadınları imkanlarıyla desteklemeleri nedeniyle kadınların koruyucusu ve gözeticisidir. Bu nedenle salih kadınlar, samimi/içten olarak itaatkardırlar/sadıktırlar ve Allah’ın korumalarını istediği şeyleri yokluğunda korurlar. Sadakatsizlik ve edepsizliklerinden endişe ettiğiniz kadınlara önce öğüt verin, sonra yatakları paylaşmaktan vazgeçin ve son olarak bulundukları yerden ayırın, eğer itaate/sadakate dönerlerse onlara karşı bir eziyet aramayın/ onları rahatsız edecek vesileler aramayın. Çünkü Allah yücedir, hepinizden büyüktür.**
+
+Erkek, kadının üstüne çıkmaz bu ayette. Elini kaldıramaz, kaşını çatamaz, onu hor göremez. Ayette söylenen şudur: Allah birine birinde olmayanı verdi diye, birine ötekine göre bir sorumluluk yüklemişse, bu kimseye üstünlük vermez. Aksine yük bindirir, vebal yükler. O yüzden erkek, evin geçimini sağlar; çalışır, didinir, harcar. Erkek ve Kadın birbirine sadık kalır; kocası yanındayken de yokken de namusunu, evini, insanlığını korur. Günümüzde kadınlar da çalışma hayatında artık rahatlıkla yer almaktadır. Her kendine düşen sorumluluğu yerine getirir.
+
+Salih kadın ve erkek denince akla gelen budur: Yalpa yapmaz, sağa sola bakmaz, kendine de eşine de ihanet etmez. Evi ayakta tutmak bir kişinin işi değil, iki insanın alın teridir.
+
+Peki evde bir çözülme varsa, işler sarpa sardıysa ne yapılır? Ayet bunun da yolunu gösterir. Önce konuşacaksın. Yani bağırıp çağırmak değil, sövmek değil. Oturup, insanca, gönül diliyle anlatacaksın. Olmadı mı? Biraz uzak duracaksın. Soğusun. Herkes nerede yanlış yaptığını düşünsün. Yine fayda etmediyse, ayette geçen o kelimeyi herkes başka yere çeker: “Vadribuhunne.” Kimi dövün diye çevirir. Ama herkesin unuttuğu bir şey var: Resul, bir kadına el kaldırmamış bir adamdır. Vurmamış, sövmemiş, aşağılamamıştır. O yüzden burada anlatılan, kadını incitmek değil, gerekirse bir süre ayrı düşmek, düşünmek, sil baştan yapmaktır. Kullanılan kelimenin 17 tane değişik anlamı vardır ama nedense kadını aşağı gören bazıları/müşrikler bağlamından çıkarıp, aklı işletmeden, akıl ve mantık süzgecinden geçirmeden kadını dövün diye çevirmektedir.
+
+Ama her şey denendi de olmadıysa… O zaman iki aileden birer hakem gelir. İkisi de bilir kendi tarafının huyunu, ahlakını, geçmişini. Amaç düşman yaratmak değil, yuva kurtarmaktır. Herkes “boşanın” diye değil, “barışın” diye masaya oturur. Çünkü Allah her şeyi bilir, kalpleri de niyetleri de görür.
+
+Şunu unutma: Kadın da insan, erkek de insan. Kimse kimsenin sahibi değil. Aile, biri yönetiyor öteki boyun eğiyor diye yürümez. Aile, biri susuyor öteki bağırıyor diye ayakta kalmaz. Aile dediğin, adaletle, merhametle, sabırla yürür.
+
+Ve Allah yücedir. O’nun önünde herkes eşittir. Kimse kendini büyük görmesin, kimse güçsüz olanı ezmesin.
+
+
+Bu ayet, İslam’ın aile yapısına dair önemli bir ilkeyi içerir: Ailede liderlik, üstünlük değil, sorumluluk ve koruyuculuktur.
+
+a. "Kavvam" Ne Demek?
+Kelime olarak "kavvam" , “başkasının işinde sebat etmek”, “onun çıkarlarını korumak”, “işleri yönetmek” anlamına gelir.
+
+Bu nedenle burada erkeklerin “kadınların kavvamı” olması, onların hâkimiyet kurması değil , aksine onlara hizmet etmesi ve sorumluluk alması anlamına gelir.
+
+Erkeğin liderliği, güç gösterisi değil , koruyucu rolüdür .
+Bu, kadının alt sınıf ya da ikinci planda bir varlık olduğu anlamına gelmez; aksine, her iki tarafın da birbirine göre farklı rolleri vardır.
+
+b. İyi Bir Kadın Kimdir?
+Ayette “salih kadınlar, samimi olarak itaatkardır” denir. Burada “itaat” kelimesi, kocasına köle gibi boyun eğmek anlamına gelmez. Erkekle kadının birbirine karşı sorumlulukları vardır.
+
+Bu itaat, karşılıklı saygı ve güven temelli bir uyumdur.
+Kadın, kocasının yanında uyumludur; kocası yokken de onun malını, ününü ve ahlakını korur .
+Bu, bir tür kendini disipline etme ve sorumluluk bilincidir.
+Bu bakımdan, ayet, aile içinde güven, sadakat ve şerefin korunması üzerine bir öğüttür.
+
+Aile İçi Sorunlar İçin: Üç Aşamalı Bir Çözüm
+"Sadakatsizlik ve edepsizliklerinden endişe ettiğiniz kadınlara önce öğüt verin, sonra yatakları paylaşmaktan vazgeçin ve son olarak bulundukları yerden ayırın..."
+(Qur'an, 4:34) 
+
+Bu ayet, eşler arasındaki sorunların çözümü için üç aşamalı bir rehber sunar . Bu yöntem, hem dini hem de insanî bir yaklaşımla yapılandırılmıştır.
+
+I. Öğüt ve Diyalog
+Sorunun çözümü her zaman açık iletişimle başlar. Eşin hatalarını nazikçe dile getirmek, onu yargılamadan bilgilendirmek, ilk adım olmalıdır.
+
+Bu aşama, saygı ve anlayış temelli bir yaklaşımdır.
+Kavga, öfke veya alayla değil, vicdanı titretici bir üslup la başlamalıdır.
+
+II. Yatak Paylaşımından Vazgeçmek
+Bu adım, fiziksel yakınlıktan uzak durarak duygusal mesafeyi belirtir.
+
+Amaç, cezalandırmak değil , farkındalık yaratmaktır .
+Bu, bir tür uyarıdır: “Senin davranışın bizi uzaklaştırıyor.”
+
+"Darabe" Kelimesinin Anlamı: Ayırma mı, Dövmek mi?
+Burada geçen “vadribuhunne” kelimesi, genellikle “dövmek” olarak çevrilir. Ancak bu kelime Kur’an’da birçok farklı anlamda kullanılır:
+Kaçınmak
+Ayrılmak
+Uzak durmak
+Yol almak
+Bir şeyi vurmak (daha az yaygın)
+Peygamber Efendimiz’in hiçbir zaman eşlerini dövmediği , bu tür davranışlardan nefret ettiği bilinmektedir. Bu nedenle, burada geçen “darabe” ifadesi, fiziksel şiddet değil , aile içi bir ayrılık anlamında yorumlanabilir. Kuran akla inmiştir, bütün bağlamın üzerinde düşünülmesi, akıl süzgecinden geçirilmesi gerekir.
+
+Bu, bir tür boşanma sürecinin başlangıcı olabilir.
+Amaç, eşin davranışını düşünüp yeni bir başlangıç yapmasıdır.
+
+III. Aile Meclisi: 4:35'te Bahsedilen Üçüncü Seçenek
+Eğer bu üç adım da işe yaramazsa, iki hakemin devreye girmesi tavsiye edilir.
+
+Bu hakemler, her iki tarafın ailelerinden seçilir.
+Amaç, duygusal değil, barışçıl bir çözüm üretmektir.
+Bu yöntem, hem İslam hem de bazı modern hukuk sistemlerinde uygulanan aile arabuluculuğu modeline çok yakındır.
+
+Bu ayet, aile içi çatışmaların Allah’ın huzurunda çözülmesi gerektiğine dikkat çeker.
+
+Küçük kavgalar, büyük yaralar olabilir. Bu nedenle, öfke, alay, dırdır, geçmişe dönük suçlama gibi tutumlar yasaktır.
+Müslümanlar, Allah’ın şahitliği altında yaşadıklarını bilerek, vicdanla hareket etmelidirler.
+Her birey, Allah’ın huzurunda eşit ve sorumludur.
+
+Sonuç: İslam’ın Aile Anlayışı – Adalet, Merhamet ve Barış Üzerine Kurulmuştur
+Bu ayetler, İslam’ın aile yapısına dair temel ilkelerini ortaya koyar:
+
+Ailede liderlik, hâkimiyet değil, sorumluluktur.
+Eşler arasında karşılıklı saygı, sadakat ve sorumluluk vardır.
+Sorunlar, şiddet değil, diyalog ve uzlaşma yoluyla çözülmelidir.
+Her birey, Allah’ın huzurunda eşit ve değerlidir.
+
+
+35. **Eğer ikisinin aralarının açılmasından korkarsanız, biri onun ailesinden, diğeri de kendi soyundan iki hakem tayin edin; eğer barış dilerlerse, Allah onları uzlaştıracaktır: Allah her şeyi bilendir, her şeyden haberdardır.**
+
+Dargın Yüreklere Köprü
+
+Evlilikte çatı çökmeye yüz tutar mı? Allah der ki:
+“Erkeğin ailesinden bir hakem, kadının ailesinden bir hakem salın. Dert neyse ortada konuşulsun.”
+
+Çünkü aile mahkeme değil; içinden sulh fışkıran bir toprak olsun. Hakemler sıcağı alan bir serinlik, kırığı saran bir mendil…
+Eğer barışmak isterlerse Allah yollarını birleştirir.
+İster Latin kıyılarında olsun ister Anadolu bozkırında; hakemin dili merhamettir, adalettir. Sulh varken kin niye, dava niye?
+
+Ailede Kriz Değil Çözüm Üretmek: Hakemlik Sistemi
+
+Kur’an, aile içi krizlerde önce hakkaniyetli bir uzlaşma önerir.
+Bugün pek çok toplumda dava dosyalarına hapsolmuş evlilikler, aslında bir masa başında çözülebilecek meselelerdir.
+İşte Allah burada, hukuku değil, vicdanı öne çıkarır.
+Her iki aileden birer hakem… Tarafsız, dürüst ve barışa niyetli.
+Eğer yüreklerde hâlâ bir kıvılcım varsa, Allah o kıvılcımı ateşe değil, ışığa çevirir.
+
+Pek çok Latin hukuk sistemi, bu yöntemi uygularken, Müslüman toplumların bu güzel emirden uzak durması, Kur’an’a yabancılaşmanın bir başka göstergesidir.
+
+
+36. **Allah’a kulluk edin ve O’na hiçbir şeyi ortak koşmayın. Anaya, babaya, akrabaya, yetimlere, yoksullara, yakın komşuya, uzak komşuya, yanınızdaki arkadaşa, yolda kalmışa ve sağ ellerinizin altında bulunanlara iyilik edin. Çünkü Allah kibirli/küstah, büyüklük taslayanları/gururluları sevmez ;-**
+
+İyiliğin Sınırı Yok 
+
+Allah’a kulluk – bu işin temeli. Sonrası?
+Ana babaya saygı, akrabaya hürmet, yetime kol kanat.
+Komşu yakın, komşu uzak; yoldan geçen, çölde susamış yolcu; kapında çalışan, tırnağıyla evini ayakta tutan… Hepsine iyilik.
+
+Bu iyilik kuru bir “hissiyat” değil – ekmek bölmektir, ter paylaşmaktır.
+Komşuna kap yemek kokusu gitti mi, kapıyı da tıkla, tabağın payını da bırak.
+Yolda kalmışı gördün mü, “Kimse yok” deyip geçme; Allah var, Allah görüyor.
+
+Çünkü bir zaman sen de yolda kalırsın. Bir gün senin evladın da kapı çalar. Ve Allah kibri, övünmeyi sevmez. Kibirli olma; gönlünü alçalt, elini yükselt.
+
+33-35-36. ayetler bir ortak gerçeği yankılar: Adaletle pay, sulhle hayat, iyilikle kul olmak.
+Allah her şeyi görüyor, her şeyi tartıyor.
+O hâlde, payı kesme, sulhu geciktirme, iyiliği esirgeme. Çünkü toprağa ne ekersen, rüzgâr getirir önüne; tarlana ne su dökersen, ürün o suyla doğar.
+
+Ve unutma: “Allah her şeye şahittir.”
+
+İyilikle Var Olmak: Sadece Kula Değil, Yaradan’a da Yakın Olmak
+
+“Allah’a kulluk edin ve O’na hiçbir şeyi ortak koşmayın. Ana-babaya, akrabaya, yetimlere, ihtiyaç sahiplerine, yakın komşuya, uzak komşuya, yanınızdaki arkadaşa, yolda kalmışa ve sağ elinizin altında bulunanlara iyilik edin. Allah, kibirlenenleri ve övünenleri sevmez.”
+
+Bu ayet, Kur’an’ın en kapsamlı ahlak manifestolarından biridir.
+İman, sadece inanç değil; davranışla ispatlanmış bir sadakattir.
+
+İyilik yalnızca kalple değil, el, dil, sofra ve zamanla yapılır.
+
+Yakın komşunla lokmanı paylaş.
+
+Yolda kalmışa, bir selam yeter bazen.
+
+Yanındaki işçiye, sadece ekmek değil, onur da ver.
+
+Elinin altında çalışanı unutma; çünkü senin gücün, onun emeğiyle ayakta durur.
+
+Bu, yalnızca insanla sınırlı değil. Hayvana, ağaca, toprağa da iyilik…
+İslam, “komşunu sev” ilkesini duygusal bir temenniden çıkarır, göreve dönüştürür.
+Muhacir ile Ensar arasındaki kardeşlik de bunun en güzel örneğidir.
+Mekke’den Medine’ye göçenler, yurtlarını bırakırken, Ensar onlara sadece evlerini değil, miraslarını da açtılar.
+İşte böyle inşa edilir bir ümmet.
+
+
+37. **Cimrilik eden, başkalarına cimriliği emreden/tavsiye eden ve Allah’ın kendilerine verdiği nimeti gizleyen kimseleri de; Biz, inkar edenler için, onların hor görülmelerine yol açacak bir azap hazırladık;-**
+
+Cimrilik dediğin sadece elini cebine atmamak değildir. İnsan vardır, boğazından geçen lokmayı başkasıyla paylaşmaz. Ama daha beteri var: Paylaşanı da taşlar, kötü gözle bakar. “Yapma, verme, boşa gider” der. İşte Allah onlara gazap eder. Hem kendini kıyar, hem başkasını yoldan çıkarır.
+
+Allah birine mal vermişse, akıl vermişse, söz vermişse… Bu onun imtihanıdır. Gizlemesin, saklamasın, paylaşsın. Paylaşmadığı her nimet, bir gün sahibinin yakasına yapışır. Çünkü nimet saklanmaz, gizlenmez. O bir lütuftur, yüküyle gelir.
+
+Ve kibir…
+Cimriliğin kardeşidir.
+İnsan kendini büyük gördüğünde, kalbi kurur. O zaman hem vermez hem söylenir: “Bunlar hak etmez, ben çok çalıştım.” Hâlbuki Allah sana, çalıştığın için değil, rahmetiyle vermiştir. Unutma bunu.
+
+Kimi insanlar başkasının yediği ekmeğe bile göz diker. Kendisi doyar ama komşusu aç kalınca içi rahat eder. Çünkü o, paylaşmanın insanı insan ettiğini bilmez. Çünkü onun kalbi taşlaşmış, gözü körleşmiştir.
+
+Ve Allah böylelerine ne der?
+Hor görülecekleri bir azap…
+Dünyada büyüklük taslayan, ahirette küçülür.
+Burada insanı küçük gören, orada yerin dibine geçer.
+
+Çünkü Allah, kim ne sakladıysa bilir. Kim hangi nimeti gizlediyse, kim neyi paylaşmadıysa, onun da hesabını sorar.
+
+
+
+a. Cimrilik Sadece Para Eksikliği Değildir
+Genelde cimrilik denilince akla para tutkunu bir kişi gelir. Ama Kur’an burada çok daha kapsamlı bir tanım yapıyor:
+
+Cimri , sadece parasını paylaşmayan kişi değildir.
+Aynı zamanda:
+Allah’ın verdiğinin farkında olmayandır .
+Kendisine bahşedilen nimetleri saklayan kişidir .
+Başkalarını da cimri olmaya teşvik edendir .
+Yani cimrilik, paylaşmama kadar başkalarının da paylaşmasını engelleme niyetiyle birlikte yürür.
+
+b. Kibir ve Cimrilik – Allah’a Sevgi ve İman Eksikliğinin İki Yüzü
+İşaret ettiğin gibi, kibir ve cimrilik aslında aynı kökten gelir:
+
+Kibirli kişi , kendini diğerlerinden üstün görür.
+Cimri kişi , sahip olduklarıyla övünür ama başkalarıyla paylaşmaktan kaçınır.
+Her ikisi de, Allah'ın nimetinin farkında olmayan ve bu yüzden insanlara karşı soğuk kalır.
+Kur’an her ikisini de reddeder çünkü:
+
+Kibir, Allah’a karşı gururla durmak,
+Cimrilik ise, O’nun lütfundan yararlanmayı reddetmek ve başkalarını da aynı yola yönlendirmektir.
+Her ikisi de Allah sevgisi eksikliğinden kaynaklanır. Çünkü gerçek sevgi, paylaşma ve merhamettir.
+
+c. Cimrinin Gerçek Hali – Örtülü Aşağılık Duygusu
+
+Cimri kişi, başkalarını hor gören ama aslında kendisini aşağılık hisseden kişidir .
+
+Onun “tedbirli” ya da “bilge” görünmesi, aslında güvensizliğin ve ego savunmasının maskesidir .
+Nimetleri gizlemesi, “benim olanı paylaşsam azalır” korkusundan değil, kendini değerli hissetme ihtiyacıyla yapılır.
+Başkalarını da cimri yapmak istemesi ise, kendi eksiğini gizlemek içindir . Böylece yalnız kalmaz, suç ortakları oluşur.
+Bu nedenle Kur’an, cimrilere yönelik cezayı şöyle tanımlıyor:
+
+“...onların hor görülmelerine yol açacak bir azap hazırladık.” 
+
+Bu ceza, suçun doğasına uygun : Cimri kişi, dünyada başkalarını hor gördüğü için ahirette kendisi horlanır ; cömertliği bastırdığı için nimetten mahrum kalır .
+
+Sonuç: Gerçek Cömertlik, Kalpten Gelir
+Bu ayet bize şunu hatırlatıyor:
+
+Cömertlik , sadece mal vermek olarak düşünülebilir ama asıl cömertlik, kalpten gelen bir erdemdir .
+Paylaşmak, Allah’ın nimetlerine şükretmenin , onu seven bir kul olarak davranmanın bir yoludur.
+Cimrilik ve kibir ise, imanın eksikliğini gösteren işaretlerdir .
+
 
 
 38. **Allah’a ve ahiret gününe inanmadıkları halde, insanlara gösteriş için mallarından harcayanlar: Kim şeytanı kendine yakın edinirse, o ne kötü yakındır!**
@@ -384,9 +781,123 @@ Evlilik, bir kazanç değil, bir emanet işidir. Adalet ister, vicdan ister. Kad
 
     Çünkü Allah her şeyi bilir. Ve Allah için olan her şey, boşa gitmez.
 
-39. Allah’a ve ahiret gününe inansalar ve Allah’ın kendilerine verdiği rızıktan harcasalardı, üzerlerine ne yük olurdu? Oysa Allah, onları hakkıyla bilmektedir.
-40. Allah hiçbir şekilde zerre kadar zulmetmez: Eğer bir iyilik yapılırsa onu ikiye katlar ve katından büyük bir mükâfat verir.
-41. Her ümmetten birer şahit getirdiysek, Seni de bu insanlara karşı şahit olarak getirdik!
+
+
+39. **Allah’a ve ahiret gününe inansalar ve Allah’ın kendilerine verdiği rızıktan harcasalardı, üzerlerine ne yük olurdu? Oysa Allah, onları hakkıyla bilmektedir.**
+
+
+İnanan insan verir.
+Yüreğiyle verir, eliyle verir, zamanı geldiğinde sözüyle verir. Çünkü bilir ki, sahip olduğu her şey, aslında kendisine ait değildir. Ona bir emanet bırakılmıştır. Ve emaneti taşıyan, onu saklamak için değil, paylaşmak için vardır.
+
+Allah sana para vermiş olabilir. Belki sağlığın yerindedir. Belki aklın çalışır. Bunların hepsi rızıktır. Ve hepsi hesap ister.
+Kimi rızkı parayla ölçer, kimi zamanla, kimi sevgisiyle. Ama unutma: Rızık sadece lokmayla, dirhemle olmaz. Vaktin de nimettir, sabrın da, bildiğin de.
+
+Eğer gerçekten Allah’a inanıyorsan, eğer Ahiret’e inanıyorsan, şu soruyu soramazsın: “Niye vereyim?”
+Çünkü sen Allah’ın kullarından bir kul, Onun verdiğini yine O’nun kullarıyla bölüşmekle yükümlü bir emanetçisin.
+Vermezsen, eksilmezsin; ama vermezsen, içten eksilirsin.
+
+Ve Allah…
+Senin neye ne kadar sahip olduğunu bilir.
+Ne niyetle verdiğini, neyi ne için sakladığını da bilir.
+Kalbindeki gizliyi, kimsenin görmediğini de görür.
+
+İşte bu yüzden cömertlik, parayla değil yürekle ölçülür.
+Ve inanç dediğin, sadece kelime değil; bir davranıştır.
+Gerçek mümin, verirken susar.
+Ama Allah, onun hesabını tutar.
+
+
+Bu ayet, insanın Allah’a inandığında cömertliğin doğal hale geldiğini vurgular.
+
+Eğer gerçek anlamda Allah’a güvenen ve Ahiret gününe inanan bir kişi olsaydık, Allah’ın bize verdiği nimetlerden başkalarıyla paylaşmak, bizim için bir yük değil, bir içsel ihtiyaç olurdu.
+Çünkü Allah, varlığımızı , nimetlerimizi , zamanımızı , bilgimizi , sağlığımızı bize emanet olarak vermiştir.
+Onun verdiği şeyleri paylaşmak, O’na olan emanete sadık kalmak demektir.
+
+Rızkımız Sadece Maddi Değildir.
+
+"Rızkımız" sadece fiziksel değildir; aynı zamanda entelektüel, manevi ve hayatla ilgili her şeydir. 
+
+Rızkımız:
+Para ve mal olabilir,
+Zaman ve enerji olabilir,
+Bilgi ve yetenek olabilir,
+Sevgi ve sabır olabilir.
+Her şey, Allah’ın bize sunduğu bir nimettir. Ve her nimet, başkalarına da fayda sağlayacak şekilde kullanılmaya yöneliktir.
+
+Biz Allah’a Hizmet Ediyoruz, Allah Bize Hizmet Etmiyor
+
+“Varlığımız Allah’tan geliyor, bu yüzden kendimizi Allah yolunda özgürce harcamak zorundayız.” 
+
+Biz, Allah’a karşı borçlu varlıklıyız. O, bize varlığı bahşetmiş, biz ise O’nun rızasını kazanmak için bu varlığı hizmete sunmalıyız .
+Cömertlik, yüklü bir görev değil; sağlam ve sağlıklı bir ruhun doğal tepkisidir .
+Gerçek inanan kişi, “Niye harcayayım?” diye düşünmez. 
+
+Allah Bilendir, Her Şeyi Bilir
+
+Allah, bizim ne kadar verebildiğimizi , ne niyetle verdiğimizi , nasıl sakladığımızı ya da ne ölçüde paylaştığımızı bilir.
+O, görünmeyeni de görendir , kalbi okuyandır .
+Bu nedenle, cömertlik ya da cimrilik yalnızca maddi bir davranış değil, aynı zamanda imanın ya da iman eksikliğinin bir göstergesidir .
+
+Cömertlik, İmanın Doğal Sonucudur
+
+Gerçek inanç, sadece söz ile değil , el ve kalp ile de yapılan bir duruştur .
+Allah’a inanan kişi, O'nun nimetlerini başkalarıyla paylaşmaktan çekinmez.
+
+
+40. **Allah hiçbir şekilde zerre kadar zulmetmez: Eğer bir iyilik yapılırsa onu ikiye katlar ve katından büyük bir mükâfat verir.**
+
+İyilik dediğin, sadece bir ekmek verip geçmek değildir. Bir elin uzanışı, bir sözün zamanında söylenişi, bir suskunluğun bile anlam taşıdığı yer vardır bu hayatta. Ama asıl mesele, o iyiliği neyle yaptığın… Elinle mi? Hayır, yüreğinle.
+
+Kalp temizse, el kir tutmaz. Niyetin doğruysa, en küçük hareketin bile yankısı büyük olur. Bazen bir selam, bazen bir duayla değişir yazgılar.
+Ama unutma: İyilik, sadece senin yaptığın şey değildir. Aslında Allah’ın sana kendi ışığını/nurunu yansıtmasıdır.
+
+Birini ayağa kaldırdın mı, bir kapıyı açtın mı, bir yükü hafiflettin mi, sanma ki sadece o iş oldu bitti. Allah, o iyiliği alır, büyütür. Katlar, çoğaltır.
+Belki bir gün biri sana sebepsizce yardım eder, işte orada anlarsın: O iyilik geri döner.
+
+Ama bütün bunların üstünde bir ödül vardır ki, altınla ölçülmez, sözle anlatılmaz: Allah’ın senden razı olması.
+İşte o razı oluş var ya, insanın içine öyle bir huzur salar ki, bütün dünya alkışlasa yine de onun yerini tutmaz.
+Razı oluş, O’na yakın olmak demektir. Ve O’na yakın olanın kalbinde dert barınmaz, kibir barınmaz, korku da uzun süre durmaz.
+
+Biz iyi olduğumuz için değil, Allah bize özgür irade ve akıl bahşederek fırsat verdiği için doğru seçimlerle iyiyiz. Bizim yaptığımız, O’nun bize açtığı kapıdan geçmektir.
+Ve ne zaman iyilik yapsan, unutma: O kapı sana özel açıldı. Senin kalbin, o an için seçildi.
+
+Kendi küçük iyiliklerimizin her biri, kalbimizin arınmasından kaynaklanır. Dünya hayatında bu iyiliklerin sonuçları, Allah’ın lütfu ve merhameti sayesinde katlanır ve çoğalır; ancak asıl büyük ödül, O’nun yakınlığından ve O’nun razı oluşundan gelir. Bu razı oluş bizi O’na daha çok yaklaştırır.
+
+a. İyilik Sadece Eylem Değildir, Niyettir
+Her iyi söz, yardım ya da sessiz dua aslında kalbin temizliğinden doğar. İslam’da “amal” (fiil) kadar “niyet” de önemlidir. Çünkü:
+
+Kalp temizse , elin yaptığı iş de temiz olur.
+Niyet doğruysa , en küçük iyilik dahi Allah katında büyüyebilir.
+
+b. Allah’ın Lütfu: İyiliğimizi Katlayıp Bize Geri Verir
+Bir insanın yaptığı bir iyilik, dünyada sadece o anlık bir yardım gibi görünse de:
+
+Allah onu çok daha fazlasıyla karşılıksız artırır .
+Bu artış maddi olarak da görülebilir, manevi olarak da: Barış, huzur, şifa, fırsatlar...
+
+
+c. En Büyük Ödül: Allah’ın Razı Oluşudur
+Dünya ödülünün ötesinde, Allah’ın razı oluşu en büyük kazançtır. Çünkü:
+
+Bu razı oluş, insanı Allah’a yaklaştırır .
+Bu razı ile birlikte gelen manevi huzur ve mutluluk , bedensel tüm hazlardan üstündür.
+Ahirette Allah’ın rahmetine eren kişi, sonsuz mutluluğa kavuşmuş demektir.
+Sonuç: Hayatımızda Yer Alan Her İyi Şey, Bir Bağıştır
+Bu düşünce bize şu önemli mesajı veriyor:
+
+Bizim iyiliğimiz, O’nun bize sunduğu arınma imkanının sonucudur.
+Bu yüzden her yaptığımız iyilik, aslında O’nun nimetini yansıtmaktır.
+
+
+
+41. **Her ümmetten birer şahit getirdiysek, Seni de bu insanlara karşı şahit olarak getirdik!**
+
+"Ve her ümmetten bir şahit çekeriz ve “Kanıtınızı getirin” deriz; o zaman onlar, hakkın yalnızca Allah’ta olduğunu anlarlar ve uydurdukları yalanlar onları yüzüstü bırakır." : Kasas 75
+
+"Ey Peygamber! Biz seni gerçekten bir şahit, bir müjdeleyici ve bir uyarıcı olarak gönderdik,-
+Ve O’nun izniyle Allah’ın lütfuna/rahmetine çağıran bir kimse ve nur saçan bir kandil olarak.
+O hâlde müminlere Allah’tan pek büyük bir lütuf/cömertlik bulacaklarını müjdele." : Ahzab 45-47
+
 42. O gün inkar edenler ve elçiye isyan edenler, keşke yeryüzü kendileriyle bir olsaydı diye/birleşmesini dileyecekler: Ama Allah’tan hiçbir gerçeği gizlemezler.
 43. Ey iman edenler! Salata, ne söylediğinizi anlayıncaya kadar kafanız buğulu bir şekilde, ne de cünüplük halinde, ancak yolculuk hali müstesna olarak, bütün vücudunuzu yıkayana dek yaklaşmayın. Eğer hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz kum veya toprak alın ve onunla yüzlerinize ve ellerinize sürün. Çünkü Allah günahları siler ve tekrar tekrar bağışlar.
 44. Kendilerine Kitap’tan bir pay verilenleri görmedin mi? Onlar, sapıklıkta ticaret yaparlar ve sizin doğru yolu şaşırmanızı isterler.
