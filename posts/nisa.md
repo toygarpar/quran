@@ -2632,59 +2632,769 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 127. **Kadınlar hakkında sana öğüt soruyorlar de ki: Allah, onlar hakkında size şöyle öğüt veriyor: Kendilerine farz payları vermediğiniz halde nikâhlamak istediğiniz kadınların yetimlerine dair, zayıf ve mazlum/baskılanmış çocuklar hakkında da Kitap’ta size okunanları hatırlayın; yetimlere adalet için dik durmanız gerekmektedir/dik durunuz. Yaptığınız hiçbir iyilik yoktur ki, Allah onu hakkıyla bilmesin.**
 
 
-Bu ayet, bir toplumun vicdanına dokunur.
-Yetimlerin, dul kadınların, zayıf çocukların sesini duymayan bir topluma Allah kendi kitabından seslenir:
-“Onlara adaletle yaklaşın.”
+    Bu ayet, bir toplumun vicdanına dokunur.
+    Yetimlerin, dul kadınların, zayıf çocukların sesini duymayan bir topluma Allah kendi kitabından seslenir:
+    “Onlara adaletle yaklaşın.”
 
-Uhud’un ardından Medine sokaklarında bir sessizlik dolaşıyordu.
-Birçok erkek savaşta düşmüş, geride kadınlar ve çocuklar kalmıştı.
-Kimisi evinin direğini kaybetmişti, kimisi babasının sıcak sesini.
-Ve o boşlukta, bazıları fırsat aradı:
-Dul kadınların mallarına el uzatmak, yetimlerin mirasını kendi hanesine geçirmek için.
-Ayet, işte o haksızlığa indirilmiş bir kılıç gibidir.
+    Uhud’un ardından Medine sokaklarında bir sessizlik dolaşıyordu.
+    Birçok erkek savaşta düşmüş, geride kadınlar ve çocuklar kalmıştı.
+    Kimisi evinin direğini kaybetmişti, kimisi babasının sıcak sesini.
+    Ve o boşlukta, bazıları fırsat aradı:
+    Dul kadınların mallarına el uzatmak, yetimlerin mirasını kendi hanesine geçirmek için.
+    Ayet, işte o haksızlığa indirilmiş bir kılıç gibidir.
 
-“Onları koruyun,” der Allah,
-“Onların hakkını gasp etmeye çalışmayın, hakkını verin.”
+    “Onları koruyun,” der Allah,
+    “Onların hakkını gasp etmeye çalışmayın, hakkını verin.”
 
-Zulüm burada iki şekilde gelir:
-Birincisi, miras hakkını vermemekle — çünkü zayıf olanın sesi kısık çıkar.
-İkincisi, nikâhı bir kalkan gibi kullanıp, menfaati sevgiye dönüştürmekle.
-İslam, bu iki yüzlü adaleti reddeder.
-Bir kadın ya da bir çocuk, toplumda en az güce sahip olandır — işte bu yüzden Allah’ın himayesi tam da onların üzerindedir.
+    Zulüm burada iki şekilde gelir:
+    Birincisi, miras hakkını vermemekle — çünkü zayıf olanın sesi kısık çıkar.
+    İkincisi, nikâhı bir kalkan gibi kullanıp, menfaati sevgiye dönüştürmekle.
+    İslam, bu iki yüzlü adaleti reddeder.
+    Bir kadın ya da bir çocuk, toplumda en az güce sahip olandır — işte bu yüzden Allah’ın himayesi tam da onların üzerindedir.
 
-“Yetimler için adaleti ayakta tutun.”
-Bu sadece bir emir değil, bir vicdan ölçüsüdür.
-Bir toplum, en zayıfına nasıl davrandığıyla tartılır.
-Zenginine, güçlüye, nüfuzluya nasıl davrandığıyla değil — yetimine, duluna, kimsesize nasıl davrandığıyla.
+    “Yetimler için adaleti ayakta tutun.”
+    Bu sadece bir emir değil, bir vicdan ölçüsüdür.
+    Bir toplum, en zayıfına nasıl davrandığıyla tartılır.
+    Zenginine, güçlüye, nüfuzluya nasıl davrandığıyla değil — yetimine, duluna, kimsesize nasıl davrandığıyla.
 
-Ve son cümle:
-“Yaptığınız hiçbir iyilik yoktur ki Allah onu bilmesin.”
+    Ve son cümle:
+    “Yaptığınız hiçbir iyilik yoktur ki Allah onu bilmesin.”
 
-Bu, bir yemin gibidir.
-İyilik gizli de olsa, gece bir lokmayı yetimle paylaşmak kadar sade de olsa, Allah onu görür.
-Ve zulüm, ne kadar sessiz işlenirse işlensin, Allah onu da bilir.
+    Bu, bir yemin gibidir.
+    İyilik gizli de olsa, gece bir lokmayı yetimle paylaşmak kadar sade de olsa, Allah onu görür.
+    Ve zulüm, ne kadar sessiz işlenirse işlensin, Allah onu da bilir.
 
-Bu ayet, yalnızca bir dönemi değil, her çağı uyarır:
-Bir toplum, yetimini korumuyorsa, kendini koruyamaz.
-Zayıfın hakkını yiyen, sonunda kendi toprağını kurutur.
-Çünkü Allah’ın yasası budur:
-Adalet yoksa bereket de yoktur.
+    Bu ayet, yalnızca bir dönemi değil, her çağı uyarır:
+    Bir toplum, yetimini korumuyorsa, kendini koruyamaz.
+    Zayıfın hakkını yiyen, sonunda kendi toprağını kurutur.
+    Çünkü Allah’ın yasası budur:
+    Adalet yoksa bereket de yoktur.
 
 
-128. Bir kadın, kocasının zulmünden/gaddarlık yapmasından veya yüz çevirmesinden korkarsa, kendi aralarında barışçıl anlaşmayla sulh yapmalarında kendilerine bir vebal/suç/günah yoktur; ve erkeklerin ruhları açgözlülük tarafından yönetilse bile, böyle bir anlaşma en iyisidir; Ama eğer iyilik eder ve sakınırsanız, Allah yaptıklarınızdan haberdardır.
-129. Kadınlar arasında, canınız çok istese de, olması istediğiniz gibi makul/adaletli ve adil olamazsınız: Ama onu havada asılı bırakmak için bir kadından tamamen yüz çevirmeyin. Dostça bir anlayışa varır ve kendinize hakim olursanız, Allah çok bağışlayandır, çok merhamet edendir.
-130. Fakat eğer anlaşmazlığa düşerler ve ayrılmak zorunda kalırlarsa, Allah geniş lütfundan herkese rızık verir: Allah, her şeyi gözetendir, hüküm ve hikmet sahibidir.
-131. Göklerde ve yerde olan her şey Allah’ındır. Muhakkak ki biz sizden önceki Kitap Ehli’ne ve size Allah’tan korkun diye emretmiştik. Ama eğer O’nu inkar ederseniz, işte bilin ki! Göklerde ve yerde olan her şey Allah’ındır. Allah, her şeyden münezzehtir, her türlü övgüye lâyıktır.
-132. Evet, göklerde ve yerde her şey Allah’ındır ve Allah, bütün işleri başarmaya yeterdir.
-133. Ey insanlar, dileseydi sizi yok eder, başka bir ırk/soy/cins yaratırdı; çünkü O’nun bunu yapmaya gücü vardır.
-134. Kim bu dünyada bir mükâfat/sevap isterse, Allah’ın lütfunda hem dünya hem de ahiret mükâfatı/sevabı vardır; Çünkü Allah, her şeyi işiten ve görendir.
-135. Ey iman edenler! Kendiniz, ana-babanız, akrabalarınız aleyhine de olsa, zengine, fakire karşı da olsa, Allah’ın şahitleri olarak adaleti ayakta tutun: Allah her ikisini de en iyi koruyandır. Nefsinizin hevâsına uymayın, yoksa saparsınız ve eğer adaleti saptırırsanız veya adaleti yerine getirmekten kaçınırsanız, şüphesiz Allah, yaptıklarınızdan haberdardır.
-136. Ey iman edenler! Allah’a, Peygamberine, Peygamberine indirdiği yazıta/Kitaba ve kendisinden öncekilere indirdiği yazıta/kitaplara iman edin. Kim Allah’ı, meleklerini, kitaplarını, peygamberini ve ahiret gününü inkar ederse, çok uzak bir sapıklığa düşmüştür.
-137. İman edip sonra inkâr eden, sonra tekrar iman edip tekrar inkâr eden ve inkârlarında ileri gidenler var ya, Allah onları ne bağışlayacak, ne hidâyete erdirecek, ne de doğru yola iletecektir.
-138. Münafıklara müjdele ki onlar için elem verici bir azap vardır.
-139. Evet, müminleri bırakıp da kâfirleri dost edinenlere gelince, aralarında izzet mi/onur mu arıyorlar? Hayır, bütün izzet/onur Allah’ındır.
-140. Allah size kitapta şu sözü indirdi: Allah’ın âyetlerinin alaya alındığını ve saygısızlık yapıldığını işittiğiniz zaman, başka bir konuya dönmedikçe onlarla birlikte oturmayın: Eğer yapsaydınız/otursaydınız, onlar gibi olurdunuz. Çünkü Allah, münafıkların ve kâfirlerin hepsini cehennemde toplayacaktır:-
-141. İşte onlar beklerler ve siz izlerler: Eğer Allah katından bir zafer kazanırsanız, “Biz sizinle beraber değil miydik?” derler. -Fakat kâfirler bir başarı elde ederlerse, onlar der ki: “Biz sizin üstün gelmenizi sağlamadık mı ve sizi mü’minlerden korumadık mı?” Ancak Allah, kıyamet günü aranızda hüküm verecektir. Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecektir.
+128. **Bir kadın, kocasının zulmünden/gaddarlık yapmasından veya yüz çevirmesinden korkarsa, kendi aralarında barışçıl anlaşmayla sulh yapmalarında kendilerine bir vebal/suç/günah yoktur; ve erkeklerin ruhları açgözlülük tarafından yönetilse bile, böyle bir anlaşma en iyisidir; Ama eğer iyilik eder ve sakınırsanız, Allah yaptıklarınızdan haberdardır.**
+
+
+    Bir kadın, kocasının gaddarlığından yahut yüz çevirmesinden korkarsa,
+    ikisi kendi aralarında barış yoluyla bir anlaşmaya varırlarsa bunda hiçbir günah yoktur.
+    İnsan nefsinin cimriliğe, bencilliğe meyilli olduğunu Allah bilir.
+    Ama böylesi bir uzlaşma — ne kadar ağır olursa olsun — ayrılıktan, yıkımdan daha hayırlıdır.
+    Ve eğer iyilik eder, ölçülü davranırsanız, bilin ki Allah yaptığınız her şeyi görür.
+
+    Bu ayet, insan kalbinin en çetin sınavına dokunur:
+    Bir yuvada sevgi solmuş, anlayış kaybolmuş, güven sarsılmışsa,
+    oradan ya öfke çıkar ya merhamet.
+    İşte Allah, merhameti hatırlatır.
+
+    Kadının korkusu, Allah katında ciddidir.
+    O korku, sadece bir duygunun sarsıntısı değil, insan onurunun titremesidir.
+    Bir kadın, eşinden zulüm görürse yahut sevgisizliğin sessiz cehenneminde kalırsa,
+    susmak zorunda değildir.
+    Ayet, kadının sesine kulak verir — onu susturmaz, onu korur.
+
+    Barışla çözüm...
+    Kur’an bu sözü “sulh” diye anar; içinde hem akıl vardır hem vicdan.
+    İki taraf da, biraz kırılarak ama tamamen yıkılmadan,
+    bir ortak yol bulabilir.
+    Belki kadın, bazı haklarından vazgeçer;
+    belki erkek, yüreğini yumuşatır, gururundan bir adım geri atar.
+    Ve işte o küçük adım, Allah katında büyük bir iyiliktir.
+
+    Çünkü insanın tabiatı bencildir — bunu Allah söyler.
+    İnsan çoğu zaman “benim” der, “bizim” demez.
+    Ama en üstün olan, o cimriliği yenebilendir.
+    İyiliği seçen, adaleti gözeten, kendi nefsine rağmen merhamet edendir.
+
+    Evlilik, İslam’da bir sözleşmeden fazlasıdır;
+    iki kalbin, iki kaderin ortak emaneti.
+    Ve bu emanet çatırdamaya başladığında, Allah hemen boşanmayı değil, barışı öğütler.
+    Çünkü bazen bir kelime, bir özür, bir fedakârlık, bir evi yıkılmaktan kurtarır.
+
+    Ama ayet, sadece erkeğe ya da kadına değil,
+    herkese aynı uyarıyı fısıldar:
+    “Maddi çıkarlar geçer gider.
+    Adalet, merhamet ve aile huzuru ise Allah katında ebedidir.”
+
+    Ve sonunda o büyük cümle gelir:
+    “Allah, yaptıklarınızın hepsini hakkıyla bilir.”
+
+    Bu söz, hem bir uyarıdır hem bir teselli.
+    Zulmeden için korku, sabreden için umut.
+    Çünkü hiçbir fedakârlık, hiçbir sessiz iyilik,
+    Allah’ın nazarında kaybolmaz.
+
+
+
+129. **Kadınlar arasında, canınız çok istese de, olması istediğiniz gibi makul/adaletli ve adil olamazsınız: Ama onu havada asılı bırakmak için bir kadından tamamen yüz çevirmeyin. Dostça bir anlayışa varır ve kendinize hakim olursanız, Allah çok bağışlayandır, çok merhamet edendir.**
+
+Bu ayet, insan kalbinin en zor gerçeğini anlatır:
+Kalp, terazisi şaşmaz bir adalet terazisi değildir.
+Birine biraz daha yakın hisseder, birine biraz daha uzak...
+Ve Allah, bu zayıflığı bilir; çünkü insanı o yaratmıştır.
+
+Ama bilir diye mazur da görmez.
+Çünkü adalet, insanın iç dünyasında başlamalıdır.
+Birini sevmek, ötekine zulmetmeye bahane olamaz.
+Bir kadını sevmez oldun diyelim;
+onu ne özgür bırakırsın, ne de gönlünü onarırsın — öylece bekletirsin, havada asılı…
+İşte Kur’an buna karşı çıkar.
+
+“Havada asılı bırakmak” —
+bu, ne boşamak ne de eş gibi davranmaktır.
+Kadını bir gölge gibi yaşatmak, ne hayat vermek ne de hayatından vazgeçmektir.
+Böylesi bir haksızlık, hem kalbi hem de hukuku yaralar.
+Ayet der ki:
+“Tamamen yüz çevirmeyin.”
+Yani, duygun sönse de insanlığın sönmesin.
+
+Allah, insanın içinden geçeni bilir;
+onun kıskançlığını, zayıflığını, eğilimlerini.
+Ama bu ayet, insanı bu duyguların bahanesine sığınmaktan alıkoyar.
+Çünkü adalet, sadece duygularla değil, iradeyle mümkündür.
+Ve irade, merhametin kardeşidir.
+
+O yüzden Kur’an, “dostça bir anlayışa varın” der.
+Barışın yolu açıktır — yeter ki gurur kapatmasın, kibir susturmasın.
+Bir sözü yumuşatmak, bir yüzü güldürmek, bazen bir evin yıkılmasını engeller.
+
+İslam, insanı gerçeğiyle kabul eder — ne melektir ne de hayvan.
+O yüzden dört eşe izin verir ama kalbi ikiye bölmeyi değil, adaleti şart koşar.
+Ve sonra uyarır:
+“Adalet tam sağlanamaz.”
+Bu, hem bir ruh terbiyesidir hem de ince bir hatırlatma:
+Yasalar izin verebilir, ama vicdanın sınırı başkadır.
+
+Sonunda ayet, her şeyin özünü bir cümleyle bağlar:
+“Allah çok bağışlayandır, çok merhametlidir.”
+
+Bu söz, sadece bir müjde değil, bir sorumluluktur da.
+Çünkü bağışlanmak, zulmü sürdürmek için değil, hatayı fark edip ondan dönmek içindir.
+Ve merhamet, sadece Allah’a ait bir sıfat değil,
+O’na yaklaşmak isteyenin kalbinde yeşermesi gereken bir haldir.
+
+
+Kur’an’da çok eşlilik hukuken tamamen reddedilmez; çünkü indiği dönemde —özellikle savaş sonrası— toplumun yapısı içinde dul kadınlar ve yetimlerin korunması için bir tür sosyal sorumluluk kapısıydı bu.
+
+Kur’an,  o izni adalet şartına bağlar: Nisa3, Nisa 129
+
+Yani Allah, insanın kalbini biliyor. Duyguların eşit olamayacağını, sevgiyi terazide tartamayacağını biliyor.
+
+Bu yüzden, açıkça şunu ima ediyor:
+
+Çok eşlilik teorik olarak serbesttir ama pratikte neredeyse imkânsız bir adaleti şart koşar.
+Bu da fiilen, tek eşliliği ahlaken üstün ve tercih edilir kılar.
+
+Kısacası, Kur’an burada “yasaklamıyor” ama “uyarıyor”:
+— Eğer insan kalbi gerçekten dengede olamayacaksa, adalet tam sağlanamayacaksa,
+— O zaman tek eşlilik hem vicdana hem imana daha uygundur.
+
+Bu yüzden İslam’ın özü, tek eşliliği ahlaki norm olarak işaret eder.
+Çok eşlilik ise, istisnai bir ruhsat, bir “zorluk anı çözümü” olarak kalır.
+
+
+130. **Fakat eğer anlaşmazlığa düşerler ve ayrılmak zorunda kalırlarsa, Allah geniş lütfundan herkese rızık verir: Allah, her şeyi gözetendir, hüküm ve hikmet sahibidir.**
+
+
+131. **Göklerde ve yerde olan her şey Allah’ındır. Muhakkak ki biz sizden önceki Kitap Ehli’ne ve size Allah’tan korkun diye emretmiştik. Ama eğer O’nu inkar ederseniz, işte bilin ki! Göklerde ve yerde olan her şey Allah’ındır. Allah, her şeyden münezzehtir, her türlü övgüye lâyıktır.**
+
+
+    Göklerde ne varsa, yerde ne varsa hepsi Allah’ındır. Ne yıldızlar kendi ışığına, ne toprak kendi bereketine sahiptir. Her şey O’ndan doğar, O’na döner.
+    İşte bu yüzden Allah, hem sizden öncekilere hem de size, “O’ndan sakının!” diye seslendi. Çünkü insan, sahip olduğunu sandığı şeylerin gerçek sahibini unuttu mu, zulüm orada başlar.
+
+    Ama kim yüz çevirirse, bilsin ki Allah’ın mülkü eksilmez. O’nun göklerinde ne eksilir, O’nun yeryüzünde hangi nimet tükenir?
+    Her şey O’nundur; ve O, her türlü övgüye layıktır — çünkü hiçbir şeye muhtaç değildir.
+
+
+
+    Bu ayet, bir yandan insanı küçültür, bir yandan onu onarır. Çünkü insanın kalbi, bazen sahip olduklarıyla büyür, bazen kaybettikleriyle küçülür. Ama Allah’ın hükmünde, ne kazançta övünmek vardır, ne kayıpta yıkılmak. Her şey O’nun kudret elindedir.
+
+    Evlilikte, ticarette, dostlukta — insanlar birbirine bağlıdır; ama o bağlar çözülse bile, Allah’ın rahmeti çözülmez.
+    Bir ev yıkılır, bir dost gider, bir kalp kırılır; fakat Allah’ın lütfu tükenmez. O, boşluğu doldurur, yeniden verir, yeniden diriltir.
+    Çünkü O, **“her şeye sahip olan”**, **“her eksiklikten uzak olandır.”**
+
+
+
+    Allah’ın emirleri, O’nun ihtiyacından değil, insanın fıtratından doğar.
+    İnsan merhamete, adalete, sadakate muhtaçtır — çünkü bunlar, ruhun gıdasıdır.
+    İşte bu yüzden Allah’ın yasaları, “böyle emrettim” keyfiyetiyle değil, “böyle olursan insan olursun” hikmetiyle iner.
+
+    Davranışçıların dediği gibi, ahlak sadece öğrenilmiş bir alışkanlık değildir.
+    Kur’an’ın öğrettiği ahlak, insanın yaratılışında zaten vardır.
+    Yani Allah’ın emirleri dıştan değil, içten gelir.
+    Kalbin derininden, vicdanın en sessiz yerinden.
+
+
+
+    Ve sonunda ayet der ki:
+
+    > “Allah, her şeyden münezzehtir, her türlü övgüye layıktır.”
+
+    Bu, bir dua değil, bir fark ediştir.
+    İnsanın sınırını bildiği, sahiplik vehminden sıyrıldığı andır bu.
+    Çünkü asıl teslimiyet, kaybettiğinde bile O’na güvenmektir.
+
+    Ve o zaman anlarsın:
+    **Ahlak, iman, sabır, sevgi — hepsi Allah’a ait bir hikmetin yankısıdır.**
+    O yankı, göklerde de vardır, yerin taşında da, insanın kalbinde de.
+
+
+
+
+132. **Evet, göklerde ve yerde her şey Allah’ındır ve Allah, bütün işleri başarmaya yeterdir.**
+
+
+    Evet, göklerde ve yerde ne varsa hepsi Allah’ındır. O, bütün işleri tek başına idare etmeye, her şeyi oldurmaya yeterlidir.
+
+    Bu ayet, bir önceki ayetin yankısı gibidir — fakat daha derinden, daha sarsıcı biçimde söyler: Bütün varlık, bütün düzen, bütün güç yalnızca Allah’a aittir.
+
+    ### 1. Allah Hiçbir Şeye Muhtaç Değildir
+
+    Ne bir ibadete, ne bir övgüye, ne de bir varlığın minnettarlığına ihtiyaç duyar.
+    Bizim ibadetimiz O’nu büyütmez, inkârımız da O’nu eksiltmez.
+    O, kendi varlığıyla vardır; bizim varlığımız ise O’nun dilemesiyle sürer.
+    Biz O’na muhtacız; nefesimiz, suyumuz, uykumuz, sabrımız, umudumuz hep O’nun elindedir.
+
+    ### 2. Bizim Gücümüz, Umudumuz ve Başarımız O’ndadır
+
+    İnsanın bütün gayreti, bütün çabası sonunda bir duvara çarpar.
+    Çünkü insanın elindeki güç sınırlıdır; planları eksiktir, niyetleri karışıktır.
+    Ama Allah dilediğinde, bir kalbi bir anda değiştirir, bir kapıyı ansızın açar.
+    O’nun dilemesiyle işleyen bir düzenin içindeyiz.
+    Para, makam, şöhret, hepsi birer geçici gölge —
+    ama O’nun kudreti, O’nun lütfu baki.
+
+    ### 3. O’nun Merhameti, İnsana Sonsuz Fırsatlar Sunar
+
+    Allah dilerse, bir toplumu bir anda siler, yerine yenisini yaratır.
+    Fakat O acele etmez; fırsat verir, uyarır, sabreder.
+    Çünkü O, adaletin yanında merhameti de sonsuz olandır.
+    İnsana defalarca dönüş şansı verir,
+    tövbe etsin, doğruyu seçsin, kalbini temizlesin diye.
+
+    ### “Hasbunallah” — Allah Bize Yeter
+
+    Bu ayet, bir Müslümanın kalbindeki en derin sığınaktır.
+    Zorlukta, haksızlıkta, korkuda insanın içinden bir ses yükselir:
+    **“Hasbunallah.”**
+    Bu söz, bir teslimiyet değil; bir direniştir.
+    Çünkü bu dünyada hiçbir güç sonsuz değildir,
+    ama Allah’ın kudreti sonsuzdur.
+
+    Uhud’da Peygamber yaralandığında,
+    Ebu Bekir ayağa kalkıp şu ayeti okumuştu:
+
+    > “Muhammed bir elçidir; ondan önce de elçiler geldi geçti.
+    > Eğer ölürse veya öldürülürse, Allah yolundan mı döneceksiniz?
+    > Kim dönerse, Allah’a zarar veremez.
+    > Çünkü Allah, her şeye yeterlidir.” : Âl-i İmrân 144
+
+    ### Sonuç
+
+    Dünya geçicidir.
+    İnsanın gücü sınırlıdır.
+    Ama Allah her şeye yeter.
+
+    O’na güvenmek imanın özü,
+    O’na sığınmak bilgeliktir,
+    O’nun merhametine umut bağlamak ise kalbin huzurudur.
+
+    **“Allah, her işi tek başına idare etmeye yeterlidir.”**
+    Bu söz, bir iman bildirisi değil sadece;
+    bir haykırıştır da:
+
+    > “O’na güven. O senin için yeter.”
+
+
+
+133. **Ey insanlar, dileseydi sizi yok eder, başka bir ırk/soy/cins yaratırdı; çünkü O’nun bunu yapmaya gücü vardır.**
+
+
+
+
+134. **Kim bu dünyada bir mükâfat/sevap isterse, Allah’ın lütfunda hem dünya hem de ahiret mükâfatı/sevabı vardır; Çünkü Allah, her şeyi işiten ve görendir.**
+
+
+    Kim bu dünyada bir karşılık, bir mükâfat, bir sevinç isterse bilsin ki Allah’ın katında hem dünyanın hem de ahiretin nimetleri vardır. Çünkü Allah, her şeyi işiten, her şeyi görendir.
+
+    Bu ayet, insanın dar ufkuyla Allah’ın sonsuz cömertliği arasındaki o büyük farkı gösterir. İnsana şöyle der sanki: “Senin gözün dünyaya takılır, ama Benim lütfumun sınırı yoktur.”
+
+    ### 1. İnsanın Dar Ufku ve Dünya Arzuları
+
+    İnsan, toprağa bastığı yer kadarını görür çoğu zaman.
+    Zenginlik ister, rahat ister, biraz huzur, biraz itibar…
+    Bütün hayalleri yaşadığı ömrün çerçevesine sığar.
+    Oysa bu dünya, ebedi olanın yalnızca bir gölgesidir.
+    İnsan öyle bir varlıktır ki, eğer kalbi dünya ile dolarsa, ahiretin genişliğini göremez.
+    Kalp dünyaya eğildikçe, bakışı kısalır.
+
+    ### 2. Allah’ın Lütfu, Hayalin Sınırlarını Aşar
+
+    Ayet der ki:
+    **“Allah’ın lütfunda hem bu dünyanın hem ahiretin mükâfatı vardır.”**
+
+    Yani isteyen için dünya vardır, isteyen için ahiret…
+    Ama O dilerse, ikisini birden verir — hem rızkı hem huzuru.
+    Ve bazen kul dilemeden verir; çünkü O bilir, neyin kul için hayırlı olduğunu.
+
+
+    > Gözün görmediğini, kulağın işitmediğini, insanın gönlünden geçmeyeni...
+
+    İşte Allah’ın lütfu budur:
+    İnsanın hayal bile edemediği güzellikleri, sabreden ve güvenen kalplere saklar.
+
+    ### 3. Allah Her Şeyi İşitir ve Görür
+
+    Bu ifade, yalnızca O’nun bilgeliğini değil, yakınlığını da anlatır.
+    Bir dua ederken içinden geçen o kırık sesi duyar,
+    bir gözyaşını görür,
+    bir niyetin samimiyetini fark eder.
+    Yani O’nun huzurunda hiçbir şey kaybolmaz.
+    Ne bir umut, ne bir iç çekiş, ne bir iyilik.
+
+    Bu yüzden dua yalnızca bir dilek değil, bir bağdır.
+    Dünyayı istemek günah değildir, ama onu tek amaç yapmak kalbi küçültür.
+    En doğru dua şudur:
+
+    > “Rabbimiz! Bize bu dünyada da iyilik ver, ahirette de iyilik ver.”
+
+    ### Sonuç
+
+    Bu ayet bize şunu öğretir:
+    İnsanın arzuları sınırlıdır, ama Allah’ın lütfu sonsuzdur.
+    Dünya geçicidir, ahiret kalıcıdır —
+    ama Allah, her ikisinin de sahibidir.
+
+    “Allah her şeyi işiten, her şeyi görendir.”
+
+    Bu sözü kalbine yazan mümin, ne dünyaya tapar ne de ahireti unutur.
+    Duası dengeli olur, umudu geniş, kalbi huzurlu olur.
+    Çünkü bilir ki:
+    **Allah’ın lütfu, insanın hayal gücünden bile büyüktür.**
+
+
+
+
+135. **Ey iman edenler! Kendiniz, ana-babanız, akrabalarınız aleyhine de olsa, zengine, fakire karşı da olsa, Allah’ın şahitleri olarak adaleti ayakta tutun: Allah her ikisini de en iyi koruyandır. Nefsinizin hevâsına uymayın, yoksa saparsınız ve eğer adaleti saptırırsanız veya adaleti yerine getirmekten kaçınırsanız, şüphesiz Allah, yaptıklarınızdan haberdardır.**
+
+
+    "Ey iman edenler/inananlar! Adaletin/adil davranışın şahitleri olarak Allah için sımsıkı sarılın/direnin/dik durun ve başkalarına olan buğzunuz/nefretiniz sizi yanlış yola/haksızlığa saptırmasın ve adaletten /uzaklaştırmasın/ayırmasın/adaletin yolundan saptırmasın. Adil olun, bu takvanın yanındadır / takvadan sonra gelir ve Allah’tan korkun. Çünkü Allah, yaptıklarınızdan haberdardır." : Maide 8
+
+    Ey iman edenler!
+    Kendinizin, ana babanızın, yakınlarınızın aleyhine de olsa, zengine ya da fakire karşı da olsa, Allah için adaleti ayakta tutun.
+    Çünkü Allah, her iki tarafı da koruyandır.
+    Hevânıza — yani nefsinizin eğilimine, taraf tutan duygularınıza — uymayın, yoksa yoldan saparsınız.
+    Ve bilin ki, adaleti saptırır ya da ondan yüz çevirirseniz, Allah yaptığınız her şeyden haberdardır.
+
+    Bu ayet, adaleti yalnızca bir hukuk ilkesi olarak değil, imanın kalbinde atan bir hakikat olarak sunar. Adalet, burada Allah’ın bir sıfatının insanda yankılanmasıdır. Kul, adil davrandığında yalnızca doğruyu yapmış olmaz; Allah’a şahitlik etmiş olur.
+
+    1. Adalet: Allah’a Şahitlik Etmek
+
+    “Allah için adaletin temsilcisi olun” buyruğu, insanın adaleti kendi çıkarı için değil, Allah’ın huzuru için yaşamasını ister.
+    Adalet, Allah’ın isimlerinden biridir — el-Adl.
+    Bu yüzden adaletli olmak, Allah’ın varlığını insan davranışında tecelli ettirmektir.
+    Adalet, bir ruh hâlidir; yalnızca kanunlarda değil, kalpte başlar.
+
+    2. Tarafsızlık: En Ağır İmtihan
+
+    Bu ayet, adaletin en zor zamanlarda bile eğilmeden, bükülmeden korunmasını ister.
+    Kendi aleyhine bile olsa doğruyu söyleyebilmek, insanın nefsine karşı verdiği en büyük savaştır.
+    Ana babana, kardeşine, dostuna karşı bile haksız olduğunu bilip susmamak...
+    İşte orada belli olur imanın ağırlığı.
+
+    Adalet, zengine yaranmak değildir; fakire acıyıp haksızlık etmek de değildir.
+    Adalet, bir terazidir — ne servetle, ne duyguyla, ne korkuyla eğilmez.
+
+    3. “Gökler Yıkılsa da Adalet Yerini Bulsun”
+
+    Bu ayet, insanlığın vicdanında yankılanan o ezeli çağrıyı tekrar eder:
+    “Fiat justitia, ruat caelum.”
+    Gökler düşse bile, adalet yerini bulmalıdır.
+
+    Ama İslam’ın adaleti, kuru bir yasa adaleti değildir.
+    O, insanın niyetine, kalbine, iç dünyasına kadar uzanır.
+    Çünkü Allah, yalnızca eylemi değil, eylemin arkasındaki niyeti de görür.
+    Kısacası, adalet yalnızca mahkemede değil, vicdanda kurulur.
+
+    4. Allah, Zengini de Fakiri de Korur
+
+    Ayette geçen “Allah her ikisini de koruyandır” ifadesi, terazinin iki kefesini dengeleyen ilahî hikmeti anlatır.
+    Zengin de, fakir de Allah’ın kuludur — ama hiçbiri, başkasının hakkını çiğneyerek korunamaz.
+    Gerçek merhamet, haksızlığı örtmek değil, adaleti yaşatmaktır.
+    Birine haksız yere acımak, diğerine zulmetmektir.
+
+    5. Nefsin Hevâsı: Adaletin Sessiz Düşmanı
+
+    Ayetin sonunda gelen uyarı, adaletin en büyük düşmanını gösterir:
+    Hevâ.
+    Yani arzu, öfke, çıkar, korku, önyargı…
+    Hevâ, insanı adaletten uzaklaştıran sessiz bir fısıltıdır.
+    Bir bakarsın, hakikati biliyorsun ama susuyorsun.
+    Bir bakarsın, güçlüden korkup haksızlığa göz yumuyorsun.
+    İşte o an, adaletin değil, nefsin hükmü yürür.
+
+    Sonuç
+
+    Bu ayet, iman eden insana bir çağrıdır:
+    Adalet, senin kalbinin mihenk taşı olsun.
+
+    Ailede, işte, toplumda, hatta yalnız kaldığında bile…
+    Doğruyu savunmak seni yalnız bıraksa da, unutma:
+    Adaletin yanında Allah vardır.
+
+    “Allah, yaptıklarınızdan haberdardır.”
+    Bu, hem bir tehdit değil — bir hatırlatmadır:
+    Adaletin tanığı sensin, ama şahidi Allah’tır.
+
+    Ve bil ki:
+    Adalet, Allah’ın yeryüzündeki nefesidir.
+
+
+136. **Ey iman edenler! Allah’a, Peygamberine, Peygamberine indirdiği yazıta/Kitaba ve kendisinden öncekilere indirdiği yazıta/kitaplara iman edin. Kim Allah’ı, meleklerini, kitaplarını, peygamberini ve ahiret gününü inkar ederse, çok uzak bir sapıklığa düşmüştür.**
+
+
+    Ey iman edenler!
+    Allah’a iman edin, Peygamberine iman edin, O’nun indirdiği Kitaba ve ondan önce indirilmiş olan Kitaplara iman edin.
+    Kim Allah’ı, meleklerini, kitaplarını, peygamberlerini ve ahiret gününü inkâr ederse, işte o, en uzak karanlıklara düşmüştür.
+
+    Bu ayet, inancı bir söz olmaktan çıkarır, bir bilinç haline getirir.
+    İman, yalnızca dilde söylenen bir kelime değildir; kalpte yer eder, akılla yoğrulur, davranışla görünür.
+    Bir inanç, ancak insanın bütün benliğini dönüştürdüğünde gerçekten “iman” olur.
+
+    1. Allah’a İman: Varlığın Kalbini Tanımak
+
+    Allah’a iman etmek, yalnızca “O vardır” demek değildir.
+    O’nun birliğini, adaletini, merhametini, her şeyi kuşatan kudretini tanımaktır.
+    O, uzak bir gökte değil; insanın kalbinde, vicdanında, düşüncesindedir.
+    Bizden şah damarımız kadar yakındır — ama çoğu zaman, biz O’ndan uzak düşeriz.
+
+    "İnsanı Biz yarattık ve ruhunun ona hangi karanlık telkinlerde bulunduğunu biliriz: çünkü Biz ona şah damarından daha yakınız." : Kaf 16
+
+    2. Meleklere İman: Görünmeyen Dünyanın Sessiz Tanıkları
+
+    Melekler, Allah’ın iradesinin görünmez taşıyıcılarıdır.
+    Ne arzuları vardır, ne isyanları.
+    İnsanın göremediği ama varlığı sezdiği o derin düzenin temsilcileridir.
+    Onlara iman etmek, insanın varlığı yalnızca maddeyle sınırlamaması demektir.
+    Gözle görünmeyen bir dünyanın, bir hikmet katmanının varlığını kabul etmektir.
+
+    3. Kitaplara İman: İnsanlıkla Süren İlahi Konuşma
+
+    Kur’an, Tevrat, Zebur, İncil…
+    Hepsi aynı özün farklı çağlardaki yankılarıdır.
+    Hepsi bir tek hakikati fısıldar:
+    “Allah birdir, adalet esastır, insan sorumludur.”
+
+    İlahi vahiy, insanla Tanrı arasında kurulmuş en eski bağdır.
+    Bu kitaplara inanmak, o bağı sürdürmektir —
+    çünkü Kur’an, geçmiş vahiyleri doğrulayan, tamamlayan, saflaştıran son ses olmuştur.
+
+    4. Peygamberlere İman: İnsanlık Tarihinde Yürüyen Adalet
+
+    Peygamberler, Allah’ın yeryüzündeki adalet elçileridir.
+    Her biri, kendi çağının karanlığına ışık taşımıştır.
+    Kimi taşlanmıştır, kimi sürülmüştür, kimi yalnız bırakılmıştır —
+    ama hiçbiri haktan dönmemiştir.
+
+    Birini kabul edip diğerini reddetmek, adaletin bir yüzünü görüp öbürünü yok saymaktır.
+    Çünkü hepsi aynı zincirin halkalarıdır; hepsi aynı gerçeğin sözcüleridir.
+
+    Peygamber, Rabbinden kendisine indirilene iman etti, mü’minler de. Her biri Allah’a, meleklerine, kitaplarına ve peygamberlerine inanır. “O’nun elçilerinden biri ile diğeri arasında hiçbir ayrım yapmayız .” Ve derler ki: “İşittik/duyduk ve itaat ettik: Biz Senden mağfiret/affetme/bağışlanma dileriz. Ey Rabbimiz bütün yolculukların sonu sanadır.” : Bakara 285
+
+    5. Ahiret Gününe İman: Hesabın Varlığı, Vicdanın Dirilişi
+
+    Ahirete inanmak, bir masal değil; adaletin tamamlanacağına dair bir inançtır.
+    Bu dünya eksik kalır — çünkü nice mazlumun hakkı burada verilmez, nice zalim cezasız kalır.
+    Ahiret, adaletin nihai tecellisidir.
+    Bu inanç, insana hem umut verir hem sorumluluk yükler:
+    Her davranışın bir yankısı, her sözün bir karşılığı vardır.
+
+    6. “Ey İman Edenler, İman Edin”
+
+    Bu çağrı, bir tekrar değil, bir uyarıdır.
+    Allah, iman edenlere “iman edin” der — çünkü iman, sadece mirasla taşınmaz.
+    Bir aileden, bir gelenekten, bir kimlikten gelmek yetmez.
+    İman, sorgulamayla güçlenir, akılla kök salar, tecrübeyle olgunlaşır.
+
+    Bu ayet şöyle der:
+    “İmanınızı size miras kalan bir elbise gibi taşımayın; onu kendi bedeninizde yeniden dokuyun.”
+
+    7. “Uzak Bir Sapıklık”: Yani Hakikatten Kopmak
+
+    İmanın bir parçasını reddetmek, insanın içindeki dengeyi yıkmaktır.
+    Melekleri reddeden, görünmeyen âlemin hikmetinden kopar.
+    Kitapları inkâr eden, Allah’ın insanla konuşma iradesini yadsır.
+    Ahireti yok sayan, adaletin sonsuzluğunu boğar.
+    Bunların her biri, ruhun kendi ışığını söndürmesidir.
+
+    Sonuç:
+
+    Bu ayet, imanı bir kimlik değil, bir direniş biçimi olarak hatırlatır.
+    Karanlığa, kör alışkanlığa, körü körüne inanca karşı bir uyarıdır.
+
+    Gerçek iman,
+    sorgular ama teslim olur,
+    aklı kullanır ama kalbi susturmaz,
+    sever ama körü körüne değil, bilerek sever.
+
+    Ve sonunda şunu anlar:
+    İman, sadece “inandım” demek değildir.
+    İman, her sabah yeniden inanabilmek, filleriyle bunu gösterebilmektir.
+
+
+
+137. **İman edip sonra inkâr eden, sonra tekrar iman edip tekrar inkâr eden ve inkârlarında ileri gidenler var ya, Allah onları ne bağışlayacak, ne hidâyete erdirecek, ne de doğru yola iletecektir.**
+
+
+    Bu ayet, kalbi inançla dolu olmayanların, imanı bir maskeye dönüştürenlerin hâlini anlatır.
+    Bir gün inanır gibi yapıp, ertesi gün yüz çevirenleri…
+    Korkudan, çıkar hesabından, toplumun rüzgârına göre yön değiştirenleri…
+    Kur’an onlara diyor ki: Allah ne onları affeder, ne de doğru yolu gösterir. Çünkü onlar yolu seçmemiştir ki, kaybetsinler.
+
+    ### 1. İmanın Gerçek Yüzü
+
+    Gerçek iman, bir söz değil, bir hâlidir.
+    Kalbin en derin yerinde başlayan, insanın bütün varlığına yayılan bir ateştir.
+    Bir kez yanarsa, bir daha sönmez.
+    Ama burada anlatılanlar, o ateşi hiç yakmamış olanlardır.
+    İman etmiş gibi görünen, fakat gerçekte kendi menfaatini koruyanlardır.
+    Rüzgâr nereye eserse, onlar oraya dönerler.
+    Güç kimdeyse, onların “inancı” da oradadır.
+
+    ### 2. İman ile Ticaret Olmaz
+
+    Onların imanı, bir pazar malı gibidir:
+    Kâr getirirse alınır, zarara girerse bırakılır.
+    Böylesi bir inanç, Allah katında sahte bir senetten farkı yoktur.
+    Çünkü iman, pazarlık konusu olmaz.
+    Bir defa kalbe yerleşti mi, artık o kalbin sahibi yalnız Allah’tır.
+
+    ### 3. Neden Affedilmezler?
+
+    Allah’ın rahmeti geniştir ama samimiyetsizliğe kapalıdır.
+    Affedilmek isteyen önce dönmek ister.
+    Bu insanlar dönmez; bilakis her defasında biraz daha uzaklaşırlar.
+    İnkârlarında ısrar ettikçe, yürekleri taş kesilir.
+    Ve bir noktadan sonra, Allah artık onlara yönelmez.
+    Bu bir cezadan çok, kendi tercihlerinin doğal sonucudur.
+    Yalanı sürekli tekrarlayan insan, sonunda o yalana dönüşür.
+
+    ### 4. İmanın Ağırlığı
+
+    İman, insana sorumluluk yükler.
+    Kendine, topluma, Allah’a karşı…
+    Bu sorumluluktan kaçmak isteyen, imanı bir sığınak değil, bir kaçış aracı yapar.
+    Ama İslam, kolaycılığın değil, direnişin dinidir.
+    İman, insanı dönüştürmeyen bir süs değil, ateşte saflaşan bir metaldir.
+
+    ### Sonuç
+
+    Bu ayet, bir tehdidin ötesindedir — bir aynadır.
+    “Senin inancın seni ne kadar değiştirdi?” diye sorar insana.
+    Eğer iman bizi daha adil, daha dürüst, daha vicdanlı kıldıysa, o iman gerçektir.
+    Ama hâlâ çıkarın, korkunun, kalabalığın peşindeysek — o zaman bu ayet bize de sesleniyor olabilir:
+
+    > “Allah onları ne bağışlayacak, ne doğru yola iletecektir.”
+
+    Çünkü Allah, oyalanan kalpleri değil, teslim olan kalpleri sever.
+
+
+
+138. **Münafıklara müjdele ki onlar için elem verici bir azap vardır.**
+
+
+139. **Evet, müminleri bırakıp da kâfirleri dost edinenlere gelince, aralarında izzet mi/onur mu arıyorlar? Hayır, bütün izzet/onur Allah’ındır.**
+
+
+    Bu ayet, kalbiyle Allah’a bağlı olan insanın onurunu kimden alacağına dair keskin bir sorudur.
+    İnsana der ki: “Ey iman eden! Senin izzetin, onurun, vakarın — kimden geliyor? Kimden umuyorsun bunu?”
+    Eğer cevabın insanlar, makamlar, paralar, güçlülerin sofrasıysa… o zaman sen izzeti yanlış yerden arıyorsun.
+    Çünkü bütün izzet, yalnızca Allah’ındır.
+
+    1. “Dost Edinmek” Ne Demektir?
+
+    Buradaki “dost” kelimesi, sıradan bir arkadaş değildir.
+    Kiminle kaderini paylaşıyorsan, kim için risk alıyorsan, kimden medet umuyorsan — senin dostun odur.
+    Kâfirleri dost edinmek demek, onların bakışını, değerini, ölçüsünü benimsemek demektir.
+    Yani “benim kurtuluşum sizdedir” demektir.
+    Kur’an’ın karşı çıktığı da tam budur.
+    Yoksa adaletli olmak, komşuluk etmek, insani bağ kurmak yasak değildir.
+    Ama onların gözünde değer kazanmak için, kendi inancını küçültmek — işte bu ihanettir.
+
+    2. Şeref Arayışı: İnsanların Önünde Eğilmek
+
+    İnsanın içinde derin bir ihtiyaç vardır:
+    Görülmek, takdir edilmek, sayılmak…
+    Bazıları bunu makamla, bazıları parayla, bazıları güçlülerin yanında görünerek elde etmek ister.
+    Ama bu tür bir onur, güneş batınca kaybolan bir ışıktır.
+    Ayet, tam bu noktada tokadı indirir:
+
+    “Onların yanında mı şeref arıyorsunuz?”
+    Hayır!
+    Gerçek şeref, Allah’a sadakatte; O’nun huzurunda başı dik durabilmektedir.
+
+    3. Kâfirlerin Şerefi: Parlar Ama Çürük
+
+    İnançsızların izzeti/Allah'ın ilkelerini ihlal edenlerin izzeti, altın gibi parlar ama içi boştur.
+    Paranın, gücün, alkışın üzerinde yükselir.
+    Ama içten içe çürür.
+    Bugün alkışlarlar, yarın unutur giderler.
+    Senin inancını ezip geçen o bakış, bir gün kendi sahibini de yutar.
+    Allah katında bu tür bir “şeref”, sadece bir maskedir — parlak ama ruhsuz.
+
+    4. Gerçek Şeref: Allah’ın Kuluna "Razıyım" Dediği Yerde Durmak
+
+    Gerçek izzet, ne el üstünde tutulmakta, ne de alkışlarda saklıdır.
+    Gerçek izzet, Allah’ın kuluna “razıyım” dediği andadır.
+    Bir müminin en büyük onuru, imanını satmamasıdır.
+    Ne baskı karşısında, ne menfaat karşısında, ne korku karşısında…
+    O, başını eğmez; çünkü bilir ki Allah’ın gölgesi, bütün otoritelerin üstündedir.
+
+    Sonuç
+
+    Bu ayet, bir uyarıdan fazlasıdır — bir kimlik beyanıdır.
+    “Ben kimden izzet bekliyorum?” sorusunu her müminin kalbine yazar.
+    Gerçek şeref, Allah’ın dostluğundadır; insanların onayında değil.
+    Ve bu cümle, bir asır değil, bir ömür yankılanır:
+
+    “Bütün izzet, yalnızca Allah’ındır.”
+
+    Bu, hem bir meydan okumadır dünyaya,
+    hem de bir teselli — kalbinde imanı taşıyana.
+
+
+
+140. **Allah size kitapta şu sözü indirdi: Allah’ın âyetlerinin alaya alındığını ve saygısızlık yapıldığını işittiğiniz zaman, başka bir konuya dönmedikçe onlarla birlikte oturmayın: Eğer yapsaydınız/otursaydınız, onlar gibi olurdunuz. Çünkü Allah, münafıkların ve kâfirlerin hepsini cehennemde toplayacaktır:-**
+
+
+    "Ayetlerimiz hakkında boş sözler söyleyen insanları gördüğün zaman, başka bir konuya yönelmedikçe onlardan yüz çevir. Eğer şeytan sana unutturursa, hatırladıktan sonra artık zulmedenlerle beraber oturma." : Enam 68
+
+    Bu ayet, insanın hangi masada oturduğunu, kimlerle aynı sessizliği paylaştığını sorgulatır.
+    Çünkü bazen insan, kötü bir söz söylemez, kimseye hakaret etmez, elini kana bulamaz — ama yanlış bir sofrada oturur.
+    Ve işte o zaman, kalbi kirlenir.
+
+    ---
+
+    ### 1. Sessiz Kalmak, Onay Vermektir
+
+    Kur’an burada açık konuşur:
+
+    > “Allah’ın ayetleriyle alay edildiğini işittiğiniz zaman, onlarla birlikte oturmayın!”
+
+    Çünkü oturmak, görünmez bir ortaklık kurmaktır.
+    Bir söz söylenmez belki ama bir şey onaylanır; bir gülümseme, bir baş sallama bile kalbi lekeler.
+    Alay edilen sadece ayet değil, hakikatin ta kendisidir.
+    Ve hakikatin yanında sessiz kalmak, onun karşısında konuşmak gibidir.
+
+    Bu yüzden ayet der ki:
+
+    > “Eğer orada kalırsanız, onlar gibi olursunuz.”
+
+    Bu hüküm, dış görünüşten değil, kalbin yönünden bahseder.
+    Çünkü insan nereye oturursa, yavaş yavaş oraya benzemeye başlar.
+
+    ---
+
+    ### 2. Ne Zaman Kalınabilir?
+
+    Kur’an merhametlidir; iman, akılla birlikte yürür.
+    Der ki:
+
+    > “Onlar başka bir konuya geçinceye kadar…”
+
+    Yani eğer sen orada kalıp sözü değiştiriyorsan, sessizliğin değil, direnişin içindesin.
+    Bir kelimenle ortamın havası değişiyorsa, o masada senin varlığın bir rahmettir.
+    Ama eğer sesin kısılmışsa, yüreğin sıkışmışsa, kalkmak da bir direniştir — belki de en zarif olanı.
+
+    ---
+
+    ### 3. Ayrılmak, Gurur Değil; İmanın Korunmasıdır
+
+    Bazıları zanneder ki kalkıp gitmek kibirdir.
+    Hayır.
+    O, kalbini koruma refleksidir.
+    Çünkü iman, tozdan bile etkilenir; gönül, laftan bile kirlenir.
+    Alay edenlerin masasında oturmak, o kirin içine su gibi karışmaktır.
+    Ve kalp bir kere bulanırsa, onu tekrar berraklaştırmak çok zordur.
+
+    ---
+
+    ### 4. Ortak Son: Hakikati Küçümseyenler
+
+    Ayet sonunda hükmü verir:
+
+    > “Allah münafıkları ve kâfirleri bir araya getirecek — Cehennem’de.”
+
+    Münafık da inkârcı da aynı yanlışta birleşir:
+    Hakikati hafife almakta.
+    Biri alay ederek, diğeri susarak küçümser.
+    Ama sonuç aynıdır: Hakikate karşı duyarsızlık.
+
+    ---
+
+    ### Sonuç
+
+    Bu ayet, bir davettir aslında.
+    Bizi “kiminle oturduğumuzu” yeniden düşünmeye çağırır.
+    Çünkü her oturuş, bir seçimi gösterir.
+    Ve bazen kalkıp gitmek, en sessiz ama en asil eylemdir.
+
+    **Allah’ın ayetleriyle alay edildiğinde, kalkmak — bir kaçış değil, bir ibadettir.**
+    Bir mümin, o anda değilse bile, eninde sonunda o masadan kalkar.
+    Çünkü kalbi bilir:
+    Hakikatin küçümsendiği yerde oturmak, ruhun yavaşça ölmesidir.
+
+
+
+141. **İşte onlar beklerler ve siz izlerler: Eğer Allah katından bir zafer kazanırsanız, “Biz sizinle beraber değil miydik?” derler. -Fakat kâfirler bir başarı elde ederlerse, onlar der ki: “Biz sizin üstün gelmenizi sağlamadık mı ve sizi mü’minlerden korumadık mı?” Ancak Allah, kıyamet günü aranızda hüküm verecektir. Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecektir.**
+
+Onlar pusudadır. Beklerler. Siz savaşır, siz çabalarsınız; onlar uzaktan seyreder.
+Bir rüzgâr gibi kayar aranızdan; kimin kazanacağına bakarlar.
+
+Allah katından bir zafer gelir, müminler galip düşerse — hemen öne atılırlar:
+“Biz de sizinleydik!” derler utanmadan.
+Fakat inkâr edenler üstün gelirse bu kez yüzleri değişir, sesleri kalınlaşır:
+“Biz sizi müminlerin elinden korumadık mı? Sizin üstün gelmeniz için uğraşmadık mı?”
+
+İşte bunlar, yüreği olmayan insanlardır.
+Ne hak bilirler ne batıl. Rüzgâr nereye eserse oraya döner yüzleri.
+Bir gün müminin safında, bir gün zalimin.
+Tek bildikleri şey, kendi çıkarlarıdır.
+Bir damla onur, bir zerre vicdan yoktur içlerinde.
+
+Ama Allah, bir gün aralarını ayıracak.
+Kıyamet günü, o büyük hesapta, kimin kalbinde iman, kimin dilinde yalan olduğu ortaya çıkacak.
+O gün artık hiçbir maske kalmayacak.
+Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecek.
+
+Bu söz, bir temenni değil, bir hüküm.
+Çünkü Allah’ın adaleti, görünürde kaybedenlerin kalbinde zaferdir.
+Tarih boyunca iman sahipleri yenilmiş görünmüştür bazen,
+ama hak, her defasında küllerinden doğrulmuştur.
+Zulüm büyümüş, halk ezilmiş, umut susmuş gibi olur —
+ama bir bakarsın, toprağın altında bir ses filizlenir: adaletin sesi.
+
+Münafıklar o sesi hiç duymadan yaşar.
+Kazananın sofrasında yer kapmakla meşguldürler.
+Hakkı değil, gücü severler.
+Fakat güç geçer, hak kalır.
+Yalanın saltanatı sürse de, sonunda ışık yine hakikate döner.
+
+Bu ayet, her çağda kulağa fısıldanan bir gerçektir:
+Sadakat, kazanana değil, doğruya olmalı.
+Yoksa insan, insanlığını yitirir.
+
+Allah’ın sözü apaçık:
+
+“Allah, asla kâfirlerin müminler üzerinde üstün gelmesine yol vermez.”
+
+Bu, karanlığın ortasında bir güven,
+ihanet karşısında bir direniş çağrısıdır.
+
+Münafıklar gelir, geçer.
+Ama hak…
+O ebedidir.
+
+
+
 142. Münafıklar, kendilerinin Allah’ı hile ile yeneceklerini sanırlar, oysa Allah onların boyunu aşacaktır: Salata kalktıkları zaman, insanlara gösteriş yapmak için samimiyetsizce/ciddiyetsizce/içten olmadan kalkarlar, fakat Allah’ı pek az zikrederler;
 143. Onlar, ne bir grup, ne de Allah’ın saptırdığı bir başkası için ihlaslı olmazlar/ samimi davranmazlar, bunun ortasında/arasında bile akılları dağılır/bocalayıp dururlar/dikkatleri dağılır, ona asla doğru yol bulamazsınız.
 144. Ey iman edenler! Müminleri bırakıp da kâfirleri dost edinmeyin: Kendi aleyhinize Allah’a apaçık bir delil mi sunmak istiyorsunuz?
