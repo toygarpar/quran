@@ -4,11 +4,11 @@ Maide Suresi 5-110 ( Öğün, Yemek, Yemek Zamanı )
 
 SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
-1. Ey iman edenler! tüm yükümlülüklerinizi yerine getirin. Dört ayaklı hayvanlar size helâl kılındı, ancak şu istisnalar vardır: Haram/kutsal yerlerde veya hac kıyafetine girmişken av hayvanları size haram kılındı: Çünkü Allah, iradesi ve planına göre hükmeder.  
+1. **Ey iman edenler! tüm yükümlülüklerinizi yerine getirin. Dört ayaklı hayvanlar size helâl kılındı, ancak şu istisnalar vardır: Haram/kutsal yerlerde veya hac kıyafetine girmişken av hayvanları size haram kılındı: Çünkü Allah, iradesi ve planına göre hükmeder.  **
       
     Sözlerin/Ahdlerin yerine getirilmesi, Allah’ın emridir.  
     
-2. Ey iman edenler! Allah’ın şiarlarına, haram/mübarek aya, kurban edilen hayvanlara, onları süsleyen gerdanlıklara ve lütuf ve rızık dileyerek ve Rablerinin hoşnutluğunu arayarak Beyt-i Haram’a sığınanlara karşı husumet etmeyin. Fakat Harem-i Haram’dan ve hacı elbisesinden kurtulduğunuz zaman avlanabilirsiniz ve bazı kimselerin sizi Mescid-i Haram’dan uzaklaştıran kinlerinin sizi haddi aşmaya ve kendi açınızdan düşmanlığa sevk etmesine izin vermeyin. İyilik ve takva konusunda yardımlaşın, günah ve kin konusunda yardımlaşmayın: Allah’tan korkun. Çünkü Allah’ın azabı çetindir.  
+2. **Ey iman edenler! Allah’ın şiarlarına, haram/mübarek aya, kurban edilen hayvanlara, onları süsleyen gerdanlıklara ve lütuf ve rızık dileyerek ve Rablerinin hoşnutluğunu arayarak Beyt-i Haram’a sığınanlara karşı husumet etmeyin. Fakat Harem-i Haram’dan ve hacı elbisesinden kurtulduğunuz zaman avlanabilirsiniz ve bazı kimselerin sizi Mescid-i Haram’dan uzaklaştıran kinlerinin sizi haddi aşmaya ve kendi açınızdan düşmanlığa sevk etmesine izin vermeyin. İyilik ve takva konusunda yardımlaşın, günah ve kin konusunda yardımlaşmayın: Allah’tan korkun. Çünkü Allah’ın azabı çetindir.  **
       
     İnananlar, bir dağın eteklerinde birleşen sular gibi, ortak bir amaç uğruna bir araya gelmelidir. Allah’ın taraftarları olarak, aynı çatı altında toplanıp, birbirlerine destek olmaları gerekir. Ayetler, açık bir şekilde, inananların hayırlı işlerde yardımlaşmalarını, birbirlerine destek olarak doğruluktan ayrılmamalarını emreder. Gerçek inananlar arasında, hayırlı işlerin gerçekleştirilmesi noktasında kıskançlık ya da haset olmaz.  
       
@@ -18,7 +18,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-3. Size yemek için haram kılınanlar: Ölü et, kan, domuz eti ve Allah’tan başkası adına kesilenler, boğularak veya şiddetli bir darbeyle veya baş aşağı düşerek veya boynuzlanarak öldürülenler; kısmen vahşi bir hayvan tarafından yenenler; usulüne uygun olarak kesmeye gücünüz yetmedikçe taş sunaklarda kurban edilenlerdir; ayrıca oklarla çekilişle etin bölünmesi de haramdır: bu Allah’a saygısızlıktır. Bugün, inkâr edenler, sizin dininizden ümidlerini kestiler; onlardan korkmayın, Benden korkun. Bugün size dininizi kemale erdirdim, üzerinizdeki nimetimi tamamladım ve size din olarak İslam’ı seçtim. Ama kim, haddi aşmaya meyletmeden, açlıktan dolayı mecbur kalırsa, şüphesiz Allah, gerçekten çok bağışlayandır, çok merhamet edendir.  
+3. **Size yemek için haram kılınanlar: Ölü et, kan, domuz eti ve Allah’tan başkası adına kesilenler, boğularak veya şiddetli bir darbeyle veya baş aşağı düşerek veya boynuzlanarak öldürülenler; kısmen vahşi bir hayvan tarafından yenenler; usulüne uygun olarak kesmeye gücünüz yetmedikçe taş sunaklarda kurban edilenlerdir; ayrıca oklarla çekilişle etin bölünmesi de haramdır: bu Allah’a saygısızlıktır. Bugün, inkâr edenler, sizin dininizden ümidlerini kestiler; onlardan korkmayın, Benden korkun. Bugün size dininizi kemale erdirdim, üzerinizdeki nimetimi tamamladım ve size din olarak İslam’ı seçtim. Ama kim, haddi aşmaya meyletmeden, açlıktan dolayı mecbur kalırsa, şüphesiz Allah, gerçekten çok bağışlayandır, çok merhamet edendir. ** 
       
       
       
@@ -61,7 +61,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-4. Kendilerine yiyecek olarak neyin helâl kılındığını sana soruyorlar. De ki: İyi ve temiz olan her şey ve Allah’ın size emrettiği/buyurduğu şekilde yetiştirdiğiniz avcı hayvanların sizin için tuttuklarını yemeniz size helal kılındı, fakat üzerlerine Allah’ın adını anın ve Allah’tan korkun. Çünkü Allah hesabı çabuk görendir.  
+4. **Kendilerine yiyecek olarak neyin helâl kılındığını sana soruyorlar. De ki: İyi ve temiz olan her şey ve Allah’ın size emrettiği/buyurduğu şekilde yetiştirdiğiniz avcı hayvanların sizin için tuttuklarını yemeniz size helal kılındı, fakat üzerlerine Allah’ın adını anın ve Allah’tan korkun. Çünkü Allah hesabı çabuk görendir.  **
       
       
     Ayetler, insanların hayatını kolaylaştıran, onlara yol gösteren bir rehber gibidir. Avcılık konusunda da bu böyledir. Eğitilmiş köpekler, şahinler, doğanlar… Bu hayvanlar, insanlar için avlanır, yakaladıklarını tutar. Ayetler, bu tür eğitilmiş avcı hayvanların yakaladıklarının yenilebileceğine dikkat çeker. Bu, adeta doğanın insana bir lütfudur. Dağların, ovaların, ormanların içinde, insanla hayvan arasında kurulan bu kadim ilişki, Allah’ın izniyle şekillenir.  
@@ -71,10 +71,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnsanlar, peygambere sorular sordular, cevaplarını Kur’an’da buldular. Demek ki Allah, bu soruların açıklığa kavuşmasını diledi ve gönderdiği ayetlerle her şeyi aydınlığa kavuşturdu.  
       
     
-5. Bugün size temiz ve güzel olan her şey helal kılındı. Kitap Ehli’nin yemeği size helâl, sizin yemeğiniz de onlara helâldir. Yalnızca iffetli mümin kadınlar değil, aynı zamanda sizden önce indirilmiş Kitap Ehli’nden iffetli kadınlar da, mehirlerini verdiğiniz ve iffeti arzuladığınız, fuhuş ve gizli entrikalar olmadığı takdirde size helâldir. Eğer İnsan/herhangi biri imanı reddederse, yaptığı iş boşa gider/meyvesizdir ve ahirette bütün manevî güzellikleri yitirenlerin saflarından olur.  
+5. **Bugün size temiz ve güzel olan her şey helal kılındı. Kitap Ehli’nin yemeği size helâl, sizin yemeğiniz de onlara helâldir. Yalnızca iffetli mümin kadınlar değil, aynı zamanda sizden önce indirilmiş Kitap Ehli’nden iffetli kadınlar da, mehirlerini verdiğiniz ve iffeti arzuladığınız, fuhuş ve gizli entrikalar olmadığı takdirde size helâldir. Eğer İnsan/herhangi biri imanı reddederse, yaptığı iş boşa gider/meyvesizdir ve ahirette bütün manevî güzellikleri yitirenlerin saflarından olur.  **
       
     
-6. Ey iman edenler! Salata hazırlandığınız zaman yüzlerinizi, ellerinizi ve dirseklerinize kadar kollarınızı yıkayın. Başınızı suyla ovun/mesh edin; ve ayaklarınızı bileklere kadar mesh edin. Eğer cünüplük içindeyseniz, bütün vücudunuzu yıkayın. Fakat hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz bir toprak veya kum alın ve onunla ellerinizle yüzünüzü mesh edin. Allah size güçlük çıkarmak istemez, ancak sizi temizlemek ve üzerinizdeki nimetini tamamlamak ister ki şükredesiniz.  
+6. **Ey iman edenler! Salata hazırlandığınız zaman yüzlerinizi, ellerinizi ve dirseklerinize kadar kollarınızı yıkayın. Başınızı suyla ovun/mesh edin; ve ayaklarınızı bileklere kadar mesh edin. Eğer cünüplük içindeyseniz, bütün vücudunuzu yıkayın. Fakat hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz bir toprak veya kum alın ve onunla ellerinizle yüzünüzü mesh edin. Allah size güçlük çıkarmak istemez, ancak sizi temizlemek ve üzerinizdeki nimetini tamamlamak ister ki şükredesiniz.  **
       
       
     Din adına doğru bilinen yanlışların başında, Kur’an’ı tutmak ve okumak için abdestli olmanın şart olduğu inancı gelir. Öyle ki bu düşünce, sadece halk arasında değil, ilahiyat sahasında çalışan nice akademisyen arasında bile yerleşmiştir. Oysa bu konuda ne tek bir ayet vardır ne de kayda değer bir rivayet. Buna rağmen böylesine yaygın bir kabulün oluşması, insanı hayrete düşürür.  
@@ -99,11 +99,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Sistem, hiç kimseyi kayırmadan, adaletin hakkını vererek ayakta durmalıdır. Anne babamızın, yakınlarımızın aleyhine bile olsa hakikati söylemekten çekinmemek gerekir. Aynı şekilde, düşman bildiklerimizin lehine bile olsa şahitliği adaletle yerine getirmeliyiz. Zengin olsun, fakir olsun fark etmez, hak kime aitse ona teslim edilmelidir. Bu, her Müslümanın üzerinde bir farzdır. Allah’ın her şeyden haberdar olduğunu, kimsenin gizlisi saklısı olmadığını bilerek hareket etmek gerekir. Ve unutulmamalıdır ki, bir insana ya da topluluğa duyulan nefret bile, adaletten sapmaya bahane olamaz.  
       
     
-9. İman edip salih ameller işleyenlere Allah mağfiret ve büyük bir mükafat vaad etmiştir.
-10. İnkar edenler ve âyetlerimizi yalanlayanlar, cehennem ehli olacaklardır.  
+9. **İman edip salih ameller işleyenlere Allah mağfiret ve büyük bir mükafat vaad etmiştir.**
+
+
+10. **İnkar edenler ve âyetlerimizi yalanlayanlar, cehennem ehli olacaklardır.**
       
     
-11. Ey iman edenler! Allah’ın size olan nimetini zikredin, bazı kimseler size el uzatmak istedikleri için plan yaptıklarında Allah onların ellerini sizden çekti, öyleyse Allah’tan korkun. Ve müminler Allah’a tevekkül etsinler.  
+11. **Ey iman edenler! Allah’ın size olan nimetini zikredin, bazı kimseler size el uzatmak istedikleri için plan yaptıklarında Allah onların ellerini sizden çekti, öyleyse Allah’tan korkun. Ve müminler Allah’a tevekkül etsinler.** 
       
     Tevekkül, bir dağın eteklerinde durup, rüzgârın önüne bırakmak gibidir kendini. Güvenip dayanmak, Allah’a sığınmak, O’nun kudretine teslim olmaktır. Kur’ân’da, inananların yalnızca Allah’a tevekkül etmeleri, imkân dâhilinde tüm tedbirleri aldıktan sonra sonucu O’ndan beklemeleri emredilir. Bu, bir çiftçinin tarlasını sürüp, tohumu ektikten sonra yağmuru beklemeye benzeyen bir haldir. Çiftçi, elinden geleni yapar, gerisini Allah’a bırakır.  
       
@@ -112,38 +114,62 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Tevekkül, bir nehrin akışına bırakmak gibidir kendini. Nehir, önüne çıkan taşları aşar, engelleri yarar, sonunda denize ulaşır. İnsan da öyle, tüm zorluklara rağmen, Allah’a güvenerek yoluna devam eder. Sabırla, tevekkülle, sonunda huzura erer. Çünkü Allah, sabredenlerle beraberdir.  
       
     
-12. Allah daha önce İsrailoğullarından söz almıştı ve içlerinden on iki komutan/lider tayin etmiştik. Allah buyurdu ki: “Ben sizinleyim. Eğer siz salatı düzenli ikame eder, zekatı verirseniz, elçilerime inanır, onlara ikramda bulunur, onurlandırır ve yardım eder ve Allah’a güzel bir borç verirseniz, şüphesiz ben sizin kötülüklerinizi örterim ve Sizi altlarından ırmaklar akan cennetlere koyarım, fakat sizden kim bundan sonra imana karşı çıkarsa, gerçekten yoldan veya doğruluk/dürüstlükten sapmış olur.”
-13. Fakat ahdlerini bozmaları sebebiyle onları lanetledik ve kalplerini katılaştırdık. Onlar kelimeleri yerlerinden değiştirirler ve kendilerine gönderilen mesajın büyük bir kısmını unuturlar ve onları -bazısı müstesna olmak üzere- sürekli olarak yeni hileler peşinde koşarken bulursun: ama onları bağışla ve kötülüklerini görmezden gel: Çünkü Allah nazik davrananları sever.
-14. Kendilerine Hıristiyan diyenlerden de söz aldık, fakat onlar kendilerine gönderilen mesajın büyük bir kısmını unuttular; böylece onları, aralarındaki düşmanlık ve kinle, kıyamet gününe kadar uzaklaştırdık. Allah onlara ne yaptıklarını yakında gösterecek.
-15. Ey Kitap ehli! Kitapta gizlediğiniz birçok şeyi size açıklayan ve artık gereksiz olan birçok şeyi de aşan elçimiz size geldi. Size Allah’tan yeni bir nur ve apaçık bir kitap geldi.-
-16. Allah bununla, rızasını arayan herkesi selamet ve güvenli yollarına iletir ve onları kendi izniyle karanlıklardan aydınlığa çıkarır, onları dosdoğru yola iletir.
-17. Allah’ın Meryem oğlu İsa olduğunu söyleyenler gerçekten küfre düşmüşlerdir. De ki: “Eğer O, Meryem oğlu Mesih’i, onun anasını ve yeryüzündekilerin hepsini helak etmek istese, Allah’a karşı kimin gücü yeter? Çünkü göklerin ve yerin ve ikisi arasındakilerin mülkü Allah’ındır.” O, dilediğini yaratır. Allah her şeye kadirdir.”
-18. Hem Yahudiler hem de Hıristiyanlar: “Biz Allah’ın oğulları ve sevilenleriyiz/sevdikleriyiz” dediler. De ki: “Öyleyse neden günahlarınıza karşılık size azap ediyor? Hayır, siz ancak insansınız, O’nun yarattığı insanlardansınız.” O, dilediğini bağışlar, dilediğini azaplandırır. Göklerin, yerin ve ikisi arasındakilerin hükümranlığı Allah’ındır ve her şeyin nihai hedefi O’nadır.”
-19. Ey Kitap Ehli! Elçilerimizin serisinin/arasının kesilmesinden sonra, “Bize ne bir müjdeleyici, ne de bir kötülükten sakındırıcı gelmedi” demeyesiniz diye, işte size her şeyi apaçık açıklayan Resulumuz geldi! Ancak şimdi artık size müjdeler getiren ve kötülüklerden uyaran bir öğütleyici geldi ve Allah her şeye kadirdir.
-20. Musa kavmine şöyle demişti: “Ey kavmim! Allah’ın size olan nimetini hatırlayın. O, içinizden peygamberler çıkardı, sizi hükümdarlar yaptı ve ümmetlerin arasında hiçbirine vermediğini size verdi.
-21. “Ey kavmim, Allah’ın size nasip ettiği mukaddes topraklara girin ve horlanarak/rezil olarak geri dönmeyin. Çünkü o zaman kendi yıkımınız için devrileceksiniz.”
-22. Dediler ki: “Ey Mûsâ! Bu memlekette kuvvetli bir kavim vardır ki onlar oradan çıkmadıkça biz oraya girmeyiz. Onlar giderse biz o zaman girelim.”
-23. Fakat onların Allah’tan korkan erlerinden iki kişi vardı ki, Allah kendilerine lütufta bulundu: Dediler ki: “Onlara doğru kapıdan saldırın; bir kez girdiğiniz zaman zafer sizindir; eğer inanıyorsanız Allah’a güvenin.”
-24. Dediler ki: “Ey Mûsâ, onlar orada kaldıkları müddetçe biz kıyamete kadar asla giremeyeceğiz. Sen ve Rabbin gidin, biz burada oturup seyrederken siz ikiniz savaşın.”
-25. Dedi ki: “Rabbim! Benim ancak kendime ve kardeşime gücüm yeter: öyleyse bizi bu asi topluluktan ayır!”
-26. Allah buyurdu ki: “Artık o diyar kırk yıl onların erişemeyeceği bir yer olacak; onlar yeryüzünde şaşkın şaşkın dolaşacaklar; ama bu azgın topluluktan dolayı üzülme.
-27. Onlara Adem’in iki oğlunun kıssası hakkında gerçeği oku. İşte bakın! Her biri Allah’a bir kurban sundu: Birinden kabul edildi, diğerinden kabul edilmedi. İkincisi, “Emin ol seni öldüreceğim” dedi. “Şüphesiz ki” dedi birincisi, “Allah, takvâ sahibi olanların kurbanlarını kabul eder.
-28. “Sen beni öldürmek için bana elini uzatırsan, seni öldürmek için sana elimi uzatmam bana düşmez; çünkü ben, âlemlerin Rabbi olan Allah’tan korkarım.
-29. “Ben, kendi günahını olduğu gibi benim günahımı da üzerine çekmeni istiyorum, çünkü sen cehennemliklerden olacaksın ve bu, zalimlerin cezasıdır.”
-30. Diğerinin bencilliği onu kardeşini öldürmeye sürükledi: onu öldürdü ve kendisi de kaybedenlerden oldu.
-31. Sonra Allah, kardeşinin ayıbını nasıl gizleyeceğini ona göstermek için yeri eşeleyen bir kuzgun gönderdi. “Yazıklar olsun bana!” dedi o; “Bu kuzgun gibi olup da kardeşimin ayıbını saklayamadım mı?” İşte o zaman pişmanlıklarla doldu-
-32. Bunun içindir ki: Biz İsrailoğullarına şöyle yazdık: Kim bir cinayete veya yeryüzünde bozgunculuk çıkarmaya karşılık olmaksızın bir cana kıyarsa, sanki bütün insanları öldürmüş gibi olur: Kim bir canı kurtarırsa, bütün insanların hayatını kurtarmış gibi olur. Sonra onlara peygamberlerimiz apaçık delillerle geldiği halde, sonrasında bile onlardan birçoğu yeryüzünde haddi aşmaya devam ettiler.
-33. Allah’a ve Resûlü’ne savaş açanların ve yeryüzünde bozgunculuk çıkarmak için güç ve kuvvetle uğraşanların cezası: idam veya çarmıha germe veya çaprazlama el ve ayaklarını kesmek veya bulundukları yerden sürmektir: bu onların dünyada rezil olmalarıdır ve ahirette ise onlar için ağır bir azap vardır.
-34. Elinize geçmeden önce tövbe edenler müstesna: O halde bilin ki Allah çok bağışlayandır, çok merhamet edendir.
-35. Ey iman edenler! Allah’tan korkun, O’na yaklaşmak için vesileler arayın ve O’nun yolunda var gücünüzle cihad/mücadele edin ki kurtuluşa eresiniz.
-36. İnkâr edenlere gelince, eğer yeryüzündeki her şey onların elinde olsa ve kıyamet günü azabı için hepsini iki kere fidye bile verselerdi, onlardan asla kabul edilmezdi. Onlarınki ağır bir ceza olacak.  
+12. **Allah daha önce İsrailoğullarından söz almıştı ve içlerinden on iki komutan/lider tayin etmiştik. Allah buyurdu ki: “Ben sizinleyim. Eğer siz salatı düzenli ikame eder, zekatı verirseniz, elçilerime inanır, onlara ikramda bulunur, onurlandırır ve yardım eder ve Allah’a güzel bir borç verirseniz, şüphesiz ben sizin kötülüklerinizi örterim ve Sizi altlarından ırmaklar akan cennetlere koyarım, fakat sizden kim bundan sonra imana karşı çıkarsa, gerçekten yoldan veya doğruluk/dürüstlükten sapmış olur.”**
+
+13. **Fakat ahdlerini bozmaları sebebiyle onları lanetledik ve kalplerini katılaştırdık. Onlar kelimeleri yerlerinden değiştirirler ve kendilerine gönderilen mesajın büyük bir kısmını unuturlar ve onları -bazısı müstesna olmak üzere- sürekli olarak yeni hileler peşinde koşarken bulursun: ama onları bağışla ve kötülüklerini görmezden gel: Çünkü Allah nazik davrananları sever.**
+
+14. **Kendilerine Hıristiyan diyenlerden de söz aldık, fakat onlar kendilerine gönderilen mesajın büyük bir kısmını unuttular; böylece onları, aralarındaki düşmanlık ve kinle, kıyamet gününe kadar uzaklaştırdık. Allah onlara ne yaptıklarını yakında gösterecek.**
+
+15. **Ey Kitap ehli! Kitapta gizlediğiniz birçok şeyi size açıklayan ve artık gereksiz olan birçok şeyi de aşan elçimiz size geldi. Size Allah’tan yeni bir nur ve apaçık bir kitap geldi.-**
+
+16. **Allah bununla, rızasını arayan herkesi selamet ve güvenli yollarına iletir ve onları kendi izniyle karanlıklardan aydınlığa çıkarır, onları dosdoğru yola iletir.**
+
+17. **Allah’ın Meryem oğlu İsa olduğunu söyleyenler gerçekten küfre düşmüşlerdir. De ki: “Eğer O, Meryem oğlu Mesih’i, onun anasını ve yeryüzündekilerin hepsini helak etmek istese, Allah’a karşı kimin gücü yeter? Çünkü göklerin ve yerin ve ikisi arasındakilerin mülkü Allah’ındır.” O, dilediğini yaratır. Allah her şeye kadirdir."**
+
+18. **Hem Yahudiler hem de Hıristiyanlar: “Biz Allah’ın oğulları ve sevilenleriyiz/sevdikleriyiz” dediler. De ki: “Öyleyse neden günahlarınıza karşılık size azap ediyor? Hayır, siz ancak insansınız, O’nun yarattığı insanlardansınız.” O, dilediğini bağışlar, dilediğini azaplandırır. Göklerin, yerin ve ikisi arasındakilerin hükümranlığı Allah’ındır ve her şeyin nihai hedefi O’nadır.”**
+
+19. **Ey Kitap Ehli! Elçilerimizin serisinin/arasının kesilmesinden sonra, “Bize ne bir müjdeleyici, ne de bir kötülükten sakındırıcı gelmedi” demeyesiniz diye, işte size her şeyi apaçık açıklayan Resulumuz geldi! Ancak şimdi artık size müjdeler getiren ve kötülüklerden uyaran bir öğütleyici geldi ve Allah her şeye kadirdir.**
+
+20. **Musa kavmine şöyle demişti: “Ey kavmim! Allah’ın size olan nimetini hatırlayın. O, içinizden peygamberler çıkardı, sizi hükümdarlar yaptı ve ümmetlerin arasında hiçbirine vermediğini size verdi.**
+
+21. **“Ey kavmim, Allah’ın size nasip ettiği mukaddes topraklara girin ve horlanarak/rezil olarak geri dönmeyin. Çünkü o zaman kendi yıkımınız için devrileceksiniz.”**
+
+22. **Dediler ki: “Ey Mûsâ! Bu memlekette kuvvetli bir kavim vardır ki onlar oradan çıkmadıkça biz oraya girmeyiz. Onlar giderse biz o zaman girelim.”**
+
+23. **Fakat onların Allah’tan korkan erlerinden iki kişi vardı ki, Allah kendilerine lütufta bulundu: Dediler ki: “Onlara doğru kapıdan saldırın; bir kez girdiğiniz zaman zafer sizindir; eğer inanıyorsanız Allah’a güvenin.”**
+
+24. **Dediler ki: “Ey Mûsâ, onlar orada kaldıkları müddetçe biz kıyamete kadar asla giremeyeceğiz. Sen ve Rabbin gidin, biz burada oturup seyrederken siz ikiniz savaşın.”**
+
+25. **Dedi ki: “Rabbim! Benim ancak kendime ve kardeşime gücüm yeter: öyleyse bizi bu asi topluluktan ayır!”**
+
+26. **Allah buyurdu ki: “Artık o diyar kırk yıl onların erişemeyeceği bir yer olacak; onlar yeryüzünde şaşkın şaşkın dolaşacaklar; ama bu azgın topluluktan dolayı üzülme.**
+
+27. **Onlara Adem’in iki oğlunun kıssası hakkında gerçeği oku. İşte bakın! Her biri Allah’a bir kurban sundu: Birinden kabul edildi, diğerinden kabul edilmedi. İkincisi, “Emin ol seni öldüreceğim” dedi. “Şüphesiz ki” dedi birincisi, “Allah, takvâ sahibi olanların kurbanlarını kabul eder.**
+
+28. **“Sen beni öldürmek için bana elini uzatırsan, seni öldürmek için sana elimi uzatmam bana düşmez; çünkü ben, âlemlerin Rabbi olan Allah’tan korkarım.**
+
+29. **“Ben, kendi günahını olduğu gibi benim günahımı da üzerine çekmeni istiyorum, çünkü sen cehennemliklerden olacaksın ve bu, zalimlerin cezasıdır.”**
+
+30. **Diğerinin bencilliği onu kardeşini öldürmeye sürükledi: onu öldürdü ve kendisi de kaybedenlerden oldu.**
+
+31. **Sonra Allah, kardeşinin ayıbını nasıl gizleyeceğini ona göstermek için yeri eşeleyen bir kuzgun gönderdi. “Yazıklar olsun bana!” dedi o; “Bu kuzgun gibi olup da kardeşimin ayıbını saklayamadım mı?” İşte o zaman pişmanlıklarla doldu-**
+
+32. **Bunun içindir ki: Biz İsrailoğullarına şöyle yazdık: Kim bir cinayete veya yeryüzünde bozgunculuk çıkarmaya karşılık olmaksızın bir cana kıyarsa, sanki bütün insanları öldürmüş gibi olur: Kim bir canı kurtarırsa, bütün insanların hayatını kurtarmış gibi olur. Sonra onlara peygamberlerimiz apaçık delillerle geldiği halde, sonrasında bile onlardan birçoğu yeryüzünde haddi aşmaya devam ettiler.**
+
+33. **Allah’a ve Resûlü’ne savaş açanların ve yeryüzünde bozgunculuk çıkarmak için güç ve kuvvetle uğraşanların cezası: idam veya çarmıha germe veya çaprazlama el ve ayaklarını kesmek veya bulundukları yerden sürmektir: bu onların dünyada rezil olmalarıdır ve ahirette ise onlar için ağır bir azap vardır.**
+
+34. **Elinize geçmeden önce tövbe edenler müstesna: O halde bilin ki Allah çok bağışlayandır, çok merhamet edendir.**
+
+35. **Ey iman edenler! Allah’tan korkun, O’na yaklaşmak için vesileler arayın ve O’nun yolunda var gücünüzle cihad/mücadele edin ki kurtuluşa eresiniz.**
+
+36. **İnkâr edenlere gelince, eğer yeryüzündeki her şey onların elinde olsa ve kıyamet günü azabı için hepsini iki kere fidye bile verselerdi, onlardan asla kabul edilmezdi. Onlarınki ağır bir ceza olacak.** 
       
     Ne kadar pişman olursak olalım o gün telafisi olamayan bir gündür.  
     
-37. Ateşten çıkmak isterler, fakat oradan asla çıkamazlar: onların azabı sürekli olandır.  
+37. **Ateşten çıkmak isterler, fakat oradan asla çıkamazlar: onların azabı sürekli olandır.**  
       
     
-38. Hırsızın erkek olsun, kadın olsun, onların ellerini kesin/güçlerini ellerinden alın/yok edin. Bu yaptıklarına karşılık Allah tarafından ibret verici bir cezadır. Allah, her şeye gücü yetendir.  
+38. **Hırsızın erkek olsun, kadın olsun, onların ellerini kesin/güçlerini ellerinden alın/yok edin. Bu yaptıklarına karşılık Allah tarafından ibret verici bir cezadır. Allah, her şeye gücü yetendir.** 
       
     Ayetlerde hırsızlık, açık bir şekilde yasaklanmış ve boyutuna göre kimilerince sert görülebilecek bir ceza ile karşılık bulmuştur. Hırsızlık yapan kişinin elinin kesilmesi emri, oldukça net bir ifadedir. Fakat burada önemli olan iki nokta vardır. Birincisi, hırsızlığın doğru bir şekilde tanımlanması; ikincisi ise, “elin kesilmesi” ifadesinin, küçük bir çizikten koparılmaya kadar geniş bir anlam taşıyor olmasıdır. Bu cezanın uygulanmasında bir tereddüt yoktur, ancak hangi durumlarda ne ölçüde uygulanacağı, ayrı bir tartışma konusudur.  
       
@@ -155,7 +181,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-39. Ama hırsız, suçundan sonra tövbe eder ve davranışını düzeltirse, Allah onu bağışlar; Allah çok bağışlayandır, çok merhamet edendir.  
+39. **Ama hırsız, suçundan sonra tövbe eder ve davranışını düzeltirse, Allah onu bağışlar; Allah çok bağışlayandır, çok merhamet edendir.**  
       
     Kim işlediği zulümden sonra tövbe eder ve davranışlarını düzeltirse, şüphesiz.  
       
@@ -164,11 +190,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İçten gelen bir pişmanlıkla yönelirse insan Allah’a, affı umabilir elbet. Çünkü Allah, hatasından döneni, yolunu düzelteni bağışlar. Yeter ki gönülden olsun, yeter ki samimi olsun…  
       
     
-40. Göklerin ve yerin mülkünün yalnız Allah’a ait olduğunu bilmiyor musunuz? O, dilediğine azap eder, dilediğini bağışlar. Ve Allah her şeye kadirdir.
-41. Ey Elçi. İster dudaklarıyla “inandık” deyip de kalpleri iman etmeyenlerden olsun, ; ya da sana olduğu kadar gelmeyenleri bile dinleyecek, her türlü yalanı dinleyen Yahudiler arasında olsun, küfre yarışanlar seni üzmesin. Sözcükleri doğru yerlerinden ve zamanlarından değiştirirler: “Size bu verilirse alın, verilmezse sakının!” derler. Kimin için Allah fitne isterse, senin o kimse için Allah karşısında zerre kadar bir yetkin yoktur. Çünkü onların kalplerini temizlemek Allah’ın dilediği değildir. Onlar için dünyada rezillik, ahirette de ağır bir azap vardır.  
+40. **Göklerin ve yerin mülkünün yalnız Allah’a ait olduğunu bilmiyor musunuz? O, dilediğine azap eder, dilediğini bağışlar. Ve Allah her şeye kadirdir.**
+
+41. **Ey Elçi. İster dudaklarıyla “inandık” deyip de kalpleri iman etmeyenlerden olsun, ; ya da sana olduğu kadar gelmeyenleri bile dinleyecek, her türlü yalanı dinleyen Yahudiler arasında olsun, küfre yarışanlar seni üzmesin. Sözcükleri doğru yerlerinden ve zamanlarından değiştirirler: “Size bu verilirse alın, verilmezse sakının!” derler. Kimin için Allah fitne isterse, senin o kimse için Allah karşısında zerre kadar bir yetkin yoktur. Çünkü onların kalplerini temizlemek Allah’ın dilediği değildir. Onlar için dünyada rezillik, ahirette de ağır bir azap vardır.**
       
     
-42. Yalanı dinlemekten, haramı yemekten hoşlanırlar. Eğer sana gelirlerse, ya aralarında hükmet veya karışmayı reddet. Eğer reddedersen, sana en ufak bir zarar veremezler. Eğer hükmedersen, aralarında adaletle hükmet. Çünkü Allah adaletle hükmedenleri sever.  
+42. **Yalanı dinlemekten, haramı yemekten hoşlanırlar. Eğer sana gelirlerse, ya aralarında hükmet veya karışmayı reddet. Eğer reddedersen, sana en ufak bir zarar veremezler. Eğer hükmedersen, aralarında adaletle hükmet. Çünkü Allah adaletle hükmedenleri sever.** 
       
       
     Yalanın sesine kulak kabartanlar, haramın tadına doymayanlar… Eğer ki sana gelirlerse, ya onların arasında hükmü sen vereceksin ya da uzak duracaksın. Uzak durursan, sana zerre kadar dokunamazlar. Ama eğer hükmedersen, adaletin terazisini eline al, dosdoğru tart. Çünkü Allah, adaletle hükmedenleri sever, onların yanındadır.  
@@ -178,10 +205,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Adalet, her Müslümanın omuzunda bir farzdır. Allah’ın her şeyi bildiğini, her şeyden haberdar olduğunu unutmamak gerek. Bir insana ya da bir topluluğa duyulan kin, bizi adaletten saptırmamalı. Hak neyse, kim içinse ona teslim edilmeli. Bu, yalnızca insanlar karşısında değil, Allah’a karşı sorumluluk bilinci içinde olmanın da bir gereğidir. Adaletten şaşmayan, ölçülü davranan kulları, Allah sever, onlara rahmet eder.  
       
     
-43. Fakat önlerinde kendi kanunları varken neden karar vermek için sana geliyorlar? -Onda Allah’ın apaçık emri vardır; ama ondan sonra bile yüz çevirirler. Çünkü onlar gerçekten iman ehli değillerdir.  
+43. **Fakat önlerinde kendi kanunları varken neden karar vermek için sana geliyorlar? -Onda Allah’ın apaçık emri vardır; ama ondan sonra bile yüz çevirirler. Çünkü onlar gerçekten iman ehli değillerdir.**  
       
     
-44. Musa’ya şeriatı biz indirdik: onda hidayet ve nur vardı. Yahudiler, İslam’da olduğu gibi Allah’ın iradesine boyun eğen peygamberler, hahamlar ve hukukçular tarafından onun standardına göre yargılandı/hükmedildi: çünkü Allah’ın kitabının koruması onlara emanet edilmişti ve onlar buna şahitlerdi: bu nedenle İnsanlardan korkmayın, benden korkun ve âyetlerimi ucuza satmayın. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar kâfirlerden daha iyi/üstün değillerdir.  
+44. **Musa’ya şeriatı biz indirdik: onda hidayet ve nur vardı. Yahudiler, İslam’da olduğu gibi Allah’ın iradesine boyun eğen peygamberler, hahamlar ve hukukçular tarafından onun standardına göre yargılandı/hükmedildi: çünkü Allah’ın kitabının koruması onlara emanet edilmişti ve onlar buna şahitlerdi: bu nedenle İnsanlardan korkmayın, benden korkun ve âyetlerimi ucuza satmayın. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar kâfirlerden daha iyi/üstün değillerdir.** 
       
       
       
@@ -192,7 +219,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bir başkasına sevap kazandırmak için Kur’an okumak da mümkün değildir. Sevap alınacaksa, bu ancak kişinin kendi okuyuşuyla elde edilebilir. Hele ki para karşılığı Kur’an okutmak, bu hatimleri başkalarına bağışlamak, ayetleri ticarete alet etmek, Kur’an’a da ihlasa da sığmaz. Daha önce kendilerine kitap verilenler bu hususta açıkça uyarılmışken, aynı hataya düşmek, Kur’an’ın ruhuna yabancı bir tutum olur.  
       
     
-45. Biz orada onlara şöyle yazdık: “Cana can, göze göz, buruna burun, kulağa kulak, dişe diş ve yaralara eşit karşılık” yazdık. Ama kim bir sadaka olarak kısasdan dönerse/bağışlarsa, bu kendisi için bir kefarettir. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar zalimlerden daha üstün/farklı değillerdir.  
+45. **Biz orada onlara şöyle yazdık: “Cana can, göze göz, buruna burun, kulağa kulak, dişe diş ve yaralara eşit karşılık” yazdık. Ama kim bir sadaka olarak kısasdan dönerse/bağışlarsa, bu kendisi için bir kefarettir. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar zalimlerden daha üstün/farklı değillerdir.**  
       
       
     Din, insanın keyfine göre eğip bükebileceği bir şey değildir. Allah’ın indirdiği kitap, tercihe değil, O’nun apaçık emrine dayanır. Göklerin, yerin ve içindekilerin sahibi olan Allah, hükmünü bildirmiş, sözünü eksiksiz söylemiştir.  
@@ -203,13 +230,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-46. Ve onların izinden, kendisinden önce gelen Tevrat’ı doğrulayıcı olarak Meryem oğlu İsa’yı gönderdik ve ona İncil’i gönderdik: onda yol gösterme ve nur ve kendisinden önce gelen Tevrat’ı doğrulayıcı, Allah’tan korkanlar için hidayet ve nasihat vardı.  
+46. **Ve onların izinden, kendisinden önce gelen Tevrat’ı doğrulayıcı olarak Meryem oğlu İsa’yı gönderdik ve ona İncil’i gönderdik: onda yol gösterme ve nur ve kendisinden önce gelen Tevrat’ı doğrulayıcı, Allah’tan korkanlar için hidayet ve nasihat vardı.**  
       
       
       
       
     
-47. İncil ehli, Allah’ın onda indirdiği ile hükmetsin. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar, isyan edenlerden daha iyi/farklı değillerdir.  
+47. **İncil ehli, Allah’ın onda indirdiği ile hükmetsin. Kim Allah’ın indirdiği ile hükmetmezse, işte onlar, isyan edenlerden daha iyi/farklı değillerdir.**  
       
       
     Hüküm vermek, insanoğlunun boyunu aşan bir iştir; çünkü hüküm, yalnızca Allah’a aittir. Kimse O’nun hükmüne ortak koşulamaz, kimse O’nun sözünü değiştiremez.  
@@ -219,7 +246,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kim ki Allah’ın indirdiği ile hükmetmez, işte o, sapmışların yoluna düşer. Çünkü vahyin dışında kalan her söz, her hüküm, insanın şaşkın adımları gibi puslu bir yola sürükler onu. Evrensel kanunlar, kurallar Allah’ın Sözü ile çelişmez. Adaletin terazisi eğrilirse, toprak susuz kalmış bir dere gibi çatlar, dağlar bile sabrını yitirirdi.  
       
     
-48. Sana da kendinden önceki Kitabı doğrulayıcı ve onu koruyucu olarak hak ile indirdik. Artık aralarında Allah’ın indirdiği ile hükmet ve sana gelen Hak’tan ayrılıp onların hevalarına uyma. Her biriniz için bir şeriat ve açık bir yol yazdık. Allah dileseydi, sizi tek bir ümmet yapardı, fakat O’nun planı, size verdiği şeylerde sizi denemektir/imtihan etmektir, öyleyse tüm erdemlerde bir yarıştaymış gibi çabalayın. Hepinizin hedefi Allah’adır. İhtilafa düştüğünüz şeylerin hakikatini size gösterecek olan O’dur;  
+48. **Sana da kendinden önceki Kitabı doğrulayıcı ve onu koruyucu olarak hak ile indirdik. Artık aralarında Allah’ın indirdiği ile hükmet ve sana gelen Hak’tan ayrılıp onların hevalarına uyma. Her biriniz için bir şeriat ve açık bir yol yazdık. Allah dileseydi, sizi tek bir ümmet yapardı, fakat O’nun planı, size verdiği şeylerde sizi denemektir/imtihan etmektir, öyleyse tüm erdemlerde bir yarıştaymış gibi çabalayın. Hepinizin hedefi Allah’adır. İhtilafa düştüğünüz şeylerin hakikatini size gösterecek olan O’dur;**  
       
       
       
@@ -230,13 +257,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Peygamberimiz Din Adına Sadece Kur’ân İle Uyarmış ve Hükmetmiştir  
       
     
-49. Ve şunu emrediyor: Aralarında Allah’ın indirdiği ile hükmet ve onların hevalarına uyma. Allah’ın sana indirdiği öğretiden seni saptırmalarından sakın. Ve eğer yüz çevirirlerse, şundan emin olun ki, işledikleri bazı suçlar için Allah’ın amacı onları cezalandırmaktır. Ve gerçekten çoğu insan isyankardır.  
+49. **Ve şunu emrediyor: Aralarında Allah’ın indirdiği ile hükmet ve onların hevalarına uyma. Allah’ın sana indirdiği öğretiden seni saptırmalarından sakın. Ve eğer yüz çevirirlerse, şundan emin olun ki, işledikleri bazı suçlar için Allah’ın amacı onları cezalandırmaktır. Ve gerçekten çoğu insan isyankardır.** 
     
-50. Onlar cahiliye günlerinin hükmünü mü arıyorlar? Ancak imanı kesinleşmiş bir toplum için Allah’tan daha iyi hüküm veren kim olabilir?  
+50. **Onlar cahiliye günlerinin hükmünü mü arıyorlar? Ancak imanı kesinleşmiş bir toplum için Allah’tan daha iyi hüküm veren kim olabilir?**  
       
     Gerçeği kavrayan bir toplum için Allah’tan başka en adil hükmü kim verebilir?  
     
-51. Ey iman edenler! Yahudileri ve Hıristiyanları dost ve koruyucu edinmeyin: Onlar ancak birbirlerinin dostları ve koruyucularıdır. Ve sizden dostluk için onlara yönelen onlardandır. Muhakkak ki Allah, zalimler topluluğunu doğru yola iletmez.  
+51. **Ey iman edenler! Yahudileri ve Hıristiyanları dost ve koruyucu edinmeyin: Onlar ancak birbirlerinin dostları ve koruyucularıdır. Ve sizden dostluk için onlara yönelen onlardandır. Muhakkak ki Allah, zalimler topluluğunu doğru yola iletmez.**  
       
     Ayetleri, önündeki ve ardındaki ayetlere bakmak ve diğer alakalı bütün ayetler bağlamında okuyup aklın süzgecinden geçirmek gerekir. Yani bir konuda hüküm çıkartmak için o konu ile ilgili tüm ayetlerin bir arada dikkate alınması gerekir.  
       
@@ -249,11 +276,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnananlar, Yahudilerin kitaplarına uyanlar, Sabiiler ve Hıristiyanlar – Allah’a ve ahiret gününe inanan ve salih amel işleyenler; – Onlara korku yoktur ve onlar üzülmeyeceklerdir.: Maide Suresi 69  
       
     
-52. Kalplerinde hastalık bulunan kimselerin, aralarında ne kadar hararetle koşuştuklarını ve şöyle dediklerini görürsün: “Talihimiz değişmez ise bize felaket getirmesinden korkuyoruz.” Ah! umulur ki Allah sana bir zafer verir veya dilediği gibi/iradesine göre bir hüküm verir. İşte o zaman kalplerinde gizli tuttukları düşüncelerinden tövbe edeceklerdir.
-53. Ve iman edenler diyecekler ki: “Sizinle beraber olduklarına dair bütün güçleriyle Allah adına yemin edenler bunlar mı?” Bütün yaptıkları boşa gidecek ve yıkımdan başka bir şeye düşmeyecekler.  
+52. **Kalplerinde hastalık bulunan kimselerin, aralarında ne kadar hararetle koşuştuklarını ve şöyle dediklerini görürsün: “Talihimiz değişmez ise bize felaket getirmesinden korkuyoruz.” Ah! umulur ki Allah sana bir zafer verir veya dilediği gibi/iradesine göre bir hüküm verir. İşte o zaman kalplerinde gizli tuttukları düşüncelerinden tövbe edeceklerdir.**
+
+53. **Ve iman edenler diyecekler ki: “Sizinle beraber olduklarına dair bütün güçleriyle Allah adına yemin edenler bunlar mı?” Bütün yaptıkları boşa gidecek ve yıkımdan başka bir şeye düşmeyecekler.**  
       
     
-54. Ey iman edenler! Sizden kim dîninden dönerse, Allah yakında öyle bir toplum çıkarır ki, onların da kendisini sevdiği gibi O da onları sever, müminlere karşı alçakgönüllü, kâfirlere karşı güçlü, Allah yolunda cihad eden ve kusur bulanların kınamalarından asla korkmayan/kusur bulmak için olan suçlamalardan asla korkmayan. Bu, Allah’ın rahmetidir, onu dilediğine verir. Ve Allah her şeyi kuşatmıştır ve O, her şeyi bilir.  
+54. **Ey iman edenler! Sizden kim dîninden dönerse, Allah yakında öyle bir toplum çıkarır ki, onların da kendisini sevdiği gibi O da onları sever, müminlere karşı alçakgönüllü, kâfirlere karşı güçlü, Allah yolunda cihad eden ve kusur bulanların kınamalarından asla korkmayan/kusur bulmak için olan suçlamalardan asla korkmayan. Bu, Allah’ın rahmetidir, onu dilediğine verir. Ve Allah her şeyi kuşatmıştır ve O, her şeyi bilir.**  
       
       
     Kur’an apaçık bir kitaptır, hakikati güneş gibi ortadadır. O’nda ne eksik vardır ne de fazlalık. Allah’ın sözünde eğrilik olmaz, adaletin terazisi şaşmaz. Dinden dönenlerle ilgili ayetler de böyledir, açık ve nettir.  
@@ -266,16 +294,22 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-55. Sizin gerçek dostlarınız, Allah’tan, O’nun Resulü’nden ve mü’min kardeşlerinden başkası değildir. Onlar ki, salatı ve zekatı düzenli ikame ve ibadetlerinde tevazu ile rükû ederler.
-56. Allah’a, Resûlü’ne ve mü’minlerin dostluğuna yönelenlere gelince, şüphesiz zafere ulaşacak olan Allah’ın kardeşliğidir/birlikteliğidir/arkadaşlığıdır.
-57. Ey iman edenler! Sizden önce kendilerine kitap verilenlerden veya inkar edenlerden olsun, dininizle alay edenleri ve onları oyun ve alay konusu edinenleri dost ve veli edinmeyin. Eğer gerçekten inanıyorsanız, Allah’tan korkun.
-58. Salata çağrıldığınız zaman onu ancak alay ve eğlence olarak algılarlar. Bunun nedeni, onların anlayışsız/aklını kullanmayan bir topluluk olmalarıdır.
-59. De ki: “Ey kitap ehli! Allah’a, bize indirilene ve bizden önce gelenlere inanmamızdan ve belki de çoğunuzun isyankar ve itaatsiz olmanızdan başka bir nedenden dolayı mı bizi beğenmiyorsunuz/kabul etmiyorsunuz?
-60. De ki: “Allah’tan gördüğü muameleye göre, Allah’ın lânet ve gazabına uğradıkları, bir kısmını maymunlara ve domuzlara çevirdiği, kötülüğe tapan kimselerden daha kötü bir şeyi size göstereyim mi? – Ki bunlar derece bakımından kat be kat daha kötüdürler ve düz/doğru yoldan çok daha fazla sapmışlardır!”
-61. Sana geldiklerinde: “İnandık” derler; halbuki onlar, imana aykırı bir düşünceyle girerler ve yine aynı şekilde çıkarlar. Fakat Allah, onların gizlediklerini çok iyi bilir.  
+55. **Sizin gerçek dostlarınız, Allah’tan, O’nun Resulü’nden ve mü’min kardeşlerinden başkası değildir. Onlar ki, salatı ve zekatı düzenli ikame ve ibadetlerinde tevazu ile rükû ederler.**
+
+56. **Allah’a, Resûlü’ne ve mü’minlerin dostluğuna yönelenlere gelince, şüphesiz zafere ulaşacak olan Allah’ın kardeşliğidir/birlikteliğidir/arkadaşlığıdır.**
+
+57. **Ey iman edenler! Sizden önce kendilerine kitap verilenlerden veya inkar edenlerden olsun, dininizle alay edenleri ve onları oyun ve alay konusu edinenleri dost ve veli edinmeyin. Eğer gerçekten inanıyorsanız, Allah’tan korkun.**
+
+58. **Salata çağrıldığınız zaman onu ancak alay ve eğlence olarak algılarlar. Bunun nedeni, onların anlayışsız/aklını kullanmayan bir topluluk olmalarıdır.**
+
+59. **De ki: “Ey kitap ehli! Allah’a, bize indirilene ve bizden önce gelenlere inanmamızdan ve belki de çoğunuzun isyankar ve itaatsiz olmanızdan başka bir nedenden dolayı mı bizi beğenmiyorsunuz/kabul etmiyorsunuz?**
+
+60. **De ki: “Allah’tan gördüğü muameleye göre, Allah’ın lânet ve gazabına uğradıkları, bir kısmını maymunlara ve domuzlara çevirdiği, kötülüğe tapan kimselerden daha kötü bir şeyi size göstereyim mi? – Ki bunlar derece bakımından kat be kat daha kötüdürler ve düz/doğru yoldan çok daha fazla sapmışlardır!”**
+
+61. **Sana geldiklerinde: “İnandık” derler; halbuki onlar, imana aykırı bir düşünceyle girerler ve yine aynı şekilde çıkarlar. Fakat Allah, onların gizlediklerini çok iyi bilir.**  
       
     
-62. Onlardan birçoğunun günahta, kin ve haramdan yemekte yarıştıklarını görürsün. Gerçekten onların yapmakta oldukları şeyler ne kötüdür.  
+62. **Onlardan birçoğunun günahta, kin ve haramdan yemekte yarıştıklarını görürsün. Gerçekten onların yapmakta oldukları şeyler ne kötüdür.**  
       
     Görürsün ya, kimileri günaha, kine, harama düşkün… Koşa koşa giderler, sanki aç kurdun avına atılması gibi. Yaptıkları iş mi? İş değil, zulüm, kokuşmuşluk…  
       
@@ -289,26 +323,33 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Haram mal, bir dağın eteklerinde biriken çamur gibidir. İnsanı ağırlaştırır, ilerlemesini engeller. Helal rızık ise, berrak bir nehir gibidir. İnsanı ferahlatır, yoluna devam etmesini sağlar. İnananlar, bu nehrin suyundan içmeli, temiz kazançla beslenmelidir. Çünkü her iki dünyada da gerçek mutluluk, helal rızıkla mümkündür.  
     
-63. Hahamlar ve din bilginleri neden onları günahkâr sözler söylemekten ve haram yemekten men etmiyorlar? Gerçekten onların işleri ne kötüdür.
-64. Yahudiler: “Allah’ın eli bağlıdır” dediler. Elleri bağlı olsunlar ve söyledikleri küfürden dolayı lanetlensinler. Hayır, O’nun iki eli de geniştir: O, lütfundan dilediği gibi verir ve harcar. Fakat sana Allah’tan gelen vahiy, onların çoğunda inatlarını ve küfürlerini artırır. Onların arasına kıyamete kadar düşmanlık ve kin yerleştirdik. Savaş ateşini her tutuşturduklarında, Allah onu söndürür; fakat onlar, yeryüzünde bozgunculuk yapmak için sürekli çaba harcarlar. Ve Allah bozgunculuk yapanları sevmez.
-65. Keşke Kitap Ehli inansa ve salih olsalardı, şüphesiz Biz onların kötülüklerini örter ve onları nimetlerle dolu cennetlere sokardık.
-66. Keşke onlar, Tevrat’a, İncil’e ve Rableri katından kendilerine indirilen bütün vahiylere bağlı kalsalardı, her tarafları mutluluk içinde olurdu/her yönden mutluluğun tadını çıkarırlardı. Onlardan doğru yolda olan bir grup vardır; fakat onların çoğu, kötü bir yol izlemektedir.  
+63. **Hahamlar ve din bilginleri neden onları günahkâr sözler söylemekten ve haram yemekten men etmiyorlar? Gerçekten onların işleri ne kötüdür.**
+
+64. **Yahudiler: “Allah’ın eli bağlıdır” dediler. Elleri bağlı olsunlar ve söyledikleri küfürden dolayı lanetlensinler. Hayır, O’nun iki eli de geniştir: O, lütfundan dilediği gibi verir ve harcar. Fakat sana Allah’tan gelen vahiy, onların çoğunda inatlarını ve küfürlerini artırır. Onların arasına kıyamete kadar düşmanlık ve kin yerleştirdik. Savaş ateşini her tutuşturduklarında, Allah onu söndürür; fakat onlar, yeryüzünde bozgunculuk yapmak için sürekli çaba harcarlar. Ve Allah bozgunculuk yapanları sevmez.**
+
+65. **Keşke Kitap Ehli inansa ve salih olsalardı, şüphesiz Biz onların kötülüklerini örter ve onları nimetlerle dolu cennetlere sokardık.**
+
+66. **Keşke onlar, Tevrat’a, İncil’e ve Rableri katından kendilerine indirilen bütün vahiylere bağlı kalsalardı, her tarafları mutluluk içinde olurdu/her yönden mutluluğun tadını çıkarırlardı. Onlardan doğru yolda olan bir grup vardır; fakat onların çoğu, kötü bir yol izlemektedir.**  
       
     
-67. Ey Elçi. Rabbinden sana indirileni tebliğ et. Eğer yapmasaydın, O’nun görevini yerine getiremez ve ilan edemezdin. Ve Allah seni bozgunculuk yapan insanlardan koruyacak. Çünkü Allah, inkar edenleri doğru yola iletmez.  
+67. **Ey Elçi. Rabbinden sana indirileni tebliğ et. Eğer yapmasaydın, O’nun görevini yerine getiremez ve ilan edemezdin. Ve Allah seni bozgunculuk yapan insanlardan koruyacak. Çünkü Allah, inkar edenleri doğru yola iletmez.**  
       
     Peygamber’e emredilmiştir: Kimseden çekinmeden, korkmadan ne vahyedildiyse anlatacak, bildirecek. Eğer bunu yapmazsa, elçilik görevini eksik bırakmış olur. Çünkü hakikat saklanmaz, hakikatten sakınılmaz; Allah’ın buyruğu apaçık söylenir!  
       
       
     
-68. De ki: “Ey Kitap Ehli! Tevrat’a, İncil’e ve Rabbinizden size indirilen her şeye sımsıkı sarılmadıkça hiçbir dayanağınız yoktur.” Çoğunda inatlarını/isyanlarını ve küfürlerini artıran, Rabbinden sana gelen vahiydir. Ama imansız bu insanlar için üzülme.
-69. İnananlar, Yahudilerin kitaplarına uyanlar, Sabiiler ve Hıristiyanlar – Allah’a ve ahiret gününe inanan ve salih amel işleyenler; – Onlara korku yoktur ve onlar üzülmeyeceklerdir.
-70. İsrailoğullarından söz aldık ve onlara elçiler gönderdik, her defasında onlara, arzu etmedikleri şeylerle bir elçi geldiğinde, – bunlardan kimine sahtekar dediler, kimini de öldürecek kadar ileri gittiler.
-71. Yargılama ya da ceza olmayacağını düşündüler; böylece kör ve sağır oldular; Yine de Allah rahmetiyle onlara yöneldi. Yine birçoğu kör ve sağır oldu. Ama Allah onların yaptıklarını çok iyi görmektedir.
-72. “Allah, Meryem oğlu İsa’dır” diyenler, küfretmiş olurlar. Ama İsa dedi ki: “Ey İsrailoğulları! Benim de Rabbim, sizin de Rabbiniz olan Allah’a kulluk edin.” Kim Allah’a ortak koşarsa, Allah ona cenneti haram kılar ve varacağı yer ateştir. Zalimlere yardım edecek kimse yoktur.  
+68. **De ki: “Ey Kitap Ehli! Tevrat’a, İncil’e ve Rabbinizden size indirilen her şeye sımsıkı sarılmadıkça hiçbir dayanağınız yoktur.” Çoğunda inatlarını/isyanlarını ve küfürlerini artıran, Rabbinden sana gelen vahiydir. Ama imansız bu insanlar için üzülme.**
+
+69. **İnananlar, Yahudilerin kitaplarına uyanlar, Sabiiler ve Hıristiyanlar – Allah’a ve ahiret gününe inanan ve salih amel işleyenler; – Onlara korku yoktur ve onlar üzülmeyeceklerdir.**
+
+70. **İsrailoğullarından söz aldık ve onlara elçiler gönderdik, her defasında onlara, arzu etmedikleri şeylerle bir elçi geldiğinde, – bunlardan kimine sahtekar dediler, kimini de öldürecek kadar ileri gittiler.**
+
+71. **Yargılama ya da ceza olmayacağını düşündüler; böylece kör ve sağır oldular; Yine de Allah rahmetiyle onlara yöneldi. Yine birçoğu kör ve sağır oldu. Ama Allah onların yaptıklarını çok iyi görmektedir.**
+
+72. **“Allah, Meryem oğlu İsa’dır” diyenler, küfretmiş olurlar. Ama İsa dedi ki: “Ey İsrailoğulları! Benim de Rabbim, sizin de Rabbiniz olan Allah’a kulluk edin.” Kim Allah’a ortak koşarsa, Allah ona cenneti haram kılar ve varacağı yer ateştir. Zalimlere yardım edecek kimse yoktur.**  
       
     
-73. Allah Teslis’te üçten biridir diyenler, küfretmiş olurlar, çünkü tek ilah olan Allah’tan başka ilah yoktur. Eğer küfür sözlerinden vazgeçmezlerse, içlerinden kâfir olanlara elem verici bir azap dokunacaktır.  
+73. **Allah Teslis’te üçten biridir diyenler, küfretmiş olurlar, çünkü tek ilah olan Allah’tan başka ilah yoktur. Eğer küfür sözlerinden vazgeçmezlerse, içlerinden kâfir olanlara elem verici bir azap dokunacaktır.**  
       
       
     Göklerde, yerde, denizlerin engin maviliğinde, rüzgârın uğultusunda, toprağın bereketinde tek bir kudret vardır. Ondan başka ne bir ilah vardır ne de O’na denk bir güç.  
@@ -318,23 +359,35 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Nice zamanlar geçer, krallar, padişahlar, beyler gelir gider, ama O’nun hükmü ebedidir. İnsan yolunu şaşırsa da, unutsa da, uzaklara düşse de gökyüzünün altında tek bir ilah vardır ve O’ndan başka hiçbir ilah yoktur. Allah üçün üçüncüsü değildir.  
       
     
-74. Niçin Allah’a yönelip O’ndan mağfiret/bağışlama dilemiyorlar? Çünkü Allah çok bağışlayandır, çok merhamet edendir.
-75. Meryem oğlu İsa, bir elçiden başka bir şey değildi; ondan önce de nice elçiler gelip geçmiştir. Annesi hakikat kadınıydı. İkisi de günlük yemeklerini yemek zorundaydı. Bak, Allah onlara âyetlerini nasıl açıklıyor; halbuki bak, hangi yollarla nasıl hakikatten saptırılıyorlar!
-76. De ki: “Allah’ı bırakıp da size ne zarar ne de fayda vermeye gücü yetmeyen şeylere mi tapıyorsunuz? Oysa Allah, her şeyi işiten ve bilendir.”
-77. De ki: “Ey kitap ehli, dininizde haktan saparak haddi aşmayın, hakikatın dışına çıkmayın, birçoklarını saptırmış ve kendilerini de doğru/düz yoldan saptırmış geçmiş zamanlarda sapmış insanların hevalarına da uymayın.
-78. İsrailoğullarından inkar edenlere, Davud ve Meryem oğlu İsa’nın diliyle lanetler yağdırıldı: Çünkü onlar itaatsizlik ettiler ve aşırılıkta ısrar ettiler.
-79. Genellikle işledikleri kötülükleri de birbirlerine yasaklamıyorlardı: Gerçekten onların yaptıkları işler ne kötüydü.
-80. Onlardan birçoğunun kâfirlere dostluk gösterdiğini/dostluk içinde döndüğünü görürsün. Sonuç olarak, Allah’ın gazabının onların üzerine olduğu ve azap içinde ebedî kalacakları, kendilerinden önce nefslerinin hazırlayıp sunduğu işler gerçekten ne kötüdür.
-81. Keşke Allah’a, Peygamber’e ve O’na indirilene inansalardı, kafirleri asla dost ve veli edinmezlerdi; fakat onların çoğu fasık/isyankar zalimlerdir.
-82. İnsanlar arasında müminlere en şiddetli düşmanlıkta Yahudileri ve müşrikleri bulacaksın. İçlerinde müminlere sevgide en yakın olanı da “Biz Hıristiyanız” diyenleri bulursun: çünkü onların arasında ilim adamları ve dünyayı bırakmış kimseler vardır ve onlar kibirlenmezler.
-83. Ve Resul’e indirileni işittikleri zaman, gözlerinin yaşla dolup taştığını görürsün, çünkü onlar gerçeği bilirler ve şöyle dua ederler: “Rabbimiz, biz inandık, bizi şahitler arasında yaz.
-84. Rabbimizin bizi salihler topluluğuna katmasını arzu ettiğimizi görerek “Allah’a ve bize gelen hakka inanmamak için ne sebebimiz olabilir?
-85. Ve bu yüzden ettikleri duadan Allah onları, içinde ebedi kalacakları, altından ırmaklar akan cennetlerle ödüllendirdi. İyilik yapanların ödülü/karşılığı işte böyledir.
-86. Fakat inkâr edenler ve âyetlerimizi yalanlayanlar, işte onlar cehennemliklerin ehlidirler.  
+74. **Niçin Allah’a yönelip O’ndan mağfiret/bağışlama dilemiyorlar? Çünkü Allah çok bağışlayandır, çok merhamet edendir.**
+
+75. **Meryem oğlu İsa, bir elçiden başka bir şey değildi; ondan önce de nice elçiler gelip geçmiştir. Annesi hakikat kadınıydı. İkisi de günlük yemeklerini yemek zorundaydı. Bak, Allah onlara âyetlerini nasıl açıklıyor; halbuki bak, hangi yollarla nasıl hakikatten saptırılıyorlar!**
+
+76. **De ki: “Allah’ı bırakıp da size ne zarar ne de fayda vermeye gücü yetmeyen şeylere mi tapıyorsunuz? Oysa Allah, her şeyi işiten ve bilendir.”**
+
+77. **De ki: “Ey kitap ehli, dininizde haktan saparak haddi aşmayın, hakikatın dışına çıkmayın, birçoklarını saptırmış ve kendilerini de doğru/düz yoldan saptırmış geçmiş zamanlarda sapmış insanların hevalarına da uymayın.**
+
+78. **İsrailoğullarından inkar edenlere, Davud ve Meryem oğlu İsa’nın diliyle lanetler yağdırıldı: Çünkü onlar itaatsizlik ettiler ve aşırılıkta ısrar ettiler.**
+
+79. **Genellikle işledikleri kötülükleri de birbirlerine yasaklamıyorlardı: Gerçekten onların yaptıkları işler ne kötüydü.**
+
+80. **Onlardan birçoğunun kâfirlere dostluk gösterdiğini/dostluk içinde döndüğünü görürsün. Sonuç olarak, Allah’ın gazabının onların üzerine olduğu ve azap içinde ebedî kalacakları, kendilerinden önce nefslerinin hazırlayıp sunduğu işler gerçekten ne kötüdür.**
+
+81. **Keşke Allah’a, Peygamber’e ve O’na indirilene inansalardı, kafirleri asla dost ve veli edinmezlerdi; fakat onların çoğu fasık/isyankar zalimlerdir.**
+
+82. **İnsanlar arasında müminlere en şiddetli düşmanlıkta Yahudileri ve müşrikleri bulacaksın. İçlerinde müminlere sevgide en yakın olanı da “Biz Hıristiyanız” diyenleri bulursun: çünkü onların arasında ilim adamları ve dünyayı bırakmış kimseler vardır ve onlar kibirlenmezler.**
+
+83. **Ve Resul’e indirileni işittikleri zaman, gözlerinin yaşla dolup taştığını görürsün, çünkü onlar gerçeği bilirler ve şöyle dua ederler: “Rabbimiz, biz inandık, bizi şahitler arasında yaz.**
+
+84. **Rabbimizin bizi salihler topluluğuna katmasını arzu ettiğimizi görerek “Allah’a ve bize gelen hakka inanmamak için ne sebebimiz olabilir?**
+
+85. **Ve bu yüzden ettikleri duadan Allah onları, içinde ebedi kalacakları, altından ırmaklar akan cennetlerle ödüllendirdi. İyilik yapanların ödülü/karşılığı işte böyledir.**
+
+86. F**akat inkâr edenler ve âyetlerimizi yalanlayanlar, işte onlar cehennemliklerin ehlidirler.**  
       
       
     
-87. Ey iman edenler! Allah’ın size helâl kıldığı güzel şeyleri haram kılmayın, aşırı gitmeyin: çünkü Allah aşırı gidenleri sevmez.  
+87. **Ey iman edenler! Allah’ın size helâl kıldığı güzel şeyleri haram kılmayın, aşırı gitmeyin: çünkü Allah aşırı gidenleri sevmez.**  
       
       
     Ey iman edenler! Allah’ın size bahşettiği o helal nimetleri, o temiz rızıkları kendi ellerinizle haram etmeyin. Sınırı aşmayın, yolun dışına sapmayın. Çünkü Allah, zulmedenleri, fitne çıkaranları, haddi aşanları sevmez. Bunu iyi belleyin, iyi bilin!  
@@ -350,18 +403,19 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu ayet daha genel anlamda da alınabilir. Helal ve haram uydurmak, Allah’a şirk koşmaktır. İnsanoğlu Allah’ın belirledikleri dışında haram ve helal koymamalı, diğer insanlara dayatarak onları Allah’tan soğutmamalıdır. Bu insanları Allah’ın yolundan alıkoymakla aynıdır.  
       
     
-88. Allah’ın size verdiği rızıklardan helal ve temiz olarak yiyin. Ancak kendisine inandığınız Allah’tan korkun.  
+88. **Allah’ın size verdiği rızıklardan helal ve temiz olarak yiyin. Ancak kendisine inandığınız Allah’tan korkun.**  
       
       
     Allah’ın sunduğu rızkı alın, yiyin, ama helalinden, temizinden… Toprağın bağrından çıkan ekmeği, alnınızın teriyle kazandığınızı bilin. Ve unutmayın, inandığınız Allah’a karşı duyarlı olun, vicdanınızı diri tutun!  
       
       
     
-89. Allah sizi boş yere yeminlerinizden sorumlu tutmaz, bilakis kasten yaptığınız yeminlerden dolayı sizi hesaba çeker: Kefaret olarak, ailelerinizin yiyeceği yiyeceklerin/yediği yemeklerin averaj oranında/ailenize yedirdiğinizin ortalamasından on yoksulu doyurun; veya giydirin; ya da bir köleye özgürlüğünü verin. Buna gücünüz yetmiyorsa üç gün oruç tutun. Ettiğiniz yeminlerin kefareti işte budur. Ama yeminlerini tutun. Şükredesiniz diye Allah size âyetlerini işte böyle açıklıyor.
-90. Ey iman edenler! Sarhoşluk ve kumar, adanan/dikili taşlar ve oklarla falcılık şeytanın işi olan iğrenç bir şeylerdir: böyle iğrenç şeylerden kaçının ki kurtuluşa eresiniz.  
+89. **Allah sizi boş yere yeminlerinizden sorumlu tutmaz, bilakis kasten yaptığınız yeminlerden dolayı sizi hesaba çeker: Kefaret olarak, ailelerinizin yiyeceği yiyeceklerin/yediği yemeklerin averaj oranında/ailenize yedirdiğinizin ortalamasından on yoksulu doyurun; veya giydirin; ya da bir köleye özgürlüğünü verin. Buna gücünüz yetmiyorsa üç gün oruç tutun. Ettiğiniz yeminlerin kefareti işte budur. Ama yeminlerini tutun. Şükredesiniz diye Allah size âyetlerini işte böyle açıklıyor.**
+
+90. **Ey iman edenler! Sarhoşluk ve kumar, adanan/dikili taşlar ve oklarla falcılık şeytanın işi olan iğrenç bir şeylerdir: böyle iğrenç şeylerden kaçının ki kurtuluşa eresiniz.**  
       
     
-91. Şeytanın planı, içki ve kumarla ancak aranıza düşmanlık ve kin sokmak ve sizi Allah’ı anmaktan ve salattan alıkoymaktır: o halde çekinmeyecek misiniz/kaçınmayacak mısınız?  
+91. **Şeytanın planı, içki ve kumarla ancak aranıza düşmanlık ve kin sokmak ve sizi Allah’ı anmaktan ve salattan alıkoymaktır: o halde çekinmeyecek misiniz/kaçınmayacak mısınız?** 
       
       
     İçki ve kumar, insanın kanına sinsi bir zehir gibi sızar; dostu dosta düşman eder, kardeşi kardeşe kin güttürür. Nice ocaklar bu yüzden sönmüş, nice yürekler bu yüzden yanmıştır.  
@@ -379,21 +433,26 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-92. Allah’a itaat edin, Peygamber’e itaat edin ve kötülükten sakının. Eğer yüz çevirirseniz, bilin ki, elçimize düşen, mesajı en açık şekilde tebliğ etmektir.  
+92. **Allah’a itaat edin, Peygamber’e itaat edin ve kötülükten sakının. Eğer yüz çevirirseniz, bilin ki, elçimize düşen, mesajı en açık şekilde tebliğ etmektir.**  
       
       
     Elçiye itaat, onun getirdiği mesajdan ötürüdür. Zira ayetlerin dediği açıktır: Elçilerin görevi, sadece apaçık bir tebliğden ibarettir, bundan ötesi değildir.  
       
     
-93. İman edip salih ameller işleyenlere, kötülüklerden sakınıp, iman edip, salih amel işledikleri zaman geçmişte yediklerinden dolayı bir vebal yoktur. Yine kötülüklerden sakının ve iyilik yapın. Yine kötülüklerden korunun ve salih ameller işleyin. Çünkü Allah iyilik yapanları sever.
-94. Ey iman edenler! Allah, ancak, görmeden kendisinden korkanları imtihan etmek için, ellerinizin ve mızraklarınızın erişebileceği bir avla sizi imtihan ediyor: Bundan sonra kim haddi aşarsa, onlar için elemli bir azap vardır.
-95. Ey iman edenler! Kutsal bölgelerde veya hacı kıyafetindeyken av hayvanlarını öldürmeyin. Sizden biri kasten böyle yaparsa, tazmin, aranızdan iki adaletli kişinin hükmedeceği üzere, öldürdüğü hayvanın dengi kadar bir evcil hayvanı Kâbe’ye getirmesi, veya kefaret olarak/kefaretin yoluyla, amelinin cezasını tatsın diye yoksulu doyurması; ya da dengi oruçtur. Allah geçmişi bağışlar: tekrarı için Allah ondan cezasını alır. Çünkü Allah yücedir ve intikam sahibidir.
-96. Kendiniz ve yolcular için su avı ve onu yemek size helâl kılındı. ama kara avı peşinde koşmak yasaktır; – mukaddes bölgelerde veya hacı kıyafetinde olduğunuz müddetçe. Huzurunda toplanacağınız Allah’tan korkun.
-97. Allah, Beyt-i Haram olan Kâbe’yi insanlar için , haram ayları, kurbanlık hayvanları ve üzerlerindeki çelenkleri de, bir sığınak kıldı ki Allah’ın göklerde ve yeryüzünde olanları bildiğini ve Allah’ın her şeyden haberdar olduğunu bilesiniz diye.
-98. Bilin ki, Allah’ın cezası çetindir/cezalandırmada katıdır ve Allah, çok bağışlayandır, çok merhamet edendir.  
+93. **İman edip salih ameller işleyenlere, kötülüklerden sakınıp, iman edip, salih amel işledikleri zaman geçmişte yediklerinden dolayı bir vebal yoktur. Yine kötülüklerden sakının ve iyilik yapın. Yine kötülüklerden korunun ve salih ameller işleyin. Çünkü Allah iyilik yapanları sever.**
+
+94. **Ey iman edenler! Allah, ancak, görmeden kendisinden korkanları imtihan etmek için, ellerinizin ve mızraklarınızın erişebileceği bir avla sizi imtihan ediyor: Bundan sonra kim haddi aşarsa, onlar için elemli bir azap vardır.**
+
+95. **Ey iman edenler! Kutsal bölgelerde veya hacı kıyafetindeyken av hayvanlarını öldürmeyin. Sizden biri kasten böyle yaparsa, tazmin, aranızdan iki adaletli kişinin hükmedeceği üzere, öldürdüğü hayvanın dengi kadar bir evcil hayvanı Kâbe’ye getirmesi, veya kefaret olarak/kefaretin yoluyla, amelinin cezasını tatsın diye yoksulu doyurması; ya da dengi oruçtur. Allah geçmişi bağışlar: tekrarı için Allah ondan cezasını alır. Çünkü Allah yücedir ve intikam sahibidir.**
+
+96. **Kendiniz ve yolcular için su avı ve onu yemek size helâl kılındı. ama kara avı peşinde koşmak yasaktır; – mukaddes bölgelerde veya hacı kıyafetinde olduğunuz müddetçe. Huzurunda toplanacağınız Allah’tan korkun.**
+
+97. **Allah, Beyt-i Haram olan Kâbe’yi insanlar için , haram ayları, kurbanlık hayvanları ve üzerlerindeki çelenkleri de, bir sığınak kıldı ki Allah’ın göklerde ve yeryüzünde olanları bildiğini ve Allah’ın her şeyden haberdar olduğunu bilesiniz diye.**
+
+98. **Bilin ki, Allah’ın cezası çetindir/cezalandırmada katıdır ve Allah, çok bağışlayandır, çok merhamet edendir.**  
       
     
-99. Elçinin görevi, mesajı ancak tebliğ etmektir. Fakat Allah, açığa vurduğunuzu da gizlediğinizi de bilir.  
+99. **Elçinin görevi, mesajı ancak tebliğ etmektir. Fakat Allah, açığa vurduğunuzu da gizlediğinizi de bilir.**  
       
       
     Peygamber’in asıl görevi, Allah’ın kelamını, o kutsal ayetleri, insanlara ulaştırmaktır. Onlara doğru yolu göstermek, karanlıkta kalmış gönüllere bir meşale yakmaktır. O, yalnızca sözleriyle değil, yaşayışıyla da bir örnektir. Her adımı, her nefesi, her bakışı bir rehberdir. O, sözüyle de haliyle de bir ışıktır, yolu aydınlatan, yürekleri tutuşturan…  
@@ -401,10 +460,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnsanların yolu uzun, karanlık ve çetindir. Ama Peygamber, o yolu aydınlatır, insanı doğruya, güzele, hakikate çağırır. O, yalnızca bir elçi değil, bir önder, bir yol göstericidir. Onun izinden yürüyen, asla sapmaz, asla kaybolmaz. Çünkü o, Allah’ın kelamını taşıyan, insanlığa umut olan bir kandildir.  
       
     
-100. De ki: “Kötü olanla iyi olan şey bir olmaz, her ne kadar şerrin çokluğu/bolluğu gözünüzü kamaştırsa da/büyülese de, öyleyse Allah’tan korkun ki ey akıl sahipleri, kurtuluşa eresiniz.”  
+100. **De ki: “Kötü olanla iyi olan şey bir olmaz, her ne kadar şerrin çokluğu/bolluğu gözünüzü kamaştırsa da/büyülese de, öyleyse Allah’tan korkun ki ey akıl sahipleri, kurtuluşa eresiniz.”**  
       
     
-101. Ey iman edenler! Size açıklanırsa canınızı sıkabilecek şeyler hakkında soru sormayın. Ama Kur’an indirilirken bir şeyi sorarsanız, size açıklanır, Allah onları bağışlayacaktır: çünkü Allah çok bağışlayandır, halimdir.  
+101. **Ey iman edenler! Size açıklanırsa canınızı sıkabilecek şeyler hakkında soru sormayın. Ama Kur’an indirilirken bir şeyi sorarsanız, size açıklanır, Allah onları bağışlayacaktır: çünkü Allah çok bağışlayandır, halimdir.**  
       
       
       
@@ -432,14 +491,17 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kur’an’da açıkça yasaklanmamış olan şeyler, insanların kişisel tercihlerine bırakılmıştır. Herkes, kendi inancına, kültürüne göre hareket edebilir. Önemli olan, birbirimize saygı göstermek, farklılıklarımızı bir zenginlik olarak görmektir. Din, insanları birleştirmek, onlara yol göstermek için vardır. Onu, ayrılık sebebi haline getirmek, dinin asıl amacından uzaklaşmaktır. Yılbaşı, Noel gibi kutlamalar, kişisel tercihlere bırakılmalı, kimse bu konuda baskı görmemelidir. Çünkü Kur’an, insanlara özgürlük tanır, onları kendi tercihleriyle baş başa bırakır.  
       
     
-102. Sizden öncekiler de böyle sorular sormuşlar ve bu yüzden inançlarını kaybetmişlerdir.
-103. Kulağı kesik dişi deve, otlakta serbest bırakılan dişi deve, ikiz doğum için put kurbanları, yükten bırakılan aygır develeri / Bahire, Saibe, Vasile, Ham gibi hurafeleri yaratan Allah değildi: Bunlar kâfirlerdir. Onlar Allah’a karşı yalan uydururlar, halbuki onların çoğu akıldan yoksundur.
-104. Onlara: “Allah’ın indirdiğine gelin; Peygamber’e gelin” denildiğinde, “Atalarımızı üzerinde bulduğumuz yol bize yeter” derler. Ne! Ataları bilgiden ve hidayetten yoksun olduğu halde mi?
-105. Ey iman edenler! Nefsinizi koruyun: Eğer doğru yola uyarsanız, sapıtanlardan size bir zarar gelmez. Hepinizin hedefi Allah’adır. Yaptığınız her şeyin doğrusunu size gösterecek olan O’dur.  
+102. **Sizden öncekiler de böyle sorular sormuşlar ve bu yüzden inançlarını kaybetmişlerdir.**
+
+103. **Kulağı kesik dişi deve, otlakta serbest bırakılan dişi deve, ikiz doğum için put kurbanları, yükten bırakılan aygır develeri / Bahire, Saibe, Vasile, Ham gibi hurafeleri yaratan Allah değildi: Bunlar kâfirlerdir. Onlar Allah’a karşı yalan uydururlar, halbuki onların çoğu akıldan yoksundur.**
+
+104. **Onlara: “Allah’ın indirdiğine gelin; Peygamber’e gelin” denildiğinde, “Atalarımızı üzerinde bulduğumuz yol bize yeter” derler. Ne! Ataları bilgiden ve hidayetten yoksun olduğu halde mi?**
+
+105. **Ey iman edenler! Nefsinizi koruyun: Eğer doğru yola uyarsanız, sapıtanlardan size bir zarar gelmez. Hepinizin hedefi Allah’adır. Yaptığınız her şeyin doğrusunu size gösterecek olan O’dur.**  
       
       
     
-106. Ey iman edenler! Sizden herhangi birinize ölüm geldiği zaman, vasiyette aranızda şahit tutun; kendi kardeşliğinizden iki adil kişi veya yeryüzünde sefere çıkıyorsanız, dışarıdan başka kimseler; Eğer onların doğruluğundan şüphe ederseniz, ikisini de salattan sonra alıkoyun ve ikisi de Allah’a yemin etsinler: “Biz bunda dünyevî bir menfaat istemiyoruz, yakın akrabamız da olsa, delilleri Allah’a saklamayacağız/gizlemeyeceğiz. Bunu yaparsak, işte o zaman, günah bize/üzerimize olsun!”  
+106. **Ey iman edenler! Sizden herhangi birinize ölüm geldiği zaman, vasiyette aranızda şahit tutun; kendi kardeşliğinizden iki adil kişi veya yeryüzünde sefere çıkıyorsanız, dışarıdan başka kimseler; Eğer onların doğruluğundan şüphe ederseniz, ikisini de salattan sonra alıkoyun ve ikisi de Allah’a yemin etsinler: “Biz bunda dünyevî bir menfaat istemiyoruz, yakın akrabamız da olsa, delilleri Allah’a saklamayacağız/gizlemeyeceğiz. Bunu yaparsak, işte o zaman, günah bize/üzerimize olsun!”**  
       
     Ticaret hayatı, vadeli alışveriş, borçlanma, şahitlik… Bunlar, insanların birbirine güvenmesi, sözünü tutması, hakkını koruması gereken konulardır. Kur’an, bu konuda açık ve nettir. Vadeli borçların yazılıp kayıt altına alınmasını emreder. İki erkeğin şahitliğini ister. Fakat iki erkeğin bulunmadığı durumlarda, bir erkek ve iki kadın şahitlik edebilir. Bu, kadının ahlaki ya da akli melekeleriyle ilgili bir durum değildir. Daha çok, kadınların o dönemde ticari işlere erkekler kadar aşina olmaması, bu konuda hata yapma ihtimallerinin daha yüksek olmasıyla ilgilidir. İki kadın şartı, birinin unutması ya da işin içinden çıkamaması durumunda diğerinin devreye girmesi içindir. Yoksa, bir kadın gerekli şahitliği yapabiliyorsa, ikinci kadının görüşüne başvurmaya gerek yoktur.  
       
@@ -450,31 +512,41 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kadın ve erkek, bu nehrin iki yakası gibidir. Biri diğerinden üstün değildir. İkisi de, hakikatin sularında birleşir. Kur’an, bu birleşmeyi sağlamak, insanları korumak, adaleti tesis etmek için bu tür düzenlemeler getirir. Ve bu düzenlemeler, insanlığın yüzyıllardır süregelen yolculuğunda, bir rehber niteliğindedir.  
       
     
-107. Fakat bu ikisinin yalan yere yemin günahı işledikleri anlaşılırsa, yerlerine helal hak iddia edenlerden en yakın akraba iki kişi öne geçsinler ve “Biz şahitliğimizin bu ikisinden daha doğru olduğunu ve hakikatten öteye geçmediğimizi tasdik ederiz: eğer geçmişsek, işte o zaman, zulm bize/üzerimize olsun” diye Allah’a yemin etsinler.
-108. En uygunu, şehadetlerini gerçek mahiyet ve şekliyle vermeleridir, yoksa yeminlerinden sonra başka yeminlerin alınmasından korkmalarıdır. Ama Allah’tan korkun ve O’nun öğüdünü dinleyin: çünkü Allah, azgın bir toplumu doğru yola iletmez:
-109. Allah bir gün elçileri bir araya toplayacak ve soracak: “Öğretilerinize insanlardan ne cevap/tepki/karşılık aldınız?” Derler ki: “Bizim hiçbir bilgimiz yok; gizli olanı en iyi/tam olarak bilen Sensin.”
-110. O zaman Allah şöyle buyurur: “Ey Meryem oğlu İsa! Sana ve annene olan nimetimi anlat. Bak, ben seni ruh-kudüsle güçlendirdim ki, çocuklukta ve olgunlukta insanlarla konuştun. Bak, ben seni kutsal ruhla güçlendirdim.” Sana Kitab’ı, Hikmeti, Tevrat’ı ve İncil’i öğrettim de, benim iznimle çamurdan kuş şeklinde bir şey yaptın, ona üfledin de benim iznimle kuş oluverdi. Benim iznimle anadan doğma körlere ve alacalılara şifa verdin ve bak, benim iznimle ölüleri çıkardın ve bak, İsrailoğullarına apaçık âyetleri gösterdiğin zaman, ben İsrailoğullarını sana karşı şiddetten alıkoydum. İçlerinden kâfir olanlar: “Bu, apaçık bir sihirden/aldatmadan başka bir şey değildir” dediler.  
+107. **Fakat bu ikisinin yalan yere yemin günahı işledikleri anlaşılırsa, yerlerine helal hak iddia edenlerden en yakın akraba iki kişi öne geçsinler ve “Biz şahitliğimizin bu ikisinden daha doğru olduğunu ve hakikatten öteye geçmediğimizi tasdik ederiz: eğer geçmişsek, işte o zaman, zulm bize/üzerimize olsun” diye Allah’a yemin etsinler.**
+
+108. **En uygunu, şehadetlerini gerçek mahiyet ve şekliyle vermeleridir, yoksa yeminlerinden sonra başka yeminlerin alınmasından korkmalarıdır. Ama Allah’tan korkun ve O’nun öğüdünü dinleyin: çünkü Allah, azgın bir toplumu doğru yola iletmez:**
+
+109. **Allah bir gün elçileri bir araya toplayacak ve soracak: “Öğretilerinize insanlardan ne cevap/tepki/karşılık aldınız?” Derler ki: “Bizim hiçbir bilgimiz yok; gizli olanı en iyi/tam olarak bilen Sensin.”**
+
+110. **O zaman Allah şöyle buyurur: “Ey Meryem oğlu İsa! Sana ve annene olan nimetimi anlat. Bak, ben seni ruh-kudüsle güçlendirdim ki, çocuklukta ve olgunlukta insanlarla konuştun. Bak, ben seni kutsal ruhla güçlendirdim.” Sana Kitab’ı, Hikmeti, Tevrat’ı ve İncil’i öğrettim de, benim iznimle çamurdan kuş şeklinde bir şey yaptın, ona üfledin de benim iznimle kuş oluverdi. Benim iznimle anadan doğma körlere ve alacalılara şifa verdin ve bak, benim iznimle ölüleri çıkardın ve bak, İsrailoğullarına apaçık âyetleri gösterdiğin zaman, ben İsrailoğullarını sana karşı şiddetten alıkoydum. İçlerinden kâfir olanlar: “Bu, apaçık bir sihirden/aldatmadan başka bir şey değildir” dediler.**  
       
     
-111. “Ve bak, ben havarilere Bana ve Resûlüme iman etmelerini ilham ettim. “Biz iman ettik ve sen de şahit ol ki, biz Müslümanlar olarak Allah’a boyun eğiyoruz/teslim oluyoruz” dediler.”  
+111. **“Ve bak, ben havarilere Bana ve Resûlüme iman etmelerini ilham ettim. “Biz iman ettik ve sen de şahit ol ki, biz Müslümanlar olarak Allah’a boyun eğiyoruz/teslim oluyoruz” dediler.”** 
       
       
     Kur’an’a göre, tüm peygamberler İslam peygamberidir ve onlarla birlikte gelen ilahi vahye uyanlar da Müslümandır. Peygamberlerin getirdiği vahiylerin özü aynıdır. Bu yüzden, Allah’tan gelen Tevrat, Zebur, İncil ve Kur’an, dört farklı kitap değil, yalnızca farklı zamanlarda gönderilmiş, özü bir olan aynı ilahi Mesajtır.  
     
-112. İşte bakın! Havariler dediler ki: “Ey Meryem oğlu İsa! Rabbin bize gökten yiyeceklerle dolu bir sofra indirebilir mi?” İsa dedi ki: “Eğer inanıyorsanız Allah’tan korkun.”  
+112. **İşte bakın! Havariler dediler ki: “Ey Meryem oğlu İsa! Rabbin bize gökten yiyeceklerle dolu bir sofra indirebilir mi?” İsa dedi ki: “Eğer inanıyorsanız Allah’tan korkun.”**  
       
       
     Maide: Ziyafet (Sofra) Suresi, 112. ve 114. ayetlerinde Hz. İsa’nın Allah’tan istediği sofradan söz edildiğinden bu adı almıştır.  
       
     
-113. Dediler ki: “Biz ancak ondan yemek, kalplerimizi tatmin etmek ve senin bize doğruyu söylediğini bilmek ve mucizeye bizzat kendimiz şahitler olmak istiyoruz.”
-114. Meryem oğlu Îsâ dedi ki: “Ey Rabbimiz, bize gökten şerbetli bir sofra gönder ki, bizim için -ilkimiz/öncemiz ve sonucumuz/sonramız için- bir bayram ve Senden bir mucize olsun. Ve rızkımızı ver, çünkü sen bizim ihtiyaçlarımıza rızık verenlerin en hayırlısısın.”
-115. Allah dedi ki: “Size onu indireceğim: Bundan sonra sizden kim iman etmezse, onu bütün ümmetlerden hiçbirine vermediğim bir azapla azaplandırırım/cezalandırırım.”
-116. Ve işte! Allah şöyle diyecek: “Ey Meryem oğlu İsa! İnsanlara, Allah’ı bırakıp anneme ve bana ilahlar olarak kulluk edin dedin mi?” Der ki: “Sen yücesin/Sana hamd olsun! Söylemeye hakkım olmayan şeyi asla söyleyemem. Böyle bir şey söylemiş olsaydım, sen onu bilirdin. Sen benim kalbimdekini bilirsin, ben ise Seninkinin içindekini bilemem.” Çünkü Sen gizli olan her şeyi tam olarak bilirsin.
-117. “Onlara, senin bana emrettiğin şeyden başka bir şey söylemedim: Benim de Rabbim, sizin de Rabbiniz olan Allah’a kulluk edin.” Aralarında bulunduğum müddetçe onların üzerine şahit idim. Beni yanına aldığın zaman onların üzerinde gözetleyici olan sendin ve her şeylere şahit olan sensin.
-118. “Eğer onlara azap edersen, onlar Senin kulundurlar; eğer onları bağışlarsan, Sen güçlüsün, Hakimsin.”
-119. Allah şöyle buyurur: “Bugün, doğruların doğruluklarından yararlanacakları bir gündür. Onların yeri, altından ırmaklar akan cennetlerdir, ebedi yurtlarıdır. Allah onlardan razı olmuştur, onlar da Allah’tan. İşte bu büyük kurtuluştur, tüm arzuların yerine getirilmesidir.”
-120. Göklerin ve yerin ve bunlarda bulunanların tümününün mülkü Allah’ındır ve O, her şeye kadirdir.
+113. **Dediler ki: “Biz ancak ondan yemek, kalplerimizi tatmin etmek ve senin bize doğruyu söylediğini bilmek ve mucizeye bizzat kendimiz şahitler olmak istiyoruz.”**
+
+114. **Meryem oğlu Îsâ dedi ki: “Ey Rabbimiz, bize gökten şerbetli bir sofra gönder ki, bizim için -ilkimiz/öncemiz ve sonucumuz/sonramız için- bir bayram ve Senden bir mucize olsun. Ve rızkımızı ver, çünkü sen bizim ihtiyaçlarımıza rızık verenlerin en hayırlısısın.”**
+
+115. **Allah dedi ki: “Size onu indireceğim: Bundan sonra sizden kim iman etmezse, onu bütün ümmetlerden hiçbirine vermediğim bir azapla azaplandırırım/cezalandırırım.”**
+
+116. **Ve işte! Allah şöyle diyecek: “Ey Meryem oğlu İsa! İnsanlara, Allah’ı bırakıp anneme ve bana ilahlar olarak kulluk edin dedin mi?” Der ki: “Sen yücesin/Sana hamd olsun! Söylemeye hakkım olmayan şeyi asla söyleyemem. Böyle bir şey söylemiş olsaydım, sen onu bilirdin. Sen benim kalbimdekini bilirsin, ben ise Seninkinin içindekini bilemem.” Çünkü Sen gizli olan her şeyi tam olarak bilirsin.**
+
+117. **“Onlara, senin bana emrettiğin şeyden başka bir şey söylemedim: Benim de Rabbim, sizin de Rabbiniz olan Allah’a kulluk edin.” Aralarında bulunduğum müddetçe onların üzerine şahit idim. Beni yanına aldığın zaman onların üzerinde gözetleyici olan sendin ve her şeylere şahit olan sensin.**
+
+118. **“Eğer onlara azap edersen, onlar Senin kulundurlar; eğer onları bağışlarsan, Sen güçlüsün, Hakimsin.”**
+
+119. **Allah şöyle buyurur: “Bugün, doğruların doğruluklarından yararlanacakları bir gündür. Onların yeri, altından ırmaklar akan cennetlerdir, ebedi yurtlarıdır. Allah onlardan razı olmuştur, onlar da Allah’tan. İşte bu büyük kurtuluştur, tüm arzuların yerine getirilmesidir.”**
+
+120. **Göklerin ve yerin ve bunlarda bulunanların tümününün mülkü Allah’ındır ve O, her şeye kadirdir.**
 
 
 

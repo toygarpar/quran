@@ -3395,37 +3395,1144 @@ O ebedidir.
 
 
 
-142. Münafıklar, kendilerinin Allah’ı hile ile yeneceklerini sanırlar, oysa Allah onların boyunu aşacaktır: Salata kalktıkları zaman, insanlara gösteriş yapmak için samimiyetsizce/ciddiyetsizce/içten olmadan kalkarlar, fakat Allah’ı pek az zikrederler;
-143. Onlar, ne bir grup, ne de Allah’ın saptırdığı bir başkası için ihlaslı olmazlar/ samimi davranmazlar, bunun ortasında/arasında bile akılları dağılır/bocalayıp dururlar/dikkatleri dağılır, ona asla doğru yol bulamazsınız.
-144. Ey iman edenler! Müminleri bırakıp da kâfirleri dost edinmeyin: Kendi aleyhinize Allah’a apaçık bir delil mi sunmak istiyorsunuz?
-145. Münafıklar, ateşin en alt tabakasındadırlar: onlara hiçbir yardımcı bulamazsın;
-146. Ancak tövbe edenler, hayatlarını ıslah edenler, Allah’a sımsıkı sarılanlar ve Allah’ın katında olduğu gibi dinlerini temize çıkaranlar müstesna: eğer öyleyse onlar mü’minlerden sayılırlar/müminlerle birlikte sayılacaklardır. Ve yakında Allah müminlere çok değerli/muazzam bir mükâfat verecektir.
+142. **Münafıklar, kendilerinin Allah’ı hile ile yeneceklerini sanırlar, oysa Allah onların boyunu aşacaktır: Salata kalktıkları zaman, insanlara gösteriş yapmak için samimiyetsizce/ciddiyetsizce/içten olmadan kalkarlar, fakat Allah’ı pek az zikrederler;**
+
+
+143. **Onlar, ne bir grup, ne de Allah’ın saptırdığı bir başkası için ihlaslı olmazlar/ samimi davranmazlar, bunun ortasında/arasında bile akılları dağılır/bocalayıp dururlar/dikkatleri dağılır, ona asla doğru yol bulamazsınız.**
+
+
+    Onlar ne buradadır, ne ötededir.
+    Ne Allah’a gönülden bağlanırlar, ne de inkâr ettiklerine bütünüyle teslim olurlar.
+    İki dünyanın ortasında kalmışlardır; bir boşlukta, yönsüz ve sessiz.
+    Ne bir tarafa kök salarlar, ne öte yana.
+    Rüzgâr nereden eserse, yüzlerini o yana çevirirler.
+    Ve işte, o bocalayış…
+    Bir gün imanla konuşurlar, ertesi gün inkârla.
+    Bir gün Allah derler, ertesi gün menfaat.
+    Ne bir yola girerler, ne bir yol bulurlar.
+
+    Bu, sadece bir kafa karışıklığı değil, bir ruh çürümesidir.
+    Allah’ın kendisine yönelmek istemeyeni zorla doğrultmadığı o kader anı…
+    İnsan kendi seçiminde ısrar eder, kendi sapıklığında yürürse,
+    Allah da onu o karanlıkta bırakır.
+    Zorla iman ettirmez kimseye.
+    İnsan ister ki kandırsın; hem Allah’ı, hem kullarını, hem kendini.
+    Ama kandırdığı tek şey, kendi kalbidir.
+
+    Çünkü kalp, yalanla beslendi mi bir daha doğrulmaz.
+    Vicdan körelir, yüz soğur, bakış donar.
+    Bir bakarsın, insanlar da güvenmez artık ona.
+    Sözünün değeri yoktur, selâmı samimiyetsizdir, gülüşü boştur.
+    Ve sonunda ne dünyada yer bulur, ne ahirette.
+    Arada kalmışlığın en derin, en sessiz azabına mahkûm olur.
+
+    “Allah kimin yolundan çevirirse, onun için asla bir yol bulamazsın.”
+    Bu, bir tehdit değil, bir hakikattir.
+    İnsan kendi yolunu seçer, sonra o yol onu yutar.
+    Çünkü samimiyet, bir kalbin en değerli hazinesidir.
+    Bir kez kaybedildi mi, bütün yollar kapanır.
+
+
+144. **Ey iman edenler! Müminleri bırakıp da kâfirleri dost edinmeyin: Kendi aleyhinize Allah’a apaçık bir delil mi sunmak istiyorsunuz?**
+
+
+145. **Münafıklar, ateşin en alt tabakasındadırlar: onlara hiçbir yardımcı bulamazsın;**
+
+
+
+146. **Ancak tövbe edenler, hayatlarını ıslah edenler, Allah’a sımsıkı sarılanlar ve Allah’ın katında olduğu gibi dinlerini temize çıkaranlar müstesna: eğer öyleyse onlar mü’minlerden sayılırlar/müminlerle birlikte sayılacaklardır. Ve yakında Allah müminlere çok değerli/muazzam bir mükâfat verecektir.**
+
+
+    Bu ayet, önceki sert uyarıların ardından bir kapı aralar:
+    Allah, hiçbir kalbi sonsuza dek mühürlemez.
+    Ama bu kapıdan geçmek, basit bir “affedilme dileği” değil, kökten bir dönüşüm ister.
+
+    1. Tövbe: Dönüşün İlk Adımı
+
+    Tövbe, yalnızca “pişmanlık” değil,
+    yanlışı görmek, kabul etmek ve ondan bilinçli bir şekilde dönmektir.
+    Kişi, artık aynı karanlık sokağa sapmamaya yemin eder.
+    Tövbe, kalbin yeniden Allah’a yönelmesidir.
+
+    2. Islah: Pişmanlığın Amelle Kanıtı
+
+    Gerçek tövbe, davranışla ispat ister.
+    Yalanı bırakmak, adaleti seçmek, kul hakkını gözetmek...
+    İman, sadece sözle değil, yaşamla doğrulanır.
+
+    3. Allah’a Sımsıkı Sarılmak
+
+    Bu, geçici bir duygu değil; bir ömürlük bağdır.
+    Zorlukta da bollukta da Allah’a güvenmek,
+    korku ve çıkar arasında değil, teslimiyetle yürümektir.
+    Bu bağlılık, kişiyi sapıklıktan, dünyaya tapınmaktan korur.
+
+    4. Dini Temizlemek: Niyetin Saflığı
+
+    Din, insanlara gösteri için değil, Allah’a adanmak içindir.
+    Gösteriş, çıkar veya korku karıştığında, din kirlenir.
+    Bu yüzden ayet “dinlerini Allah için arındırmak” der —
+    çünkü iman, en çok niyetin berraklığında görünür.
+
+    Sonuç: Umudun Ayeti
+
+    Kur’an, hiçbir günahkârı ebediyen dışlamaz.
+    Yeter ki kalp gerçekten dönsün, amel bunu izlesin.
+
+    Ve işte o zaman:
+
+    “Onlar artık müminlerin safına katılırlar.”
+
+    Allah katında geçmiş değil, bugünkü yöneliş önemlidir.
+    Ayet umutla son bulur:
+
+    “Allah, müminlere çok büyük bir ödül verecektir.”
+
+    Bu ödül, dünyadaki her menfaatten,
+    her alkıştan, her unvandan büyüktür.
+    Bu, Allah’ın rızasının ödülüdür —
+    ve o rıza, bütün ödüllerin en yücesidir.
+
+
+
 147. Eğer şükreder ve inanırsanız, Allah sizin azabınızla ne elde edebilir? Hayır, hayırları bilen/takdir eden/farkına varan Allah’tır, her şeyi bilendir.
-148. Allah, zulmün/adaletsizliğin yapıldığı yerler/haller dışında, dışarda umumi konuşmalarda şer söylenmesini sevmez; Allah her şeyi işiten ve bilendir.
+
+
+"İşte Bak! Safa ve Merve Allah’ın İşaretlerindendir/Sembollerindendir. O halde hac veya umre zamanlarında Evi ziyaret edenler, her ikisini de tavaf ederse, onlara günah yoktur. Kim de kendi iyilik yapma dürtüsüne uyarsa/içinden gelerek iyilik yaparsa, bilsin ki Allah, takdir eden ve bilendir." : Bakara 158
+
+"İbrahim, gerçekten Allah’a boyun eğen, imanı dosdoğru olan bir modeldi/örnek olandı ve Allah’a ortak koşmadı.
+Kendisini seçen ve onu dosdoğru yola ileten Allah’ın nimetlerine şükretti.
+Biz ona dünyada bir hayır verdik, ahirette de salihlerdendir.
+Bu yüzden sana vahyolunan Mesajı öğrettik: “Doğru olan İbrahim’in yollarına uyun ve o, Allah’a ortak koşmazdı.”" : Nahl 120-123
+
+
+Bu ayet, insana yavaşça dönüp bakan bir ses gibidir.
+Ne bir tehdit ne bir korkutmadır; daha çok, bir hatırlatmadır.
+“Ben size zulmetmek için değil, sizi yüceltmek için var ettim” der adeta.
+
+1. Allah’ın Azapla Bir Kazancı Yoktur
+
+Allah, kullarını cezalandırarak ne elde eder?
+Hiçbir şey.
+O, hiçbir şeye muhtaç değildir.
+Ne insanların itaatine, ne secdesine, ne duasına…
+
+O’nun azabı, bir öfkenin değil, adaletin sonucudur.
+Bir adalet ki, düzen bozulmasın diye işler.
+Tıpkı taşkın bir ırmağın yatağına döndürülmesi gibi.
+Cezanın amacı yok etmek değil, sınır çizmek, dengeyi korumaktır.
+
+2. Allah, En Küçük Hayrı Bile Görür
+
+Ayetin sonunda geçen “şekûr” ismi —
+sadece bilen değil, tanıyan, değer veren, karşılığını kat kat ödeyen anlamındadır.
+
+Bir insanın içinden geçen minicik bir iyi niyet,
+bir kırık kalbin içindeki tövbe,
+kimsenin görmediği bir iyilik...
+Hepsi Allah katında kayda geçer.
+Hiçbiri unutulmaz.
+
+O’nun terazisinde, karınca kadar hayır da dağ gibi büyür.
+
+3. Şükür ve İman: İnsanın İki Kanadı
+
+İman, Allah’ı bilmek ve kabullenmektir.
+Şükür ise O’nu sevmektir.
+
+İman, aklın yoludur;
+Şükür, kalbin.
+
+Bir insan hem inanır hem şükrederse,
+hayat bir anlam kazanır.
+Nimet artık sıradan değildir;
+her lokma bir şükran, her nefes bir teşekkür olur.
+
+Ve işte o zaman, insanın varlığı Allah’ın düzenine karışır;
+kâinattaki o büyük uyumun parçası olur.
+
+4. Allah Her Şeyi Bilir, Ama Özellikle İyiliği Görür
+
+“Allah her şeyi bilir” derken Kur’an,
+korkutmak için değil, güvence vermek için söyler.
+
+Çünkü bu bilginin içinde hem adalet vardır,
+hem de lütuf.
+Ne bir iyilik kaybolur,
+ne bir kötülük gizlenir.
+
+O, her şeyi yerli yerinde tartar.
+
+Sonuç: Cezasızlığın Değil, Merhametin Ayeti
+
+Bu ayet, Allah’ın gazabını değil, merhametini gösterir.
+O, kullarını cezalandırmak için yaratmamıştır.
+Azap, O’nun isteği değil, kulun tercihlerinin sonucudur.
+
+Bir insan inanırsa, şükrederse,
+artık cezaya yer kalmaz — çünkü o,
+Allah’ın murad ettiği insan olmuştur.
+
+Ve Allah,
+böyle bir kulu tanır, sever, yüceltir.
+
+Çünkü O,
+her hayrı bilen,
+her şeyi hakkıyla bilendir.
+
+
+
+
+148. **Allah, zulmün/adaletsizliğin yapıldığı yerler/haller dışında, dışarda umumi konuşmalarda şer söylenmesini sevmez; Allah her şeyi işiten ve bilendir.**
+
+
+
+    Allah, zalimin sesini bastırmak ister, ama yüreğinde kin taşıyanın haykırışını da sevmez. Adaletsizlik yapılmadıkça, kötülüğü dillendirmeyi hoş görmez. Çünkü Allah her sözü duyar, her niyeti bilir.
+
+    Kötülüğü konuşmak…
+    İnsan bazen öfkesine kapılır, bazen kalabalıklarda sesini duyurmak ister.
+    Ama kötülük, ağızdan çıktığında büyür;
+    bir dedikodu olur, bir fitneye dönüşür,
+    bir evin duvarlarını, bir köyün huzurunu yıkar.
+
+    Oysa kötülük, sadece zulmün gölgesinde dile getirilmeli —
+    bir çocuk ağladığında,
+    bir mazlumun ekmeği elinden alındığında,
+    bir köyün üstüne karanlık çöktüğünde…
+
+    İşte o zaman susmak, suça ortak olmaktır.
+    İşte o zaman söz, silah değil, adaletin nefesi olur.
+    Çünkü susulan yerde zalim büyür,
+    bağırılan yerde hakkı gözetmek gerek.
+
+    Ama insan, niyetini bilmeden konuşursa,
+    adaletle öfkeyi karıştırır.
+    Bir söz, haktan doğar da şerre döner bazen —
+    bir başka gönlü yakar, bir başkasını utandırır.
+
+    Allah işte bunu bilir.
+    Sözün hangi kalpten çıktığını,
+    hangi karanlıkta yoğrulduğunu,
+    hangi niyetle söylendiğini duyar.
+
+    Ve o yüzden der ki bu ayet:
+
+    “Zulüm yoksa sus.
+    Ama zulüm varsa,
+    adalet adına konuş —
+    ölçülü, temiz, dürüstçe konuş.”
+
+    Çünkü Allah,
+    kötülüğü yaymaktan hoşlanmaz,
+    ama zulmü örtmekten hiç hoşlanmaz.
+
+    O, adaleti sever.
+    Ve adalet,
+    ne susmak kadar kör,
+    ne bağırmak kadar hoyrattır.
+    Adalet, yerli yerinde olan, dengede duran bir vicdandır.
+
 
 
 149. **Bir iyiliği açığa vursanız da, gizleseniz de, bir kötülüğü bağışlayarak örtseniz de, şüphesiz Allah, günahları örter ve ahlâki hüküm vermede/değerlerin yargılanmasında güç yetirendir.**
 
     Afüv: Affeden, hataları ve günahları bağışlayan
 
+    “Allah insana vahiy yoluyla hiçbir şey indirmez” dediklerinde, Allah’ı adil bir takdirle değerlendirmiyorlar. De ki: “Öyleyse, Musa’nın insanlara bir nur ve hidayet olarak getirdiği Kitabı kim indirdi? Orada size, sizin de atalarınızın da bilmediğiniz şeyler öğretildi.” De ki: “Onu Allah indirdi”: O halde bırakın onları boş tezlere ve boş sözlere dalsınlar. : Enam 91
 
-150. Allah’ı ve elçilerini inkar edenler ve “Bazısına inanır, bazısını inkar ederiz” diyerek Allah’ı elçilerinden ayırmak isteyenler: Ve yarı yolda kalmak isteyenler, –
-151. Onlar gerçekten eşit/aynı derecede kâfirdirler; Biz de kâfirler için alçaltıcı bir azap hazırladık.
-152. Allah’a ve elçilerine inanan ve elçiler arasında ayrım yapmayanlara gelince, onların mükâfatlarını yakında vereceğiz: çünkü Allah çok bağışlayandır, çok merhamet edendir.
-153. Kitap ehli, senden kendilerine gökten bir kitap indirmeni istiyorlar.Musadan daha büyük bir mucize istediler de şöyle dediler: “Bize Allah’ı herkesin içinde göster” dediler, fakat onlar, küstahlıklarından dolayı gök gürültüsü ve şimşekle sersemlediler. Kendilerine apaçık deliller geldikten sonra da buzağıya tapıyorlardı. yine de onları affettik; Musa’ya apaçık deliller verdi.
-154. Ve söz vermeleri için üzerlerine Sina Dağı’nı yükselttik ve bir başka sefer de: “Kapıdan alçakgönüllülükle girin” dedik; ve onlara bir kez daha, “Sebt günü konusunda haddi aşmayın” diye emrettik. Ve onlardan sağlam bir söz aldık.
+    Bir iyiliği açığa da vursan, gizlesen de,
+    bir kötülüğü affedip üstünü örtsen de…
+    Bil ki Allah, her şeyi bilen, her şeyi yerli yerine koyandır.
+    O, günahı siler, gönlün tartısını şaşırmaz.
+
+    İyilik bazen meydanda yapılır.
+    Halk görsün, ibret alsın diye.
+    Bir zalime karşı durursun,
+    bir haksızlığı duyurursun —
+    o zaman iyilik, gizlenmez;
+    adaletin sesidir çünkü.
+
+    Ama bazen de el gizlice uzanır,
+    bir açın sofrasına bir ekmek bırakılır,
+    bir yetimin başı sessizce okşanır.
+    O vakit iyilik, söze değil, yüreğe yazılır.
+    Gizli yapılan, daha ağır basar terazide —
+    çünkü orada gösteriş yoktur, yalnızca samimiyet vardır.
+
+    Ve kötülük...
+    Bazen bir sözle gelir, bazen bir darbe gibi.
+    İnsanın içi yanar, hakkı elinden alınır.
+    İntikam kolaydır, affetmek zordur.
+    Ama kim affederse,
+    yüreğini zehirden arındırır.
+    O, hem kendini, hem dünyayı onarır.
+
+    Allah, işte bunu sever:
+    Kin değil, bağışlama;
+    öfke değil, dirayet.
+
+    Çünkü O, günahı siler,
+    ama niyeti silmez —
+    niyetin hakkını verir.
+    Her işin içini, her kalbin yönünü görür.
+    Bir iyiliği kimin için yaptığını,
+    bir affı hangi kalple dile getirdiğini bilir.
+
+    O’nun adaletinde hiçbir şey eksik kalmaz:
+    Ne gizli bir dua unutulur,
+    ne gizli bir kin gizli kalır.
+
+    Ve sonuçta, ayet şunu fısıldar insana:
+
+    İyiliği yap, gösterişe kapılmadan.
+    Affedebilirsen, affet.
+    Yapamazsan da kinle değil, adaletle yaşa.
+
+    Çünkü Allah,
+    her şeyin değerini tartar,
+    her kalbin sesini duyar.
+    O, bağışlayanların da, bağışlananların da Rabbidir.
+
+
+150. **Allah’ı ve elçilerini inkar edenler ve “Bazısına inanır, bazısını inkar ederiz” diyerek Allah’ı elçilerinden ayırmak isteyenler: Ve yarı yolda kalmak/ikisinin arasında bir yol tutmak  isteyenler, –**
+
+
+    "Muhakkak ki Biz seni hak ile bir müjdeci ve bir uyarıcı olarak gönderdik: ve geçmişte aralarında bir uyarıcı bulunmayan/yaşamamış hiçbir kavim yoktur." : Fatır 24
+
+
+    Allah’ı da, O’nun elçilerini de inkâr edenler var.
+    Bir de, “Biz bazılarına inanırız, bazılarını inkâr ederiz,” diyenler…
+    Bir de, ikisinin arasında, sanki yoldan korkar gibi,
+    yarı yolda duranlar…
+    Ne bütünüyle inanırlar, ne de açıkça reddederler.
+
+    Kur’an, hepsini bir kefeye koyar:
+    Hepsi aynı inkârın farklı yüzleridir.
+    Çünkü iman, parça parça olmaz.
+    Bir denizi bölüp “şurasına inanırım, burasına inanmam” diyebilir misin?
+    İnanç da öyledir; ya bütününe girersin, ya da dışındasındır.
+
+    Birinci tür, apaçık reddeder.
+    Ne gökyüzündeki düzeni görür,
+    ne kalbindeki sesi duyar.
+    Onun için ne peygamber vardır, ne mesaj,
+    ne de insanın yeryüzündeki hikmeti.
+    Kendini kendi haline bırakır,
+    ama o hal, bir boşluktur — dipsiz, sessiz bir hiçliktir.
+
+    İkinci tür, seçmecidir.
+    “Bizim kavmimizden gelen elçiye inanırız,
+    ama ötekine yok!” der.
+    Sanki Allah, bir halkın tekelindeymiş gibi.
+    Oysa Allah, yaratandır, tek Hakim'dir;
+    rüzgârı bir millete ait değildir.
+    Her kavme bir uyarıcı göndermiştir.
+    Birini reddeden, hepsini reddetmiş olur.
+    Çünkü peygamberlik zinciri, tek bir zincirin halkaları gibidir;
+    biri koparsa, anlam da kopar.
+
+    Üçüncü tür ise, kararsızdır.
+    Ne inanır, ne inkâr eder.
+    Bir eliyle iman tutar, öbür eliyle şüpheyi.
+    İman ona ağır gelir, ama nimetini ister.
+    Bir yandan “Tanrı var” der,
+    bir yandan kendi çıkarına tapar.
+    Bu yol, yol değildir;
+    ne iman olur, ne inkâr —
+    sadece bir kaçıştır, bir korkudur.
+
+    Kur’an der ki:
+    Hepsi aynıdır.
+    Çünkü hepsi, Allah’ın birliğini bölmeye kalkmıştır.
+    Oysa Allah’ın mesajı, bir bütündür:
+    Ne ırkla sınırlı,
+    ne dille,
+    ne çağla.
+    Her çağda, her halkta aynı hakikat parlar —
+    bir dağın farklı yüzlerine yansıyan güneş gibi.
+
+    Ve ayet akılla konuşur:
+    İman, pazarlık değildir.
+    Ya teslim olursun, ya da olmazsın.
+    Bir kısmına inanıp ötekine sırt çevirmek,
+    kaynağı reddetmektir.
+
+    Çünkü Allah’ın yolu bölünmez;
+    bölünürse, artık o yol değildir.
+
+    Ve bil ki:
+    Doğru yol bütündür.
+    Yarım iman, imansızlıktır.
+    Yarım doğru, yalandır.
+
+
+
+151. **Onlar gerçekten eşit/aynı derecede kâfirdirler; Biz de kâfirler için alçaltıcı bir azap hazırladık.**
+
+
+152. **Allah’a ve elçilerine inanan ve elçiler arasında ayrım yapmayanlara gelince, onların mükâfatlarını yakında vereceğiz: çünkü Allah çok bağışlayandır, çok merhamet edendir.**
+
+
+153. **Kitap ehli, senden kendilerine gökten bir kitap indirmeni istiyorlar.Musadan daha büyük bir mucize istediler de şöyle dediler: “Bize Allah’ı herkesin içinde göster” dediler, fakat onlar, küstahlıklarından dolayı gök gürültüsü ve şimşekle sersemlediler. Kendilerine apaçık deliller geldikten sonra da buzağıya tapıyorlardı. yine de onları affettik; Musa’ya apaçık deliller verdi.**
+
+    "Ve hatırla biz Musa’ya kırk gece ayırdık ve onun gıyabında buzağıyı taptınız ve büyük bir zulm işlediniz/zalimlik yaptınız." : Bakara 51
+
+    "Ve söylediğinizi hatırlayın:”Ey Musa! Allah’ı apaçık görmedikçe sana asla inanmayacağız.” Fakat siz bakıp dururken bile gök gürültüsü ve ışıktan sersemlemiştiniz, sizi yıldırım çarpmıştı." : Bakara 55
+
+    "Allah, yedi göğü ve yerden/yeryüzünden de bir o kadarını yaratandır. Allah’ın her şeye kadir olduğunu ve Allah’ın her şeyi ilmiyle kuşattığını bilesiniz diye emri onların arasından iner./Hepsinin ortasından O’nun Emri iner: Allah’ın her şeye kadir olduğunu ve Allah’ın her şeyi ilmiyle kuşattığını bilesiniz diye." : Talak 12
+
+
+    Kitap ehli senden, “Gökyüzünden bize bir kitap indir” diye tutturdular.
+    Sanki gözleriyle görmeden inanamayacaklardı.
+    Oysa onlardan öncekiler, Musa’dan daha büyüğünü istemişti:
+    “Bize Allah’ı açıkça göster!” dediler.
+    Ama o kibirleriyle, gök gürültüsünün sesiyle sersemlediler,
+    şimşeğin ışığında korkuya kapıldılar.
+
+    Yine de, mucizelerle dolu günlerin ardından,
+    elleriyle bir buzağı yaptılar,
+    ve o buzağıya tapındılar.
+    Yine de Allah onları affetti,
+    ve Musa’ya apaçık deliller verdi.
+
+    Bu ayet, insanın görmeden inanamama hastalığını anlatır.
+    İman isterler — ama gözle.
+    Oysa göz, sadece şekli görür;
+    hakikati gören, kalptir.
+
+    “Bize Allah’ı göster!” demek,
+    sonsuzu göz hizasına indirmek,
+    yaratıcıyı kendi terazisinde tartmak istemektir.
+    İnsanın gözünün eriştiği her şey sınırlıdır,
+    Allah ise sınırsız.
+    Görünür olan yaratılmıştır,
+    Oysa Allah, yaratan’dır.
+    Yaratılan, Yaratan’a bakmakla değil,
+    O’nun eserine akılla bakmakla idrak eder.
+
+    Ama insan, hep görmek ister.
+    Denizi ikiye yaran Musa’nın kavmi bile,
+    mucizenin içinde yaşarken buzağıya döndü.
+    Çünkü kalp eğitilmemişse,
+    mucize bile fayda etmez.
+    Altını eritir, put yapar;
+    fikirden tapınak kurar;
+    sözü, Tanrı yerine koyar.
+
+    Ve yine de Allah affeder.
+    Çünkü rahmeti engindir.
+    Ama o affın içinde bir uyarı gizlidir:
+    Affedilmek, yeniden sorumlu olmak demektir.
+    Musa’ya “apaçık deliller” verilmesi de bundandır —
+    İman, sadece affın hediyesi değil,
+    sorumluluğun yüküdür.
+
+    Ders şudur:
+    Allah’ı görmek istersen,
+    dağa değil, kalbine bak.
+    Yıldızlara değil, vicdanına kulak ver.
+    Çünkü O, gökte değil sadece,
+    adaletin terazisinde,
+    merhametin sesinde,
+    hakkı arayanın içindedir.
+
+    Allah’ı görmek isteyen,
+    ışığın kendisine değil,
+    ışığın aydınlattığına bakmalıdır.
+
+    Sonuç:
+    Kur’an burada, bizi dış arayıştan iç arayışa çağırır.
+    Sorudan düşünmeye,
+    görmekten anlamaya,
+    meraktan teslimiyete.
+
+    Ve bize şunu hatırlatır:
+
+    “Allah, affedendir — ama affı, sorumlulukla birlikte gelir.”
+
+
+154. **Ve söz vermeleri için üzerlerine Sina Dağı’nı yükselttik ve bir başka sefer de: “Kapıdan alçakgönüllülükle girin” dedik; ve onlara bir kez daha, “Sebt günü konusunda haddi aşmayın” diye emrettik. Ve onlardan sağlam bir söz aldık.**
+
+
+    Ve hatırlayın, biz demiştik ki: “Bu şehre girin ve orada bulunanlardan dilediğiniz gibi yiyin; fakat duruşunuzda ve hitapta, kapıdan alçakgönüllülükle girin, Biz de sizin kusurlarını bağışlayacağız ve iyilik edenlerin payını artıracağız.” : Bakara 58
+
+    Ve hatırlayın sizden ahdinizi almıştık ve Sina Dağı’nın arşa çıkan yüksekliğini üzerinize kaldırmıştık: “Size verdiğimize sımsıkı sarılın ve onda olanı ibret alın: Umulur ki Allah’tan korkarsınız.” demiştik. : Bakara 63
+
+    Ve içinizden Şabat/Cumartesi gününde haddi aşanları iyi tanıyordunuz: Onlara dedik ki:”Hor görülen ve reddedilen maymunlar olun” : Bakara 65
+
+
+    Ahdin Ağırlığı
+
+    Bu ayet, İsrailoğulları’nın Allah ile yaptıkları sözü — o büyük ahdi — defalarca bozduklarını hatırlatır. Üç olay üzerinden anlatılır bu: Sina Dağı’nın gölgesinde verilen söz, tevazuyla girilmesi gereken bir kapı, ve haddi aşılmaması gereken bir gün.
+    Hepsi, insanın kendi sözüne karşı nasıl gevşediğini; ilahî emre karşı nasıl unutuşa kapıldığını gösterir.
+
+    1. Sina Dağı Eteklerinde Ahid
+
+    Allah, Tevrat’ı Mûsâ’ya verirken İsrailoğulları’na imanlarını yeniletmişti.
+    Dağ, onların üzerine bir tehdit gibi yükselmişti — sanki gök, “Verdiğin söze sahip çık” diyordu.
+    Bu sahne, ahdin ne kadar ağır bir sorumluluk olduğunu anlatır.
+
+    Akılla bakarsak: İlahi düzen, evrenin yasaları kadar gerçektir. Ona başkaldırmak, doğanın dengesine karşı çıkmak gibidir.
+    İnsan, verdiği sözle kendi kaderini bağlar; o sözü bozduğunda, aslında kendi iç düzenini yıkar.
+
+    2. “Kapıdan Alçakgönüllüce Girin” Emri
+
+    Onlara bir şehre girerken alçakgönüllü olmaları emredilmişti.
+    Ama onlar, bu emri küçümseyerek, alaycı bir sözle yanıt verdiler:
+    “Biz öyle değil, şöyle gireriz!”
+    O an, bedenleri itaat etti ama kalpleri isyan etti.
+
+    Bu olay, dış itaatle iç tevazunun farkını gösterir.
+    Allah, eğilen bedeni değil, eğilen kalbi ister.
+    Gerçek teslimiyet, secdenin biçiminde değil, niyetinde gizlidir.
+
+    3. Şabat Gününde Haddi Aşmak
+
+    Cumartesi, onlar için kutsal bir dinlenme günüydü.
+    O gün hiçbir iş yapılmaz, balık tutulmaz, ticaret edilmezdi.
+    Ama onlar, denizin bereketine sabredemediler; hileyle yasağı deldiler.
+    Kutsalı, menfaatin önünde eğdiler.
+
+    Bu, kutsal olanı sıradanlaştırmak, yani profanlaştırmaktır —
+    ilahi sınırları bilerek çiğnemek, ahdin özüne ihanettir.
+
+    4. Ortak Ders: Sözün Ağırlığı
+
+    Bu üç olayda da Allah, onlara açık emirler vermişti.
+    Görmüşlerdi, duymuşlardı, hatta mucizelere tanık olmuşlardı.
+    Ama yine de arzularının, çıkarlarının peşinden gittiler.
+
+    Bu yüzden Kur’an der: “Onlardan ağır bir ahd aldık.”
+    Ağır, çünkü kolay bozulmaz.
+    Ağır, çünkü her ihlali bir sarsıntı getirir — hem topluma, hem kalbe.
+
+    Sonuç (Akılla Anlaşılabilir Gerçek)
+
+    Bu ayet yalnızca bir kavmi anlatmaz; her nesle, her inanana seslenir:
+
+    Ahid, sadece “İnandık” demek değildir.
+    O, her emir karşısında içten boyun eğmektir.
+    Tevazu, sadece tavırda değil; kalpte Allah’a olan saygıda görünür.
+    Kutsal olanı korumak, ilahi sınırları menfaat uğruna aşmamaktır.
+
+    Ve unutma:
+    Allah, sözünü unutanı affeder — ama önce hatırlamasını ister.
+    Çünkü iman, sadece sözle değil, sınav anında verilen kararla ölçülür.
+
+
+
 155. İlahi hoşnutsuzluğa maruz kaldılar/Allah’ın gazabına uğradılar: Peygamberleri haksız yere öldürüp Allah’ın âyetlerini inkâr ederek; “Kalplerimiz Allah’ın kelâmını muhafaza eden perdelerdir, daha fazlasına ihtiyacımız yok” diyerek antlaşmalarını bozular; – Hayır, Allah onların kalplerini küfretmelerinden dolayı mühürlemiştir ve onlar pek az inanırlar;
-156. İnancı reddederek; Meryem’e karşı ciddi bir asılsız suçlamada bulunarak;
-157. Böbürlenerek: “Biz, Allah’ın Resulü Meryem oğlu İsa Mesih’i öldürdük; fakat onu ne öldürdüler, ne de astılar; ancak kendilerine öyle gösterildi ve bu konuda ayrılığa düşenler kesin bir bilgi olmadan, tam bir şüphe içindeler, ancak yalnızca varsayım takip ederler/zannederler, çünkü onu kesinlikle öldürmediler:-
-158. Hayır, Allah onu kendi katına yükseltti; Allah güçlüdür, hüküm ve hikmet sahibidir.
-159. Ve Kitap Ehli’nden hiç kimse yoktur ki, ölmeden önce ona iman etmesin; Kıyamet günü de onların aleyhine şahit olacaktır.
-160. Yahudilerin zulmünden dolayı, kendilerine helâl kılınan bazı iyi ve sağlıklı yiyecekleri onlara haram kıldık,- birçok insanı Allah yolundan alıkoydukları için;-
-161. Yasaklanmış oldukları halde faiz almalarından; ve insanların mallarını haksız yere yediklerinden; -Onlardan inkar edenler için elemli bir azap hazırladık.
-162. Fakat onlardan ilimde derinleşmiş olanlar ve mü’minler sana indirilene ve senden önce indirilene inanırlar: Ve özellikle salatı düzenli ikame edenler, zekatı verenler, Allah’a ve Kıyamet Gününe/Son Gün’e inananlar: Onlara yakında büyük bir mükâfat vereceğiz.
+
+
+    “Kalplerimiz, Allah’ın kelamını koruyan bir örtüdür , daha fazlasına ihtiyacımız yok.” derler. Hayır, Küfürlerinden/Şirklerinden dolayı Allah’ın laneti onların üzerinedir: Ne kadar az inanıyorlar. : Bakara 88
+
+    Allah’ın âyetlerini inkâr edenlere ve hakka karşı gelenlere, peygamberleri ve insanlara adaleti öğretenleri öldürenlere gelince, onlara elemli bir azabı müjdele. :Al'i İmran 21
+
+    Kalbin Mührü
+
+    Bu ayet, İsrailoğulları’nın imanla bağlarını nasıl kopardıklarını adım adım gösterir.
+    Her ihlal, bir öncekinden daha derin bir uzaklaşmadır.
+    Ve bu uzaklaşma, sadece bir topluluğun değil — her çağın, her kalbin uyarısıdır.
+
+    1. Ahdi Bozmak – Sözün Değerini Yitirmek
+
+    Allah onlarla açık bir sözleşme yapmıştı:
+    → İman edecekler, emirlerine uyacaklar, hakka tanıklık edeceklerdi.
+    Ama onlar bu sözü kendi elleriyle bozdular.
+
+    Bir toplum sözün kutsiyetini yitirirse,
+    adalet de çöker, ahlak da.
+    Çünkü ahid bozulduğunda, insanın kendi özüyle olan bağı da kırılır.
+
+    2. Allah’ın Ayetlerini Reddetmek – Gerçeği Görmezden Gelmek
+
+    Ayet, yalnızca kelime değildir.
+    Evrenin düzeni, vicdanın sesi, tarihin ibreti de ayettir.
+    Onlar, bu delilleri gördüler — ama kabullenmediler.
+
+    Gerçek inkâr, bilgisizlikten değil;
+    gördüğünü görmezden gelme iradesinden doğar.
+
+    3. Elçileri Öldürmek – Hakkı Susturma Suçu
+
+    Elçi, Allah’ın insanla kurduğu bağın canlı halidir.
+    Onu öldürmek, yalnız bir insanı değil,
+    adaletin sesini, merhametin imkânını da öldürmektir.
+
+    Kur’an der ki: “Onları haksız yere öldürdüler.”
+    Yani gerçeği biliyorlardı — ama kibir, çıkar ve korku onları susturdu.
+    Bu, kalbin kendi nuruna düşman olmasıdır.
+
+    4. “Kalplerimiz Dolu” Demek – Kibirle Kapanmak
+
+    “Biz zaten biliyoruz, kalplerimiz perdelidir” dediler.
+    Yani: “Yeni bir hakikate ihtiyacımız yok.”
+    Bu, imanı miras sanmaktır; sanki Tanrı’ya doğuştan sahipmiş gibi davranmak.
+
+    Oysa dolu kalp, yeni nuru alamaz.
+    Bu yüzden Allah, onların kalplerini mühürledi.
+    Bu mühür, zorla değil — kendi seçimlerinin doğal sonucuydu.
+    Kapatmayı onlar istediler; Allah sadece mühürledi.
+
+    5. “Ve Onların İnandıkları Çok Azdır” – Yüzeyde Kalan İman
+
+    Belki dilleri “Allah” dedi,
+    ama kalpleri boştu.
+    İnanç, yalnız kelimede değil;
+    adalette, tevazuda, merhamette görünür.
+    Bunlar yoksa, inanç sadece bir gürültüdür.
+
+    Sonuç (Akılla Anlaşılabilir Gerçek)
+
+    İman bir soy meselesi değil; bir kalp kararıdır.
+    Ahid, bir törenden ibaret değil; yaşanmış bir sadakattir.
+    Elçi, bir tarih figürü değil; tebliğ edilen evrensel mesaj her çağda süren bir uyarıdır.
+    Ve kalp, bir depo değil — bir penceredir.
+    Açılırsa nur girer; kapanırsa karanlık mühürlenir.
+
+    En tehlikelisi, kendinden çok emin olmaktır.
+    Çünkü bazen insan, “Ben zaten inanıyorum” der —
+    ama kalbi çoktan mühürlenmiştir.
+
+    Kur’an bu yüzden sorar:
+    “Sen, delilleri görmezden mi geliyorsun?
+    Hak söylenirken neden susuyorsun?
+    Ve kalbine yeni bir hakikat geldiğinde,
+    ‘Ben zaten biliyorum’ mu diyorsun?”
+
+    Çünkü Allah’ın gazabı, yalnız inkârcıya değil,
+    kibrini iman sanana da dokunur.
+
+
+
+156. **İnancı reddederek; Meryem’e karşı ciddi bir asılsız suçlamada bulunarak;**
+
+
+    Sonunda bebeği kucağında taşıyarak kavmine getirdi. “Ey Meryem, gerçekten şaşılacak bir şey getirmişsin!” dediler. 
+    “Ey Harun’un kızkardeşi! Senin baban kötü bir adam değildi, annen de iffetsiz bir kadın değildi!”
+    : Meryem 27-28
+
+    İffetli kadınlara karşı suç duyurusunda bulunan ve iddialarına dört tanık getirmeyenlere de seksen sopa vurun. Ve onların delillerini sonsuza dek reddedin: çünkü böyle insanlar zalim fasıktırlar;- : Nur 4
+
+    Meryem oğlu İsa, bir elçiden başka bir şey değildi; ondan önce de nice elçiler gelip geçmiştir. Annesi hakikat kadınıydı. İkisi de günlük yemeklerini yemek zorundaydı. Bak, Allah onlara âyetlerini nasıl açıklıyor; halbuki bak, hangi yollarla nasıl hakikatten saptırılıyorlar! : Maide 75
+
+    Meryem’e Atılan Büyük İftira
+
+    Bu ayet, İsrailoğulları’nın işledikleri iki en ağır suçu yan yana getirir:
+    İnancı reddetmek ve Meryem’e karşı büyük bir iftira uydurmak.
+    İkisi de, hakikate karşı kibirli bir meydan okumanın iki yüzüdür.
+
+    1. İmanı Reddetmek – Hakikati Bilerek Görmezden Gelmek
+
+    Bu reddediş, yalnızca “inanmamak” değildir.
+    → Allah’ın gönderdiği rehberleri,
+    → Elçilerin getirdiği mesajı,
+    → Ve evrendeki ayetleri bilerek hiçe saymaktır.
+
+    Kur’an’a göre iman, kör bir bağlılık değil,
+    → Akılla, vicdanla, gözle görülene ve kalple hissedilene bir cevaptır.
+    Bu yüzden imanı reddetmek,
+    → Gerçeğin göz önünde durduğu halde yüz çevirmektir.
+
+    Böyle bir reddediş, insanı düşünebilen bir varlıktan,
+    aklını işletemeyen noktasına sürükler —
+    karanlıkta kalmak, kendi tercihidir artık.
+
+    2. Meryem’e Atılan İftira – İlahi Kudrete Saygısızlık
+
+    Kur’an bu iftirayı ayrıntılandırmaz;
+    ama tarihsel bağlam, bunun Meryem’in iffetini hedef alan bir suçlama olduğunu gösterir.
+    Yani, Allah’ın seçtiği bir kadına,
+    en kutsal vasfı üzerinden saldırmak.
+
+    Oysa Meryem, Kur’an’a göre:
+    → “Arınmış, tertemiz, seçilmiş”tir : Âl-i İmrân 3:42
+    → Meleklerin selamladığı bir insandır : Meryem 17-19
+
+    Ona atılan iftira, yalnız bir kadına değil,
+    Allah’ın kudretine, takdirine, mucizesine karşı bir saygısızlıktır.
+    Çünkü Meryem’i karalamak,
+    “Ol” dediğinde olan kudreti inkâr etmektir.
+
+    3. İftiranın Ahlaki ve Toplumsal Yıkımı
+
+    Kur’an, iftirayı sadece bir “yalan” olarak değil,
+    toplumsal düzeni bozan en ağır suçlardan biri olarak görür.
+
+    Bir kadını iffetsizlikle suçlayan,
+    → Dört adil şahit getirmedikçe,
+    → Kendisi cezalandırılır : Nur 4
+
+    Çünkü iftira, sadece bir kişiyi değil,
+    bir toplumun güvenini, şeref duygusunu, vicdan terazisini yıkar.
+
+    Kadının onuru, toplumun onurudur.
+    O korunduğunda, insanlık korunur.
+
+    4. Neden Aynı Cümlede “İman Reddi”yle Anılır?
+
+    Kur’an, Meryem’e atılan iftirayı,
+    imanın reddiyle aynı cümlede anarak şunu bildirir:
+    → Gerçek iman, Allah’ın seçtiklerine saygı duymadan olamaz.
+
+    Meryem’e iftira,
+    sadece bir insana değil,
+    Allah’ın kudretine duyulan güvensizliğe dönüşür.
+
+    Bu yüzden o iftira, sadece bir yalan değil —
+    bir küfür biçimidir.
+
+    Sonuç (Akılla Anlaşılabilir Gerçek)
+
+    Bir kadını haksız yere karalamak,
+    yalnızca ona değil,
+    adalete, hakikate ve Allah’ın emanetine saldırmaktır.
+
+    Meryem, insanlık tarihinde yalnız bir kadın değil,
+    Allah’ın kudretine duyulan güvenin sembolüdür.
+
+    Ve Kur’an bize şunu öğretir:
+    İman, bir mucizeyi kabul etmekle değil,
+    hakikate saygı duymakla başlar.
+
+    Kim bu saygıyı yitirirse —
+    diliyle iman etse bile, kalbi inkâr içindedir.
+
+
+
+157. **Böbürlenerek: “Biz, Allah’ın Resulü Meryem oğlu İsa Mesih’i öldürdük; fakat onu ne öldürdüler, ne de astılar; ancak kendilerine öyle gösterildi ve bu konuda ayrılığa düşenler kesin bir bilgi olmadan, tam bir şüphe içindeler, ancak yalnızca varsayım takip ederler/zannederler, çünkü onu kesinlikle öldürmediler:-**
+
+
+    İşte bakın! Allah dedi ki: “Ey İsa, seni kendime yükselteceğim ve seni küfredenlerin batıllarından/iftiralarından temize çıkaracağım; sana uyanları, kıyamet gününe kadar inkar edenlerden üstün kılacağım.”: Sonra hepiniz bana döneceksiniz ve anlaşmazlığa düştüğünüz konularda aranızda ben hükmedeceğim. : Al'i İmran 55
+
+    “Onu Ne Öldürdüler, Ne de Astılar”
+
+    Ve onlar, böbürlenerek şöyle dediler:
+    “Biz, Allah’ın Resulü Meryem oğlu İsa Mesih’i öldürdük!”
+
+    Ama Kur’an der ki:
+    “Onu ne öldürdüler, ne de astılar — yalnızca onlara öyle gösterildi.”
+    Ve bu söz, bir tarih anlatısı değildir yalnız;
+    imanın özüne, insanın iddiasına, hakikatin perdesine dair bir ders taşır.
+
+    1. “Biz Onu Öldürdük” Diyenlerin Kibri
+
+    İnsanoğlu, bazen kendi gücüne sarhoş olur.
+    Kendini Tanrı’nın yerine koyar, kaderi elinde sanır.
+    Bir elçiyi susturduğunda, gerçeği susturduğunu zanneder.
+
+    Oysa Kur’an, o böbürlenenlere tek bir cümleyle cevap verir:
+    → “Onu öldürmediniz.”
+
+    Yani, elçinin canı sizin elinizde değildi.
+    Ne nefesini kesebildiniz,
+    ne kaderini değiştirebildiniz.
+    Çünkü Allah, dilediğini dilediğinden korur.
+
+    Bu, kibirin en büyük çöküşüdür:
+    İnsanın, kendi kudretinin sınırına tosladığı andır.
+
+    2. “Yalnızca Öyle Gösterildi” – Görünenle Gerçeğin Ayrıldığı Yer
+
+    İşte burada, hakikatle görünüş arasındaki perde aralanır.
+    İnsanlar birini gördüler, İsa sandılar,
+    bir bedeni astılar, bir cesedi mezara koydular.
+    Ama o beden, İsa değildi.
+
+    Gerçek İsa, Allah tarafından korunmuştu.
+    Çünkü hakikat, görüntüyle değil, kudretle yaşar.
+    Ve Allah, dilediğinde gözleri yanıltır,
+    kulakları mühürler, kalpleri şaşırtır.
+
+    Bu ayet, sadece bir mucizeyi değil,
+    bir ilkeyi anlatır:
+    Görünüş gerçeğin delili değildir.
+    Gerçek, Allah’ın ilmindedir —
+    insan ise çoğu zaman zannın tutsağıdır.
+
+    3. “Zan Peşinde Koşarlar” – Bilginin Susup Varsayımın Konuştuğu Yer
+
+    O günden bugüne, insanlar bu meselede tartıştılar.
+    Kimisi “öldü” dedi,
+    kimisi “dirildi”,
+    kimisi “geri dönecek.”
+
+    Ama Kur’an der ki:
+    → “Bu konuda kesin bilgi yoktur.”
+    → “Onlar ancak zanna uyarlar.”
+
+    Bu, insan bilgisinin sınırını gösterir.
+    Gerçeği terk eden,
+    kendi inancını icat eder.
+    Ve zan, ne kadar büyürse büyüsün,
+    hakikatin yerine geçmez.
+
+    4. Elçiler, Allah’ın Koruması Altındadır
+
+    Hiçbir peygamber, görevini tamamlamadan ölmez.
+    Hiçbir hakikat, yalanın elinde boğulmaz.
+    Allah, elçilerini düşmanlarının planından kurtarır.
+
+    Hz. İsa da öyle oldu:
+    Göğe yükseltildi — bir kurtuluş, bir onay, bir ilahi dokunuş.
+    Bu, ne haçın kurtarışı,
+    ne kefaretin gerekliliğidir.
+
+    Kur’an der ki:
+    → “Kimse kimsenin günahını yüklenmez.” (Nisa, 123)
+    → “Her nefis, kazandığıyla karşılık bulur.”
+
+    Yani, Allah adaleti kimsenin omzuna yanlış yüklemez.
+    Her insan kendi sınavının sahibidir.
+
+    5. İman, Görünüşe Değil, "Söze" Dayanır
+
+    İnsan, gördüğüne inanmak ister.
+    Oysa bazen göz, en büyük yanılgıdır.
+    Gerçek iman, gözle değil —
+    Allah’ın sözüyle kurulur.
+
+    Kur’an, bize şunu öğretir:
+    → Hakikat, insanın tahminiyle değil, Allah’ın kelamıyla ölçülür.
+    → Zan, bilgi değildir.
+    → Şüphe, iman değildir.
+
+    Sonuç (Akılla Anlaşılabilir Gerçek)
+
+    Bu ayet, insanın Allah’a meydan okuyamayacağını hatırlatır.
+    Bir elçiyi öldürmek isteyen, aslında Allah’ın kudretine saldırır —
+    ama kudret, elini uzatıp onu korur.
+
+    İsa’nın haçta ölmediği gerçeği,
+    bir tarih düzeltmesi değil,
+    bir ilahi ilke beyanıdır:
+
+    Allah’ın seçtiğini kimse yok edemez.
+
+    Ve Kur’an’ın bu sözü, bütün insanlığa seslenir:
+    İman, kanıtın değil, teslimiyetin adıdır.
+    Gerçek, gözle değil, hakikatle görülür.
+    Ve İsa’nın kurtuluşu, yalnız onun değil —
+    Allah’a güvenen herkesin kurtuluşudur.
+
+
+158. **Hayır, Allah onu kendi katına yükseltti; Allah güçlüdür, hüküm ve hikmet sahibidir.**
+
+
+    “Onlara, senin bana emrettiğin şeyden başka bir şey söylemedim: Benim de Rabbim, sizin de Rabbiniz olan Allah’a kulluk edin.” Aralarında bulunduğum müddetçe onların üzerine şahit idim. Beni yanına aldığın zaman onların üzerinde gözetleyici olan sendin ve her şeylere şahit olan sensin. : Maide 117
+
+    Ve sahip olduğun saygıyı/itibarını yükseltmedik mi? : İnşirah 4
+
+
+    “Hayır, Allah Onu Kendi Katına Yükseltti”
+
+    Ve Allah dedi ki:
+    “Hayır! Onu ne öldürdüler, ne astılar; bilakis, Ben onu kendi katıma yükselttim.”
+    İşte bu söz, bir mucize anlatısından çok daha fazlasıdır:
+    Bir hakikatin zaferidir —
+    Hakkı bastırmak isteyenlerin hezimetine karşı,
+    ilahi korumanın, adaletin ve kudretin ilanıdır.
+
+    1. “Yükseltti” – Rafa‘ahu: Sözün İçinde İki Ufuk
+
+    Arapça’da “rafa‘a” kelimesi, iki yönlü bir anlam taşır:
+    Bir yandan yukarı kaldırmak, diğer yandan yüceltmek.
+
+    Kur’an’da bu kelime, bazen bir kulun gönlünün, bazen de mertebesinin yüceltilmesi anlamında geçer.
+    “Ve seni yükselttik.” (İnşirah, 94:4) — burada yükselmek,
+    bir göğe çıkmak değil;
+    bir onura, bir ilahi kabul’e ulaşmaktır.
+
+    Ama “rafa‘ahu ilayhi” — “onu Kendisine yükseltti” denildiğinde,
+    söz bambaşka bir anlam kazanır.
+    Bu, Allah’ın Hz. İsa’yı insanların elinden alıp
+    kendi katına, kendi himayesine, kendi rahmetine yükselttiği andır.
+
+    Yani bu yükseliş, hem bir koruma hem bir yüceltmedir.
+    Ne ölümün eline teslimiyet, ne alçaltılış;
+    bilakis, Allah’ın katında bir diriliş, bir onurlandırılıştır.
+
+    2. “Öldü mü, Ölmeden mi Yükseltildi?”
+
+    Kur’an, bu soruya ayrıntıyla değil, hikmetle cevap verir.
+    Ayet, çarmıhta ölümü reddeder;
+    ama İsa’nın ruhunun ne zaman alındığını açıkça söylemez.
+
+    Başka bir yerde İsa şöyle der:
+    “Ben aralarında bulunduğum sürece onlara şahit oldum.
+    Sen beni aldığında, onları Sen gözetiyordun.” (Mâide, 5:117)
+
+    Buradaki “tawaffaytanî” — yani “beni aldığında” kelimesi —
+    ölüm değil, Allah’ın koruyucu alışı anlamındadır.
+    Yani İsa, düşmanlarının elinde değil,
+    Allah’ın takdirinde ayrılmıştır dünyadan.
+
+    Bu, bir kaçış değil, bir ilahi çağrıdır.
+    Dünya kapılarını kapatırken, gök kapıları açılmıştır ona.
+
+    3. İsa’nın Yükseltilişi: Tarih Değil, Hakikat
+
+    Kur’an, burada tarih yazmaz;
+    bir inanç düzeltmesi yapmaz;
+    bir hakikat ilkesi ilan eder:
+
+    Allah’ın seçtiği elçiyi,
+    İnsanın zulmü alçaltamaz.
+
+    Yahudiler onu suçlu göstermek istediler;
+    Roma, onu bir haçın gölgesinde susturmak istedi.
+    Ama Allah, o gölgeden bir nur çıkardı.
+    Yani İsa, çarmıhın değil, kudretin tanığı oldu.
+
+    Bu, sadece bir peygamberin kurtuluşu değil —
+    her çağda hakikati savunan herkesin umududur:
+    Zalim plan kurar,
+    ama oluşu kurgulayan Allah’tır.
+
+    4. “Allah Güçlüdür, Hikmet Sahibidir”
+
+    Ayetin sonunda bir mühür gibi duran o cümle:
+    “Ve Allah Azîz’dir, Hakîm’dir.”
+
+    Yani O,
+    her şeye gücü yeten; ama gücünü keyifle değil,
+    hikmetle kullanan’dır.
+
+    İsa’nın kurtuluşu bir mucize değil,
+    hikmetle işleyen bir adaletin sonucudur.
+    Çünkü hiçbir zulüm, ilahi plana galip gelemez.
+
+    Sonuç (Akılla Anlaşılabilir Gerçek)
+
+    Bu ayet, iki büyük hakikati taşır:
+
+    Hz. İsa çarmıhta ölmedi, düşmanlarının eline teslim edilmedi.
+
+    Allah, onu hem korudu, hem onurlandırdı —
+    onu göğe değil, kendi katına yükseltti.
+
+    Bu,
+    imanın zaferi,
+    kibrin çöküşü,
+    hakikatin kudretiyle zulmün sönüşüdür.
+
+    İsa’nın yükselişi,
+    sadece geçmişte yaşanmış bir olay değil;
+    her dönemde inananlara verilen bir vaattir:
+
+    → Hakkı savunan, alçaltılamaz.
+    → Zulmeden kazandığını sanır, ama Allah son sözü söyler.
+
+    Ve o söz, bir kez daha yankılanır:
+    “Onlar ‘öldürdük’ dediler, ama Ben ‘yükselttim’”
+
+    İşte iman,
+    o iki cümle arasındaki farkı anlayabilenlerin nasibidir.
+
+
+159. **Ve Kitap Ehli’nden hiç kimse yoktur ki, ölmeden önce ona iman etmesin; Kıyamet günü de onların aleyhine şahit olacaktır.**
+
+
+    De ki: “Gördünüz mü? Eğer bu öğreti Allah katından ise ve siz onu reddederseniz, İsrailoğullarından bir tanık da onun daha önceki kitaplara benzediğini tasdik ederse ve siz büyüklük taslarken o inanmışsa, biliniz ki ne kadar zalimsiniz! Allah, zalim bir topluluğa hidayet etmez.” : Ahkaf 10
+
+    Meryem oğlu İsa da şöyle demişti: “Ey İsrailoğulları! Ben, Allah’ın size gönderdiği, benden önce gelen Tevrat’ı doğrulayıcı ve benden sonra gelecek olan adı Ahmet/övgüye layık olacak bir Peygamberi müjdeleyici olarak gönderilen elçisiyim.” Fakat onlara apaçık delillerle gelince, “Bu, apaçık bir sihirdir/aldatmadır!” dediler. : Saff 6
+
+
+    Bu ayet, İsa (a.s.) ile Ehl-i Kitap (Yahudiler ve Hristiyanlar) arasındaki ilişkiyi son bir kez daha ele alır ve imanın evrensel bir gerekliliğini vurgular. Ancak buradaki “ölümünden önce” ifadesindeki zamirin kime ait olduğu, Kur’an’ın kendisinde açıkça belirtilmemiştir — bu da akılla değerlendirme alanını açar.
+
+    İki Olası Anlam (Kur’an’a Sadık Kalınarak)
+
+    1. “Onun (İsa’nın) ölümünden önce”
+
+    Bu yorumda, İsa henüz dünya hayatında değildir;
+    → Allah onu yükseltmiştir (Nisâ, 158),
+    → Ve Kıyamet öncesi bir zamanda tekrar yeryüzüne inecektir.
+
+    O gün, Ehl-i Kitap’ın tamamı ona inanacaktır —
+    çünkü o, yalnızca bir peygamber değil,
+    Allah’ın kelamıyla gelen, mucizelerle desteklenen bir elçidir.
+
+    Bu inanç artık bir tercih değil, apaçık bir gerçek haline gelir.
+    Çünkü o dönemde hak apaçık olacak, İnanmamak, akla aykırı olacaktır.
+
+    2. “Her birinin (Ehl-i Kitap’tan herkesin) kendi ölümünden önce”
+
+    Bu yorumda, ayet bireysel sorumluluğu vurgular:
+    → Her Yahudi veya Hristiyan, kendi ölüm anına kadar
+    İsa’nın Allah’ın elçisi olduğunu kabul etmekle yükümlüdür.
+
+    “Layu’minanna” (mutlaka iman edeceklerdir) ifadesi,
+    bir zorlamayı değil,
+    hakikatin apaçıklığı karşısında
+    aklın ve vicdanın kaçınılmaz yönelişini anlatır.
+
+    Bu, bir inanç dayatması değil,
+    hakikatin öyle belirgin olacağı anlamına gelir ki,
+    aklı yerinde olan hiç kimse, ona inanmadan ölemez.
+
+    Hangisi Daha Kur’ani?
+
+    Kur’an, her peygambere inanmayı imanın şartı sayar:
+
+    “Allah’a, meleklerine, kitaplarına, elçilerine inandık; hiçbir elçiyi ayırt etmeyiz.”
+    : Bakara 285
+
+    Bu bağlamda, İsa’ya iman etmek sadece Müslümanlar için değil,
+    Ehl-i Kitap için de aklî ve dinî bir sorumluluktur.
+
+    Kur’an ayrıca, Kıyamet Günü’nde İsa’nın şahitlik edeceğini de açıkça söyler:
+
+    “Kıyamet günü o, onların üzerine şahit olacaktır.”
+
+    Bu, İsa’nın yalnızca tarihsel bir figür değil,
+    ilâhî adaletin tanığı olduğunu gösterir.
+
+    Akılla Çıkarılacak Ders
+
+    Ne yorum benimsenirse benimsensin, ayet bize şunu öğretir:
+
+    İsa, Allah’ın elçisidir — onu reddetmek, Allah’ın iradesini reddetmektir.
+
+    Ehl-i Kitap, onu tanımalıydı; çünkü önceki kitaplarda gelişi müjdelenmişti (Ahkaf 46:10; Saf 61:6).
+
+    Kıyamet Günü’nde her topluluk, kendi elçisinden sorgulanacaktır.
+
+    Ve İsa, kendi kavmine karşı hakikatin tanığı olacaktır.
+
+    Gerçek iman, son nefese kadar ertelenemez.
+    Çünkü ölüm, gerçeğin apaçık olduğu anın başlangıcıdır.
+
+    Sonuç
+
+    Bu ayet, tarihsel bir tahmin değil,
+    imanın evrensel ve kaçınılmaz doğasına dair bir ilandır.
+
+    İsa’ya inanmak:
+
+    Müslümanlar için bir iman şartı,
+
+    Ehl-i Kitap için ise bir aklî ve vicdanî borçtur.
+
+    Ve Kıyamet Günü’nde,
+    her sözün hesabı sorulacak,
+    her elçi, kendi kavmine şahitlik edecektir.
+
+    Böylece İsa’nın şahitliği, hem tarihin hem de ahiretin adalet terazisinde yerini alır.
+    Allah’ın adaleti, herkesin kendi rehberiyle ölçerek yerine getirecektir. 
+
+
+160. **Yahudilerin zulmünden dolayı, kendilerine helâl kılınan bazı iyi ve sağlıklı yiyecekleri onlara haram kıldık,- birçok insanı Allah yolundan alıkoydukları için;-**
+
+
+    Yahudi şeriatına uyanlara, çatal tırnaklı her hayvanı haram kıldık ve onlara, sırtlarına veya bağırsaklarına yapışanlar veya başka bir şeye karıştırılanlar hariç olmak üzere, öküz ve koyun iç yağlarını veya kemikle karışmış yerlerini haram kıldık: Bu, onların kasten isyan etmelerinin bir cezasıdır: çünkü Biz yaptığımız hükümlerde/emirlerimizde doğru sözlüyüz/sadıkız. : Enam 146
+
+
+    Bu ayet, Allah’ın bir topluluğa yönelik hükmünün yalnızca gıda ya da temizlikle değil, ahlaki düzenle, toplumsal sorumlulukla ve adalet bilinciyle ilgili olduğunu gösterir.
+
+    1. Ceza mı, Yoksa Sonuç mu?
+
+    Kur’an burada “haram kılma”yı bir öfke ürünü değil, bir sonuç olarak anlatır.
+    Bu yasak, Allah’ın hışmının değil, insanın kendi fiilinin yansımasıdır.
+
+    Onlar,
+    → Helal kılınmış nimetleri elleriyle kirlettiler,
+    → Başkalarının yoluna taş koydular,
+    → Ve sonunda o nimetler, ellerinden alındı.
+
+    Bu bize şunu öğretir:
+    İman bireysel değildir.
+    Bir insanın yaptığı kötülük, toplumun ruhuna da bulaşır.
+    Kim başkasını hak yoldan çevirirse,
+    kendi rızkının bereketini de yitirir.
+
+    2. “Güzel ve Faydalı Gıdalar” Ne Demektir?
+
+    Kur’an bu yiyecekleri “tayyib” diye tanımlar —
+    temiz, güzel, faydalı, helal olan.
+
+    Bu yasak, zarardan koruma değil,
+    önceden verilmiş bir nimetin geri alınmasıdır.
+    Çünkü nimet, bir sınavdır;
+    ve sınav, nimetin kendisinden büyüktür.
+
+    Allah’ın lütfu, koşulsuz değildir:
+    Sorumlulukla gelen bir bağıştır.
+    O bağ koparsa, nimet de uçar gider.
+
+    3. En Büyük Günah: İnsanları Allah’ın Yolundan Alıkoymak
+
+    Ayetin kalbi buradadır:
+
+    “Çünkü onlar, birçok insanı Allah’ın yolundan alıkoydular.”
+
+    Bu, bireysel bir günah değildir artık;
+    bu, toplumsal bir suikasttır.
+    Bir insanın elinden imanı almak,
+    bir halkın ışığını söndürmek gibidir.
+
+    Kur’an der ki:
+
+    Bunun içindir ki: Biz İsrailoğullarına şöyle yazdık: Kim bir cinayete veya yeryüzünde bozgunculuk çıkarmaya karşılık olmaksızın bir cana kıyarsa, sanki bütün insanları öldürmüş gibi olur: Kim bir canı kurtarırsa, bütün insanların hayatını kurtarmış gibi olur. Sonra onlara peygamberlerimiz apaçık delillerle geldiği halde, sonrasında bile onlardan birçoğu yeryüzünde haddi aşmaya devam ettiler. : Maide 32
+
+    Ve kim bir kalbi hidayete götürürse,
+    bütün insanlığı diriltmiş olur.
+
+    4. Kur’an’ın Yaklaşımı: Yasak, Bir Eğitimdir
+
+    İslam’da yasak, öfkenin değil, eğitimin dilidir.
+    Yasak, insanı korkutmak için değil,
+    ruhu terbiye etmek için vardır.
+
+    Yahudilere bazı gıdaların haram kılınması da bu yüzdendir:
+    → Onların kibrini kırmak,
+    → “Biz seçilmişiz” zannını yıkmak,
+    → Nimeti, nimetin sahibini unutanlara hatırlatmak içindir.
+
+    Sonuç: Akılla Anlaşılabilir Gerçek
+
+    Bu ayet bize şunu söyler:
+
+    Nimet, bir imtihandır.
+    Ve kim o nimeti zulme alet ederse,
+    nimet ondan geri alınır.
+
+    Kim başkalarını Allah’ın yolundan alıkoyarsa,
+    kendi rahmet yolunu da tıkar.
+
+    En büyük günah, yalnızca kendini kandırmak değil,
+    başkasını da haktan çevirmektir.
+
+    Kur’an bu yüzden,
+    hem bireyin kalbine,
+    hem toplumun vicdanına seslenir.
+
+    Çünkü Allah’ın yolu yalnızca bir inanç değil,
+    bütün insanlığa açık bir kapıdır.
+    Ve kim o kapıyı başkasına kapatırsa,
+    kendi anahtarını da kaybeder.
+
+
+161. **Yasaklanmış oldukları halde faiz almalarından; ve insanların mallarını haksız yere yediklerinden; -Onlardan inkar edenler için elemli bir azap hazırladık.**
+
+
+162. **Fakat onlardan ilimde derinleşmiş olanlar ve mü’minler sana indirilene ve senden önce indirilene inanırlar: Ve özellikle salatı düzenli ikame edenler, zekatı verenler, Allah’a ve Kıyamet Gününe/Son Gün’e inananlar: Onlara yakında büyük bir mükâfat vereceğiz.**
 
 
 163. **Nuh’a ve ondan sonraki peygamberlere vahyettiğimiz gibi sana da vahyettik: İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına, İsa’ya, Eyyub’a, Yunus’a, Harun’a, Süleyman’a vahyettik. Ve Davud’a Mezmurları verdik.**
 
+    
+    Çünkü biz her ümmete “Allah’a kulluk edin, kötülükten sakının” emriyle peygamberler gönderdik: İnsanlardan kimine Allah hidayet verdi, kimine de sapıklık kaçınılmaz oldu. Öyleyse yeryüzünde dolaşın da hakikati inkâr edenlerin sonunun nasıl olduğunu görün. : Nahl 36
+
+    Muhakkak ki Biz seni hak ile bir müjdeci ve bir uyarıcı olarak gönderdik: ve geçmişte aralarında bir uyarıcı bulunmayan/yaşamamış hiçbir kavim yoktur. : Fatr 24
+
+    Deyin ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya ve İsa’ya verilene ve bütün peygamberlere Rablerinden verilene inandık: Biz onlardan hiçbirini diğerinden ayırt etmeyiz ve Allah’a İslam’da secde ederiz.” : Bakara 136
+
+    De ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya, İsa’ya ve peygamberlere Rablerinden verilen kitaplara inandık: Biz onların arasında hiçbir ayrım yapmayız ve biz İslam’da Allah’a boyun eğeriz.” : Al'i İmran 84
+
+    Her ümmete bir Resul gönderilmiştir: Peygamberleri yanlarına geldiği zaman aralarında adaletle hükmedilir ve onlara zulmedilmez. : Yunus 47
+
+  
+    
     İnsanlık yeryüzünde doğrulukla ayakta dursun diye, Allah peygamberlerini birer birer gönderdi. Her biri aynı hakikati dillendirdi: “Allah’tan başka ilah yoktur. O’na boyun eğin.” İşte bu, bütün peygamberlerin dilinden dökülen ilk söz, son söz, tek söz oldu. Çünkü hakikat bir taneydi, eğilip bükülmezdi. Ne zaman, nerede, kime geldiyse, özü aynı kaldı: Tevhid ve teslimiyet. Adı da belliydi: İslam.
 
     Ama zaman değişti, halklar değişti, dertler başka türlü aktı toprağa. Allah da her kavme, kendi haline uygun yasa verdi. Musa’ya başka, İsa’ya başka. Şeriatlar farklılaştı, ama inanç değişmedi. Hiçbiri diğerinden üstün değildi. Hepsi bir zincirin halkasıydı. Hepsi bir bütünün parçasıydı. Kur’an bunu açıkça söyler: “Her biriniz için bir yol, bir yöntem koyduk.” Çünkü insanın yolu değişir, ama Allah’ın ışığı değişmez.
@@ -3446,6 +4553,101 @@ O ebedidir.
 164. Elçilerden bazılarını sana daha önce anlatmıştık; Diğerlerinden bahsetmedik;- ve Allah Musa ile doğrudan konuştu;-
 
 
+    Kitapta Musa’nın kıssasını da an; çünkü o, özel olarak seçilmişti, o bir elçi ve bir peygamberdi. : Meryem 51
+
+    Mûsâ, tayin ettiğimiz yere gelip de Rabbi ona hitab edince, “Rabbim, Kendini bana göster de sana bakayım” dedi. Allah dedi ki: “Beni doğrudan göremezsin; ama dağa bak, eğer yerinde kalırsa, sen de Beni göreceksin.” Rabbi izzetini dağa tecelli edince onu toprak haline getirdi. Ve Musa bayılarak yere düştü. Aklını başına toplayınca: “Seni tenzih ederim! Sana tevbe ediyorum ve ilk iman edenlerdenim” dedi.
+    Allah dedi ki: “Ey Mûsâ! Ben seni ana verdiğim görevle ve sana söylediğim şu sözlerle diğer insanlardan üstün kıldım,:O halde sana verdiğim vahyi al ve şükredenlerden ol.” : Araf 143-144
+
+
+    Bu ayet, peygamberlik makamının farklı dereceleri olduğunu ve Mûsâ’nın özel bir konumda bulunduğunu açıklar.
+
+    1. Peygamberlikte Dereceler Vardır
+    Kur’an, burada bütün peygamberlerin aynı şekilde ilham almadığını ima eder:
+    → Bazılarına rüya ile,
+    → Bazılarına melek aracılığıyla,
+    → Bazılarına da doğrudan ilahi hitapla vahiy gelmiştir.
+    Bu, Allah’ın iradesine ve her peygambere verdiği misyona göre değişir —
+    → Çünkü her toplumun, her dönemin farklı bir rehberliğe ihtiyacı vardır.
+
+    Allah dilediğine nasıl dilerse öyle seslenir.
+    Çünkü her kavmin nasibi başka,
+    her zamanın rehberi farklıdır.
+
+    Kimi bir kavmi taşkınlıktan sakındırır,
+    kimi bir topluma adaletin yolunu gösterir.
+    Ama hepsi aynı kökten, aynı nefesle çağrılmıştır.
+
+    2. “Allah, Mûsâ ile Konuştu” Ne Demektir?
+
+    O ses…
+    Dağların sessizliğini yaran bir nur gibi geldi.
+    Mûsâ, Sina’nın taşları üzerinde titrerken,
+    kalbine bir ateş dokundu.
+
+    O ateş, ne yaktı, ne kül etti;
+    sadece varlığını Allah’ın önünde eritti.
+
+    Kur’an der ki:
+
+    “Ve Allah, Mûsâ ile gerçekten konuştu.”
+
+    Ne bir melek vardı arada,
+    ne bir düş, ne bir hayal.
+    Bu, doğrudan bir çağrıydı,
+    bir kulun Rabbiyle perde arkasından karşı karşıya geldiği an.
+
+    Ama o kul, yine kuldu.
+    Yücelik O’na aitti,
+    Mûsâ yalnızca seçilmiş bir elçiydi.
+
+    3. Neden Mûsâ?
+
+    Çünkü Mûsâ’nın kavmi, sözle değil kudretle inanan bir kavimdi.
+    Gözleri mucize isterdi, kalpleri delil.
+    İşte o yüzden,
+    vahyin sesi onların işiteceği kadar gür geldi.
+
+    Allah, Mûsâ’yı seçti —
+    yüreği sabırla yoğrulmuş, dili ağır ama hakikate açık bir kul.
+    Ona Tevrat’ı verdi,
+    adaleti taş tabletlere değil, kalplere kazıdı.
+
+    4. Kur’an’ın Dengesi
+
+    Kur’an, Mûsâ’yı yüceltir ama onu tanrılaştırmaz.
+    Saygıyı emreder, tapınmayı değil.
+    Çünkü Allah’la kul arasındaki mesafe,
+    yakınlığın da sınırıdır.
+
+    O hitap, bir yüceltme değil,
+    bir görevlendirmeydi.
+    Ve Mûsâ, o sesin altında eğilmesini bildi.
+
+    Bu ayet bize şunu öğretir:
+
+    Allah, dilediğine dilediği yoldan seslenir.
+    Vahiy, insanın aklından değil, Allah’ın iradesinden doğar.
+
+    Mûsâ’ya verilen bu onur,
+    onu Allah’ın yanına değil,
+    Allah’a daha iyi hizmet eden bir kul olmaya taşımıştır.
+    “Doğrudan hitap”,
+    → Allah’ın kudretinin bir tecellisidir,
+    → Kulun ilahiyet kazandığı bir işaret değildir.
+
+    Çünkü:
+    Allah yücelerin yücesidir,
+    elçiler ise O’nun sözüyle yürüyen sadık kullardır.
+
+    Kur’an’ın güzelliği budur:
+    Yüceltir ama sınırı korur,
+    sevdirir ama kutsamaz,
+    denge vardır hep — iman ile akıl arasında.
+
+    Ve o denge,
+    imanın saf kalması için en temel kuraldır.
+
+
 165. **Peygamberler geldikten sonra insanların Allah’a karşı bir mazereti kalmaması gerektiğini hem müjdeleyen hem de uyaran elçi. Çünkü Allah, mutlak güç sahibidir, hüküm ve hikmet sahibidir.**
 
     Allah, insanoğluna akıl vermiştir; öyle sıradan bir akıl değil, yönünü bulsun diye bir pusula gibi, karanlıkta el yordamıyla aramasın diye ışık gibi… Demiştir ki: "Bu aklı kullan, yoldan sapma, doğruyu eğriden ayırt et." Ve bununla da yetinmemiştir Allah. İnsanın içine, fıtratına, bir mayayı işler gibi hak dinin özünü işlemiştir. Doğrunun, güzelin, adaletin ne olduğunu kalbine kodlamıştır insanın.
@@ -3455,9 +4657,146 @@ O ebedidir.
     Ve en nihayetinde Allah, apaçık bir kitap indirmiştir kullarına: Kur’an. Ne puslu söz vardır onda, ne eğri büğrü yol. Doğruyla yanlışı ayıran bir kılıç gibi inmiştir yeryüzüne. Adı Furkan’dır. O kitap ki zalimin maskesini düşürür, mazlumun gözyaşını siler. O kitap ki karanlığı deler, aydınlığı getirir.
 
 166. Ama Allah, sana indirdiklerini kendi bilgisinden indirdiğine şahitlik eder ve melekler de şahitlik ederler: Ama şahit olarak Allah yeterdir.
-167. İnkar edenler ve insanları Allah yolundan alıkoyanlar, gerçekten yoldan çok çok uzaklara sapmışlardır.
-168. İnancı inkar edenler ve zulmedenler var ya, Allah onları ne bağışlayacak ne de doğru yola iletecek-
-169. Cehennem yolu hariç/müstesna, içinde ebedî kalmak üzere. Ve bu, Allah’a göre kolaydır.
+
+De ki: Kim , Allah’ın izniyle öncekileri doğrulayıcı/tasdik edici ve inananlar için bir hidayet ve müjde olan vahyi senin kalbine indirdiği için Cebraile düşmansa,
+Kim Allah’a, meleklerine ve elçilerine, Cebrail’e ve Mikail’e düşmansa, – Bak işte! Allah, İnancı inkar edenlere düşmandır. : Bakara 97-98
+
+Bu ayet, Kur’an’ın kaynağına dair en kesin ilanı içerir:
+
+Kur’an, insan zihninden değil, Allah’ın bilgisinden gelmiştir. 
+
+1. Allah’ın Şahitliği: En Yüksek Gerçek
+Ayet, önce Allah’ın kendisinin şahitlik ettiğini söyler.
+Bu, Kur’an’ın ilahi kökenini sorgulamaya yer bırakmayacak şekilde kesinleştirir.
+Çünkü Allah, her şeyin bilgisine sahip olandır;
+→ O’nun bilgisi, zamandan, mekândan, deneyimden bağımsızdır.
+Dolayısıyla, Kur’an’da geçen:
+→ Geçmiş toplumlarla ilgili haberler,
+→ Ahiret ile ilgili açıklamalar,
+→ Evrensel ahlak ilkeleri,
+hepsi Allah’ın ezelî bilgisinin yansımasıdır — insan tahmininden değil.
+
+2. Meleklerin Şahitliği: İlhamın Safiyetini Onaylar
+Melekler, vahyin aktarıldığı aracı varlıklardır : Bakara 97
+Onların şahitliği,
+→ Vahyin bozulmadan, katkısız olarak peygambere ulaştığını,
+→ İnsan iradesi veya dış etkenlerin karışmadığını gösterir.
+Ancak bu şahitlik, Allah’ın şahitliğine ek bir vurgudur;
+→ Çünkü asıl ve yeterli şahit, Allah’tır.
+
+3. “Allah Yeterlidir” — İmanın Temel Güvencesi
+Ayetin sonunda gelen:
+“Ama şahit olarak Allah yeterlidir.”
+ifadesi,
+→ Dış kanıta, tarihsel delile, hatta melek şahitliğine bile gerek olmadığını
+→ Allah’ın sözünün kendi içinde kendi delilini taşıdığını
+gösterir. 
+Çünkü:
+Allah’ın bilgisi, her şeye şahittir;
+O’nun kelamı, kendi doğruluğunu taşır. 
+
+4. Akılla Anlaşılabilir Gerçek: İlham, İnsan Diliyle İlahi Bilgidir
+Kur’an, insan dilinde inmiştir — Arapça olarak (Zuhruf, 43:3).
+Ancak içeriği, insan zihninin ürettiği bir düşünce değil,
+→ Allah’ın bilgisinin insan anlayışına uyarlanmış bir tecellisidir.
+Bu, ilhamın doğasını açıklar:
+→ Dil ve üslup, peygamberin kişiliğine göre şekillenir,
+→ Ama mesajın kaynağı, tamamen ilahidir.
+
+Bu ayet, bize şunu öğretir:
+
+Kur’an’ı anlamak için önce onun kaynağını tanımak gerekir.
+
+O, insanın aklından çıkmamış,
+Tarihin ürünü değil,
+Allah’ın bilgisinden inmiş bir nurdur. 
+
+Kur’an, bir insanın düşüncesi değil,
+bir aklın yorumu değil —
+sonsuz bilginin sesiydi o.
+Zamanın ötesinden gelip insan diline bürünmüş bir hakikat.
+
+Ve en güçlü delil:
+
+Allah’ın kendisi şahittir.
+Başka bir şahide gerek yok. 
+
+Çünkü:
+
+şahit olarak Allah yeter.
+
+
+167. **İnkar edenler ve insanları Allah yolundan alıkoyanlar, gerçekten yoldan çok çok uzaklara sapmışlardır.**
+
+
+168. **İnancı inkar edenler ve zulmedenler var ya, Allah onları ne bağışlayacak ne de doğru yola iletecek-**
+
+
+169. **Cehennem yolu hariç/müstesna, içinde ebedî kalmak üzere. Ve bu, Allah’a göre kolaydır.**
+
+    Cehennem yolu hariç…
+    Orada ebedî kalacaklar.
+    Ve bu, Allah’a göre kolaydır.
+
+    Bu ayet, inkârın sonucunu ve Allah’ın mutlak kudretini net bir dille ortaya koyar. Ancak “kolaydır” ifadesi, yanlış anlaşılmamalıdır.
+
+    Bu, Allah’ın cezalandırmaktan zevk aldığını hiçbir şekilde ifade etmez.
+    Aksine, Kur’an defalarca bildirir ki:
+    “Allah, kullarının tövbe etmesini ister; azab etmeyi sevmez.” (Bakara, 2:222; Enbiya, 21:47) 
+    “Kolaydır” demek,
+    → Allah’ın gücüne ve bilgisine göre,
+    → İsyankârların cezasının kaçınılmaz ve emin bir şekilde gerçekleşeceği anlamındadır.
+
+    Kolay…
+    Ama Allah’a kolay. Çünkü O, adaletin kendisidir.
+    İsyankâr, cezadan kaçabileceğini sanabilir;
+    Oysa Allah için, onu adaletle cezalandırmak, bir işin en kolayıdır. 
+
+    O’nun kudreti için ne bir dağ engeldir,
+    ne bir deniz sınır,
+    ne bir kalp karanlığı perde olur.
+    İnsan, gizlenmeye çalışır,
+    yalanlar örer, mazeretler dokur.
+    Ama Allah’ın adaleti, gökyüzü kadar geniştir,
+    ve onun içinde saklanacak hiçbir yer yoktur.
+
+    Cehennem…
+    İnsanın kendi elleriyle kazdığı uçurumdur aslında.
+    İnançsızlıkla, kibirle, hırsla…
+    Kendi yüreğinin dibinde ateşi tutuşturur,
+    sonra da o ateşin dumanında kaybolur.
+    O uzaklık, o kopuş…
+    Allah’tan kopmanın sonsuz soğukluğu işte budur.
+
+    Ve Allah der ki:
+    “Ben kullarımın tövbe etmesini isterim.
+    Ben azabı sevmem.”
+    Ama insan, inadıyla karartır göğü.
+    Karanlık büyür, büyür,
+    ve sonunda kendi gölgesinde kaybolur.
+
+    Cehennem, Allah için kolaydır.
+    Çünkü adalet kolaydır O’na.
+    Ama o kolaylık, insanın omzuna
+    dağ gibi çöker.
+
+    Allah’ın adaleti, hiçbir şeyin üstüne kurulmaz.
+    Ne kin, ne öfke, ne hınç.
+    Sadece hak olan kalır geriye.
+    Ve hak, yerini bulur.
+    İster bir karınca gölgesinde, ister bir firavunun sarayında.
+
+    Kaçış yoktur.
+    Gerçek, Allah’ın bildiğidir.
+    Sonuç, O’nun adaletindedir.
+
+    Ve Kur’an çağırır:
+    İmanın yoluna gel.
+    Kibirle değil.
+    Alçakgönüllülükle, samimiyetle, tevazu ile gel.
+    Yoksa o uçurum —
+    insanın kendi inadıyla kazdığı o uçurum —
+    seni yutar.
 
 
 170. **Ey İnsanlık! Resul size Allah katından hak olarak geldi. Ona iman edin/inanın: Bu sizin için daha hayırlıdır. Ama eğer inkar ederseniz, bilin ki göklerde ve yerde olan her şey Allah’ındır. Allah, her şeyi bilendir, hüküm ve hikmet sahibidir.**
@@ -3470,15 +4809,255 @@ O ebedidir.
 
 
 
-171. Ey Kitap Ehli! Dininizde aşırı gitmeyin: Allah hakkında ancak doğruyu söyleyin. Meryem oğlu İsa Mesih, ancak Allah’ın elçisi, Meryem’e verdiği Sözü ve Kendi katından bir ruhtur: öyleyse Allah’a ve elçilerine iman edin. “Teslis” demeyin: vazgeçin, bu sizin için daha hayırlıdır, çünkü Allah birdir, Allah’tır. Hamd O’na olsun, çocuk sahibi olmaktan yücedir. Göklerde ve yerde olanların hepsi O’nundur. Vekil olarak Allah yeter.
-172. İsa Mesih, Allah’a kulluk ve ibadet etmekten çekinmez, Allah’a en yakın olan melekler de. O’na kulluktan çekinip büyüklük taslayanları, – O, cevap vermek için hepsini huzurunda toplayacaktır.
-173. Ancak iman edip salih ameller işleyenlere, lütfundan mükâfatlarını ve daha fazlasını verecektir: Ama küçümseyen/hafife alanları ve büyüklük/kibirlilik taslayanları, elem verici bir azapla azaplandırır; Allah’tan başka kendilerine ne bir koruyucu ne de bir yardımcı bulamayacaklar.
-174. Ey insanlık! Muhakkak ki size Rabbinizden kesin/inandırıcı/ikna edici bir delil gelmiştir: Çünkü Biz size apaçık bir nur indirdik/ Çünkü size apaçık bir nur gönderdik.
-175. Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya, Allah onları katından bir rahmet ve lütfa/merhamete sokacak ve onları kendisine varan dosdoğru yola iletecektir.
-176. Senden hukuki bir karar istiyorlar. De ki: Allah, nesep ve zürriyete mirasçı bırakmayanlar hakkında işte böyle emrediyor. Çocuğu olmayan bir kız kardeş bırakarak ölen erkek ise mirasın yarısı onundur. Ölen kadın, çocuğu olmayan bir kadın ise mirasını erkek kardeşi alır. Eğer iki kız kardeş varsa, Mirasın üçte ikisi aralarında onlarındır: Eğer erkek ve kız kardeşler varsa, onlar da paylaşırlar; erkek, dişinin iki katı paya sahiptir. Yanılmayasınız/Sapmayasınız/Yanlış yapmayasınız diye Allah size şeriatını/kanununu işte böyle açıklıyor. Ve Allah, her şeyi bilendir.
+171. **Ey Kitap Ehli! Dininizde aşırı gitmeyin: Allah hakkında ancak doğruyu söyleyin. Meryem oğlu İsa Mesih, ancak Allah’ın elçisi, Meryem’e verdiği Sözü ve Kendi katından bir ruhtur: öyleyse Allah’a ve elçilerine iman edin. “Teslis” demeyin: vazgeçin, bu sizin için daha hayırlıdır, çünkü Allah birdir, Allah’tır. Hamd O’na olsun, çocuk sahibi olmaktan yücedir. Göklerde ve yerde olanların hepsi O’nundur. Vekil olarak Allah yeter.**
+
+
+    And olsun ki, Musa’ya Kitab’ı verdik, fakat onda ihtilafa düştüler: eğer daha önce Rabbinden bir söz inmeseydi, iş aralarında hükmolunurdu, hâlbuki onlar bu konuda kuşkulu bir şüphe içindedirler. : Hud  110
+
+    Allah katında İsa’nın durumu, Adem’in durumu gibidir. Onu topraktan yarattı, sonra ona “Ol” dedi. Ve öyle o da oluverdi. : Al'i İmran 59
+
+    Ey Kitap Ehli!
+    Dinde aşırı gitmeyin.
+    Allah hakkında yalnızca doğruyu söyleyin.
+    Meryem oğlu İsa Mesih, Allah’ın elçisidir;
+    Meryem’e verdiği bir sözdür,
+    O’ndan bir ruhtur.
+    Öyleyse iman edin Allah’a ve O’nun elçilerine.
+    Üç demeyin, üçlemeyin!
+    Vazgeçin bundan — sizin için daha hayırlıdır.
+    Çünkü Allah birdir,
+    O’ndan başka tanrı yoktur.
+    Hamd O’na olsun —
+    O, çocuk sahibi olmaktan münezzehtir.
+    Göklerde ve yerde olan her şey O’nundur.
+    Vekil olarak Allah yeter.
+
+    İnsan bazen sevgisinde de aşırıya kaçar.
+    Bir uşak düşün — efendisini o kadar sever ki,
+    sevginin yolundan sapar, putlaştırır onu.
+    İşte insan da bazen dininde böyle olur.
+    Sevdiğini, kutsal saydığını, aklının üstüne koyar.
+    Sonra o sevgi, hakikatin önünü örter.
+
+    Yahudiler kendi kanlarını üstün tuttular.
+    Kibirle baktılar öteki insanlara.
+    Peygamberleri öldürdüler,
+    Musa’nın yolundan saptılar.
+    Ve sonunda İsa’yı yalanladılar.
+
+    Ama Hristiyanlar da başka bir uçtan düştüler.
+    İsa’yı yüceltmek isterken,
+    Allah’a denk tuttular onu.
+    Meryem’i kutsadılar,
+    sonra da dua ederken bir annenin önünde diz çöker oldular.
+    Ve “Üç’tür Tanrı!” dediler.
+    Oysa gökyüzünde bir tek Güneş var,
+    ve bütün ışık ondan gelir.
+
+    Üçleme dedikleri şey —
+    aklın değil, tutkuların doğurduğu bir inançtır.
+    Allah’ın ne bir oğula,
+    ne bir yardımcıya ihtiyacı vardır.
+    O’nun kudreti, kendi nurunun içindedir.
+
+    İsa ise bir kuldur,
+    ama Allah’ın sevdiği bir kul.
+    Bir “kelâm”dır — “Ol!” denmiş, olmuştur.
+    Bir ruhtur — Allah’tan üflenmiştir.
+    Ama ne Allah’tır,
+    ne de O’nun bir parçası.
+    Tıpkı rüzgârın dağdan esip geçmesi gibi:
+    rüzgâr da dağdan gelir,
+    ama dağın kendisi değildir.
+
+    Kur’an’ın dili açıktır,
+    sade, berrak bir su gibi.
+    Ne felsefenin karanlığı var içinde,
+    ne de gnostik masalların sisleri.
+    İnsana akılla, kalple, vicdanla hitap eder.
+    Der ki:
+    Allah birdir.
+    O’nun benzeri yoktur.
+    Yerde ve gökte ne varsa, O’nundur.
+    Ve insanın sığınacağı tek yer —
+    O’dur.
+
+    Ve ey Müslüman!
+    Sen de gaflete düşme.
+    Ne inançta, ne ibadette aşırılığa kaçma.
+    Dinde ölçü, sadelikte,
+    imanın özü ise tevazudadır.
+
+    Hakikat, gürültü istemez.
+    O, sessiz bir dağ gibi durur yerinde.
+    Ve o dağın eteğinde duran her kimse,
+    Allah’ın birliğini duyar —
+    kalbinin derin yerinde,
+    bir rüzgâr gibi,
+    bir ışık gibi.
+
+
+172. **İsa Mesih, Allah’a kulluk ve ibadet etmekten çekinmez, Allah’a en yakın olan melekler de. O’na kulluktan çekinip büyüklük taslayanları, – O, cevap vermek için hepsini huzurunda toplayacaktır.**
+
+
+    İsa, Rabbine kulluk etmekten hiç çekinmedi.
+    Ne alnını yere koymaktan, ne dua etmekten, ne de insanlığın yükünü taşımaktan.
+    Bir dağın eteğinde eğilmiş bir zeytin ağacı gibi dururdu — dimdik, ama mahcup.
+    Ve melekler… Onlar da öyle.
+    Nurdan yaratılmış o yakın kullar da,
+    O’nun önünde eğilmekten onur duyar,
+    O’nun adını anmakla yücelirlerdi.
+
+    Ama kim ki burnunu kaldırır havaya,
+    kendini bir şey sanır,
+    Allah’a kulluğu küçüklük/alçaklık sayarsa —
+    işte onlar, o gururun karanlığında kaybolanlardır.
+    Bir gün gelecek,
+    o kibirli alınlar eğilecek,
+    o sesler kesilecek.
+    Ve hepsi, tek bir meydanda,
+    O’nun huzurunda toplanacak.
+    O vakit, hiçbir unvan, hiçbir saltanat kalmayacak.
+    Yalnızca hakikat kalacak.
+    Yalnızca Allah.
+
+    İsa’nın kalbi bir insan kalbiydi.
+    Çırpınışın, korkunun, duanın ne olduğunu bilirdi.
+    Zeytin Dağı’nda, gece karanlığında,
+    dizlerinin bağı çözülmüşken,
+    ellerini semaya kaldırırdı.
+    O an, bir peygamber değil,
+    yeryüzünün en yalnız kuluydu o.
+    Rabbi’ne yakarır,
+    “Beni bırakma,” derdi.
+    Ve işte o yakarış,
+    insan olmanın bütün ağırlığını taşırdı içinde.
+    İşte o an, insan,
+    kulluğun ne demek olduğunu,
+    insan olmanın ne demek olduğunu,
+    dünyanın ne kadar küçük,
+    Allah ne kadar yüce olduğunu anlardı.
+
+    Kibir…
+    İnsanın içine düşen karanlıktır.
+    O karanlığı kalbinden söküp atamayan,
+    ışığı göremez.
+    Kendini büyük sanan,
+    aslında küçülür;
+    Allah’ın önünde eğilmeyen,
+    karanlığa eğilir.
+    Ve gün gelir —
+    herkes, her şey,
+    kendi yaptığının önüne dikilir.
+    O gün,
+    yalnızca Allah’ın sözü kalır,
+    ve o söz,
+    çok güçlü yankılanır:
+    “Benim huzurumdasınız.”
+
+
+173. **Ancak iman edip salih ameller işleyenlere, lütfundan mükâfatlarını ve daha fazlasını verecektir: Ama küçümseyen/hafife alanları ve büyüklük/kibirlilik taslayanları, elem verici bir azapla azaplandırır; Allah’tan başka kendilerine ne bir koruyucu ne de bir yardımcı bulamayacaklar.**
+
+
+174. **Ey insanlık! Muhakkak ki size Rabbinizden kesin/inandırıcı/ikna edici bir delil gelmiştir: Çünkü Biz size apaçık bir nur indirdik/ Çünkü size apaçık bir nur gönderdik.**
+
+Ey insanlık!
+Size Rabbinizden, apaçık bir delil geldi.
+Bir delil ki — yalanın, karanlığın, putların yüzünü parçalayan bir hakikat gibi geldi.
+Ve ardından bir nur indi üzerinize,
+gözleri kamaştıran değil, gönülleri aydınlatan bir nur.
+
+O delil, Kur’an’dır —
+sözün en temiz, en derin, en diri hâli.
+
+Bu delil,
+→ Gizli bir ilham değil,
+→ Sadece seçkinlere özel bir bilgi değil,
+→ Her akıl sahibinin erişebileceği, apaçık bir gerçektir.
+
+Burada “nur”, Kur’an’ın kendisidir:
+“Allah, müminlere kendi nurundan bir nur indirmiştir.” : Hadid 28
+“Kur’an, karanlıklardan nur’a çıkarır.” :İbrahim 1
+
+Bu nur,
+→ Gerçeği gösterir,
+→ Yolu aydınlatır,
+→ Adaleti, merhameti, tevhidi ve ahlakı ortaya koyar.
+
+Ey insanlık!
+Artık size hem delil geldi,
+hem ışık…
+İkisini birden göremeyen,
+kendi gözünü karartmış olur.
+Çünkü o nur,
+her gönülde bir kapı aralamak içindir.
+Ve o kapıdan giren,
+karanlıktan kurtulur.
+
+İnsan, karanlıkta yolunu bulamaz.
+Toplumlar, adaletsizlik, putperestlik, zulüm ve cehalet karanlığında boğulur.
+İşte o karanlığa, Allah apaçık bir nur göndermiştir:
+→ O nur, Kur’an’dır —
+Adaleti emreder,
+Zulümü yasaklar,
+İffeti korur,
+Akla seslenir,
+Vicdanı uyandırır.
+
+Kur’an zaman ve mekândan bağımsız,
+→ Her akıl sahibine seslenen bir rehber olduğunu gösterir.
+Çünkü gerçek nur,
+→ Sınırlı bir gruba değil,
+→ Bütün insanlığa yöneliktir.
 
 
 
+
+175. **Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya, Allah onları katından bir rahmet ve lütfa/merhamete sokacak ve onları kendisine varan dosdoğru yola iletecektir.**
+
+
+Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya…
+Onlar, karanlıkta bile yolunu şaşırmazlar.
+Çünkü Allah, onları katından bir rahmetle kuşatır,
+bir lütufla sarar,
+ve sonunda kendi huzuruna, dosdoğru bir yola iletir.
+
+İman edenin yolu, bir harita değil, bir yöneliştir.
+Her adımda biraz daha yaklaşır,
+her sarsıntıda biraz daha tutunur.
+Ve sonunda, o tutunmanın kendisi olur —
+çünkü iman, Allah’a varmanın ilk hâlidir.
+
+O’nun merhameti,
+göklerin üstünden değil, kalplerin içinden çağlar.
+Kim O’na bağlanırsa,
+O da onu Kendine bağlar —
+bir nur halkası gibi, kesintisiz, sarsılmaz.
+
+Ve o yolun sonunda,
+insan kendi aslına döner.
+Çünkü Allah’a giden yol,
+zaten insanın içinden, iradesinden, bireysel sorumluluğundan geçer.
+
+176. **Senden hukuki bir karar istiyorlar. De ki: Allah, nesep ve zürriyete mirasçı bırakmayanlar hakkında işte böyle emrediyor. Çocuğu olmayan bir kız kardeş bırakarak ölen erkek ise mirasın yarısı onundur. Ölen kadın, çocuğu olmayan bir kadın ise mirasını erkek kardeşi alır. Eğer iki kız kardeş varsa, Mirasın üçte ikisi aralarında onlarındır: Eğer erkek ve kız kardeşler varsa, onlar da paylaşırlar; erkek, dişinin iki katı paya sahiptir. Yanılmayasınız/Sapmayasınız/Yanlış yapmayasınız diye Allah size şeriatını/kanununu işte böyle açıklıyor. Ve Allah, her şeyi bilendir.**
+
+
+Bir adam ölür de ardında yalnız bir kız kardeş kalırsa,
+mirasın yarısı onundur.
+Ama ölen bir kadınsa,
+kardeşi, onun bıraktığını eksiksiz alır.
+
+İki kız kardeş kalırsa,
+üçte ikisini aralarında paylaşırlar.
+Eğer kardeşler hem erkek hem de kızsa,
+erkek, kadının payının iki katını alır.
+
+Böylece Allah,
+hakkı eğip bükmeyesiniz,
+yoldan şaşırmayasınız diye hükmünü apaçık bildirmiştir.
+
+O’dur her şeyi bilen,
+her varlığın seçimini adaletle ölçen.
 
 
 
