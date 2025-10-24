@@ -19,7 +19,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu toprakta insan, bir yükle doğmuştur. Hem kendinden sorumlu, hem kardeşinden. Kur’an, bu sorumluluğu anlatır. İnsan soyunun karanlık bir yanlıştan değil, yüce bir hikmetten çoğaldığını haber verir. Ve bu hikmetin içinde hiçbir zaman insanı alçaltacak, aşağılayacak bir leke yoktur.
 
-    İnsan, Allah’ın halifesidir. Toprağa eğilmiş, ama göğe uzanmıştır. Yaratan ona kendi ruhundan üfleyip “Ol!” demiştir.
+    İnsan, Allah’ın halifesidir.  Yaratan ona kendi ruhundan üfleyip “Ol!” demiştir.
     İşte bu yüzden, ne insanın yaratılışı bir utançtır, ne çoğalması bir ayıptır. Bilakis, hepsi birer mucizedir.
 
 
@@ -52,7 +52,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 3. **Yetimler/Himayeniz altındaki yetim kızlar, dullar hakkında adaletli davranamayacağınızdan korkarsanız, dilediğiniz kadınlardan ikişer, üçer, dörder nikahlayın; Ama onlara adaletli davranamayacağınızdan korkarsanız, o zaman sadece bir kişi veya sağ ellerinizin sahip olduğu bir esir/himayeniz altında olan/ meşrû haklarınız ve otoriteniz ve kendileriyle düzgün insanî münasebetleriniz olan, sizi haksızlık yapmaktan alıkoymak için daha uygundur.**
 
 
-    O savaş sonrası günlerde, Uhud’un ardından, yeryüzünde toz duman dağılmamıştı daha. Erkekler şehit düşmüş, geride dul kadınlar, boynu bükük yetimler kalmıştı. İşte o günlerde geldi bu ayet; hem göğe hem yere seslendi. Sadece o günlere değil, her çağa, her sokağa, her evin kapısına yazıldı.
+    O savaş sonrası günlerde, Uhud’un ardından, yeryüzünde toz duman dağılmamıştı daha. Erkekler şehit düşmüş, geride dul kadınlar, boynu bükük yetimler kalmıştı. 
 
     Ayetin başı bir şartla açılıyor: Eğer bir adam, bir yetim kızın geleceğini, onun malını, onurunu korumanın tek yolunun onunla evlenmek olduğunu düşünüyorsa ve bunu yaparken nefsine değil adalete kulak verecekse, buyursun. Ama eğer kalbinde en ufak bir dengesizlik varsa, birini kayırıp öbürüne haksızlık ederse, o zaman bu işe hiç girişmesin. Çünkü bu iş, Allah’ın terazisine bağlı bir iştir, insanın gönlüne değil yalnızca.
 
@@ -68,7 +68,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 5. **Allah’ın sizin için geçim kaynağı kıldığı mallarınızı, aklı ermeyenlere vermeyin, onları bunlarla yedirin, giydirin ve onlara güzel ve adaletli söz söyleyin.**
 
-    Ayet öyle bir sözle gelir ki, her evin kapısına çalınmış gibi, her elin tuttuğu mala, her yüreğin taşıdığı sorumluluğa dokunur. Der ki: Akılca, idrakçe eksik olanın, yetimin, kendini koruyamayanın malını doğrudan eline bırakmayın. Çünkü mal, öyle rastgele harcanacak bir şey değildir; o, hem bir nimet hem de bir imtihandır.
+    Ayet öyle bir sözle gelir ki,  her elin tuttuğu mala, her yüreğin taşıdığı sorumluluğa dokunur. Der ki: Akılca, idrakçe eksik olanın, yetimin, kendini koruyamayanın malını doğrudan eline bırakmayın. Çünkü mal, öyle rastgele harcanacak bir şey değildir; o, hem bir nimet hem de bir imtihandır.
 
     Mal, bir çocuğun eline bırakılan bıçak gibi olur aklı yerinde olmayana verilirse. Onunla kendini de, başkasını da yaralayabilir. Onun için malı eline vermeyin, ama onunla onu doyurun, giydirin, insan gibi yaşatın. Üstelik bunu yaparken ona yüksekten bakmayın, hor görmeyin. Güzel sözle konuşun, merhametle, adaletle davranın. Çünkü o mal, sizin değil, Allah’ın size verdiği bir emanettir.
 
@@ -92,7 +92,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 7. **Ana-babanın ve en yakın akrabaların bıraktıklarından, mal küçük olsun büyük olsun, erkeğe bir pay ve kadına da bir pay vardır -belirliyici bir pay.**
 
-    Kadın da insandır, erkek de. Birinin alın teri nasıl kutsalsa, ötekinin de öyledir. Toprak nasıl güneşe, suya muhtaçsa, hayat da adalete muhtaç. İşte Kur’an, bu adaleti kurmak için indi. Eskiden kadınlar mirastan dışlanırdı, sesi duyulmaz, adı anılmazdı. Ama Allah, kadınla erkeği bir tuttu; her birine, payını hakkıyla verdi. Çünkü Allah’ın terazisinde cinsiyetin hükmü yok, hakkın ve hukukun ağırlığı var.
+    Kadın da insandır, erkek de. Birinin alın teri nasıl kutsalsa, ötekinin de öyledir. Toprak nasıl güneşe, suya muhtaçsa, hayat da adalete muhtaç. İşte Kur’an, bu adaleti kurmak için indi. Eskiden kadınlar mirastan dışlanırdı, sesi duyulmaz, adı anılmazdı. Ama Allah, kadınla erkeği bir tuttu; her birine, payını hakkıyla verdi. Çünkü Allah’ın terazisinde cinsiyetin hükmü yok, hakkın, hakkaniyetin ağırlığı var.
 
 8. **Fakat taksim vaktinde başka akrabalar, yetimler veya fakirler hazır bulunursa, onları maldan doyurun/besleyin ve onlara güzel ve adaletli söz söyleyin.**
 
@@ -157,7 +157,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Vasiyyet ve Borçlar: Önce Sorumluluk
 
-    Ölüm, geride yalnız mal değil, sorumluluk da bırakır. Cenazenin masrafları, hak ettiği hürmetle karşılanmalıdır. Borçlar ödenmeli, ama öyle gelişi güzel değil — doğru ve dürüstçe alınmışsa. Vasiyyet varsa, o da yerine getirilmelidir; ama bir sınırı vardır: Malın üçte birinden fazlası vasiyyetle bağışlanamaz.
+    Ölüm, geride yalnız mal değil, sorumluluk da bırakır. Cenazenin masrafları, hak ettiği hürmetle karşılanmalıdır. Borçlar ödenmeli, ama öyle gelişi güzel değil — doğru ve dürüstçe alınmışsa. Vasiyyet varsa, o da yerine getirilmelidir.
 
     Paylar, bütün bu sorumluluklar yerine getirildikten sonra hesap edilir. Kimse, ölüye yük bırakmaz, diriye de zulmetmez.
 
@@ -166,10 +166,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Genelde erkek, kadının iki katı pay alır. Ama bu mutlak değildir. Her durum, kendi içinde tartılır. Eğer birden fazla dul eş varsa, dörtlük ya da sekizlik pay onların arasında eşit bölünür. Çünkü Allah’ın terazisinde ne eksik vardır, ne fazla.
 
     “Asabe” diye bir kavram var ki, bu da payı sabit olmayan, geriye kalan malı alan akrabalardır. Onların hakkı da, payı da, düzeni de vardır. Her şey bir sınırla belirlenmiştir.
-
-    Son Söz: Hakkın ve Merhametin Yasası
-
-    Bu düzen, öyle insanların keyfiyle kurulmuş bir düzen değil. Bu, Allah’ın emriyle, insanın vicdanıyla yazılmış bir hukuk kitabıdır. Herkesin payı bellidir; kimse kimsenin hakkına göz dikemez. Zarar vermek, hakkı yemek yoktur bu düzende.
 
     Allah her şeyi bilir. Sabırlıdır. Ama sabrını sınayan adaletsizliği de unutmaz. Bu yüzden, her miras bölüşümü, aynı zamanda bir vicdan bölüşümüdür.
 
@@ -252,7 +248,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     İşte Allah, o karanlığa bir ışık yaktı. Dedi ki: Kadını zorla miras alma yok!
 
-    Kadın bir insandır. Gönlü vardır, iradesi vardır, saygıyı hak eder. Ne dul kalınca el konulur, ne mal gibi paylaşılır. Kadın, kaderin değil, kendi yolunu seçme hakkına sahiptir.
+    Kadın bir insandır. Gönlü vardır, iradesi vardır, saygıyı hak eder. Ne dul kalınca el konulur, ne mal gibi paylaşılır. Kadın, kendi yolunu seçme hakkına sahiptir.
 
     Şimdi bazıları var, kadını zorlar. Sert davranır, gönlünü kırar. Ama niyeti sevgi değil; maldır, çıkarıdır, hiledir. “Boşasın da çeyizi geri alayım,” der. Kadını bu dertle yaşatır, gözünün yaşına bakmaz.
 
@@ -297,7 +293,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 24. **Sağ ellerinizin malik oldukları/Meşrû şekilde sahip olduğunuz, üzerlerinde meşrû haklarınız ve otoriteniz ve kendileriyle düzgün insanî münasebetleriniz olan müstesna evli kadınlar da haram kılınmıştır: Allah size böyle haramlar koymuştur: Bunların dışındakiler helâldir, yeter ki mallarınızdan hediye edin, – iffet isteyerek, şehvet istemeyerek. Onlardan fayda gördüğünüze göre, hiç değilse mehirlerini öngörülen miktarda verin; Eğer bir mehrin verilmesinden sonra karşılıklı olarak onu değiştirmek üzere anlaşırsanız, artık size bir vebal yoktur ve Allah her şeyi bilendir, hüküm ve hikmet sahibidir.**
 
 
-    Bu ayette Allah, aileyi darmadağın eden karışıklıklara karşı siper çekiyor. Diyor ki: "Bazı kapılar kapalıdır. Açmayın. Bazı yakınlıklar kutsaldır. Ellerinizi, niyetlerinizi oralardan çekin." Çünkü analar, kızlar, kız kardeşler—bunlar insanın kanından, canından, gözünden akanlardır. İnsan, kendi toprağından meyve toplamaz; o toprağa saygı duyar.
+    Bu ayette Allah, aileyi darmadağın eden karışıklıklara karşı siper çekiyor. Diyor ki: "Bazı kapılar kapalıdır. Açmayın. Bazı yakınlıklar kutsaldır. Ellerinizi, niyetlerinizi oralardan çekin." Çünkü analar, kızlar, kız kardeşler—bunlar insanın kanından, canından, gözünden akanlardır. İnsan, kendi kanına saygı duyar.
 
     Sadece kan bağı değil; sütle yoğrulmuş kardeşlik de var. Bir kadın, bir bebeğe memesini verdiyse, artık onun bağrı o çocuğun evidir. O çocuk, artık o annenin çocuğudur. Onun kızı, onun oğlu, onun kardeşi gibi yasaktır. Çünkü o süt, sadece karın doyurmaz; o süt, insanın yüreğine aileyi eker. Allah da o aileyi korur.
 
@@ -338,7 +334,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ey insan, ey aç kalmış kardeşim, ey mal peşinde koşarken insanlığını düşüren dostum! Kulak ver şimdi. Allah diyor ki: “Mallarınızı aranızda batıl yollarla yemeyin.”
 
-    Yani ne demek bu? Haksızlıkla, yalanla, dolanla, rüşvetle, torpille, kul hakkıyla bir lokma bile yutma. Çünkü o lokma, bir çocuğun ağzından çıkmış olabilir. Bir kadının sütünden, bir işçinin nasırından, bir öğrencinin defterinden eksilmiş olabilir. Yeme! Allah’ın verdiği malı, alın teriyle alın. Zorla değil. Aldatmayla değil. Helalle.
+    Yani ne demek bu? Haksızlıkla, yalanla, dolanla, rüşvetle, torpille, kul hakkıyla bir lokma bile yutma. Çünkü o lokma, bir çocuğun rızkı olabilir. Bir kadının sütünden, bir işçinin nasırından, bir öğrencinin defterinden eksilmiş olabilir. Yeme! Allah’ın verdiği malı, alın teriyle alın. Zorla değil. Aldatmayla değil. Helalle.
 
     Diyor ki: “Karşılıklı rızaya dayanan alışveriş yapın.” Rıza nedir bilir misin? Bir annenin, çocuğuna verdiği ekmeği, içi rahat verişidir. İşte öyle olacak alışverişin. Kandırmadan, ezmeden, hakkını vererek.
 
@@ -350,7 +346,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Gençlerin hayalini çalmak, kendi ellerinle geleceği gömmektir.
 
     Allah diyor ki: "Ben size merhametliyim."
-    O zaman sen de ol. Sen de kardeşine merhametli ol. Komşunun ekmeğini çalmadan yaşa. Zengine dalkavuk, yoksula cellât olma. Mallarınızın, zamanınızın, gücünüzün emanet olduğunu bil. İsraf etme. Çünkü israf, fakirin yüzüne atılmış küflü bir ekmek gibidir.
+    O zaman sen de ol. Sen de kardeşine merhametli ol. Komşunun ekmeğini çalmadan yaşa. Zengine dalkavuk, yoksula cellât olma. Mallarınızın, zamanınızın, gücünüzün emanet olduğunu bil. İsraf etme. Çünkü Allah israfdan nefret eder.
 
     Kendine de merhamet et. İçindeki iyiliği tüketme. Nefretle beslenme. Çünkü kendini öldürmek, bazen ruhunu aç bırakmaktır. Vicdanını susturmaktır. Bir çocuğun gülüşünü umursamadan yaşamak, kendi ruhunu da öldürmektir.
 
@@ -366,20 +362,20 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ekonomide etik: Kazanç sağlarken adalet, dürüstlük ve karşılıklı fayda ilkelerini benimsemek.
     Kişisel sorumluluk: Zamanımızı, paranızı, enerjimizi nasıl kullandığımızı sorgulamak.
     Toplumsal barış: Şiddetin her türlüsünden kaçınmak, sevgi ve anlayışla iletişim kurmak.
-    Merhamet ve vicdan: Allah’ın bize sunduğu hayatı, O’nun merhameti gibi başkalarına da merhametle yaşamak.
+    Merhamet ve vicdan: Allah’ın bize sunduğu hayatı, O’nun merhametinden örnek alarak başkalarıyla da merhametle yaşamak.
 
 
     a. "Malları batıl yollarla yememek" – Emanete Saygı ve İsraf Karşısı Duruş
     “Allah’ın verdiği rızık” olarak görebileceğimiz mallarımız yalnızca kendi özel varlığımıza ait olanlar değil; emanet olarak elimize geçen her şeyi kapsar: başkalarının parası, doğa kaynakları, zaman, yetenekler… Bu ayet bize, bu malları israf etmemeyi, adaletsizce tüketmemeyi ve emin olunan yerden sapmamayı öğütler.
 
     İsraf , Allah’ın insanlara verdiği nimetleri gereksiz yere harcamaktır.
-    Emaneti kötü kullanmak , başkalarına güvenle bırakılan şeyleri zarar vermek ya da onları kişisel çıkar için istismar etmektir.
+    Emaneti kötü kullanmak ,güvenle bırakılan şeylere zarar vermek ya da onları kişisel çıkar için istismar etmektir.
     Burada vurgu, ahlaki sorumluluk üzerine: İnsanlar arasında adil ve dürüst ilişkiler kurabilmek için mal mülk konusunda bilinçli davranmalıyız.
 
     b. Ticaret ve Alışverişte Rıza Esası – Ekonomik Ahlak ve Kalkınma
-    “Karşılıklı rızaya dayanan ticaret ve alışveriş”, sadece ekonomik faaliyetlerde adil davranmakla kalmaz, aynı zamanda üretim, paylaşım ve refah oluşturma duygusunu da çağrıştırır.
+    “Karşılıklı rızaya dayanan ticaret ve alışveriş”, sadece ticari ekonomik faaliyetlerde adil davranmakla sınırlı kalmaz, aynı zamanda üretim, paylaşım ve refah oluşturmayı da içerir.
 
-    Bu noktada bahsettiğin İsa’nın Yetenekler Benzetmesi (Matta 25:14–30) gerçekten çok anlamlı: Servet ya da yetenekler, saklanıp gizlenmeye değil, geliştirilip çoğaltılmaya mahsustur.
+    Servet ya da yetenekler, saklanıp gizlenmek için değil, geliştirilip çoğaltılmaya mahsustur.
     Ticaret burada, insanların iş birliği içinde gelişmesinin sembolüdür. Birbirini yok etmeden, zulmetmeden, aldatmadan kazan-kazan prensibiyle ilişki kurma yoludur.
     İslam ekonomisinde de “haramdan kaçınmak, helaldedir” düşüncesiyle, ekonomik faaliyetlerin ahlaki sınırlar içinde olması şart koşulmuştur.
 
@@ -387,17 +383,17 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     “Ne kendinizi öldürün ne de birbirinizi yok edin.” Bu cümle, fiziksel ölümden çok daha fazlasını kapsıyor:
 
     Fiziksel intihar : Kendine zarar verme veya kasıtlı ölüm.
-    Manevi intihar : Ruhun, vicdanın, erdemin yok oluşu. Aşırı tüketime, haksızlığa, nefse hâkimiyetsizliğe kapılmak da manevi yıkıma yol açar.
+    Manevi intihar : Ruhun, vicdanın, erdemin yok oluşu. Aşırı tüketime, haksızlığa, nefsi hâkimiyetsizliğe kapılmak da manevi yıkıma yol açar.
     Toplumsal intihar : Toplumda adaleti bozmak, barışı bozmak, kardeşliği zedelemek gibi davranışlar da “yok olma”nın bir biçimi sayılabilir.
     Bu uyarı, hayatı koruma ve insani değerleri savunma temeline dayanmaktadır.
 
     d. Allah’ın Merhameti – İnsan Olarak Sorumluluğumuzun Temeli
-    Sonuçta tüm bu öğütlerin altında yatan büyük tema, Allah’ın evrensel merhametidir. Allah, “Sizinle beraber merhametlidir” diyerek bizlere şu gerçeği hatırlatıyor:
+    Sonuçta tüm bu öğütlerin altında yatan büyük tema, Allah’ın evrensel merhametidir. 
 
     Biz insanlar, birer emanetçiyiz, birer sorumluyuz.
     Allah'ın merhameti bizim iyiliğimize yöneliktir; o yüzden biz de başkalarına karşı merhametli olmalı, şiddetten uzak durmalı, adaleti sağlamak için çalışmalıyız.
     Kardeşimizi, komşumuzu, hatta düşmanımızı bile bir “Allah'ın yaratığı” olarak görmek, ona zarar vermenin aslında O'nun merhametine karşı gelmek olduğunu fark etmektir.
-    Genel Değerlendirme:
+    
     Bu ayet, sadece ekonomik etkinliklerde dürüstlükten değil, aynı zamanda hayatın değerini bilme, başkalarına saygı gösterme ve kendimizi hem manevi hem maddi yönden geliştirme görevinden de söz ediyor.
 
 
@@ -419,7 +415,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Birisi malıyla sınanır, birisi sabrıyla.
     Birinin kolu kuvvetlidir, toprağı deler; birinin yüreği geniştir, mazlumu kucaklar.
-    Birisi bir lokmayla doyar, birisi dünyanın bütün altınını yese doyamaz.
+    Birisi bir lokmayla doyar, birisi dünyanın bütün altınını yastık altına koysa doyamaz.
     Ama herkesin payı bellidir. Allah’tan gelmiştir. O bilir. Biz bilmeyiz.
 
     Sen şimdi başkasının nasibine göz dikersen, kendi nimetine körleşirsin.
@@ -475,9 +471,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     d. Allah Bilir, Biz Bilmiyoruz
     Bu ayet, aynı zamanda insanın sınırlı bilgisini kabul etmesi gerektiğini hatırlatır:
 
-    Başkaları bizden daha mutlu, daha güçlü ya da daha başarılı görünse de, biz onların içinde bulunduğu tüm testleri bilmiyoruz.
+    Başkaları bizden daha mutlu, daha güçlü ya da daha başarılı görünse de, biz onların içinde bulunduğu tüm imtihanları bilmiyoruz.
     Belki o kişi, görünmeyen bir hastalığı ya da içsel bir çöküntüyü yaşarken, biz sadece dış görünüşüne odaklanıyoruz.
-    Allah, herkesi onun taşıyabileceği yük ve imtihanla sınar. Bu bağlamda, göze güzel görünen her şey, kalbe iyi gelmeyecek demektir.
+    Allah, herkesi onun taşıyabileceği yük ve imtihanla sınar. Bu bağlamda, göze güzel görünen her şey, kalbe iyi gelmeyebilir demektir.
 
     e. İçsel Zenginliği Kazanmak: Nefse Hâkim Olmak
     Bu ayetin en büyük öğütlerinden biri, nefsi terbiye etmektir :
@@ -485,10 +481,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ne zaman bir başkasını kıskansak, o an nefsimizin kontrolünü ele almalıyız.
     Kendimizi şu sorularla sorgulamalıyız: “Ben bunu gerçekten ihtiyaçtan mı istiyorum? Yoksa benim egom mu besleniyor?”
     Ve en önemlisi: Kendi nimetlerime şükrediyor muyum? Çünkü şükür, kıskançlığın antidotudur.
-    Sonuç: Allah'a Güven ve Kendine Saygı Arasında Dengede Yaşamak
+    
+    Allah'a Güven ve Kendine Saygı Arasında Dengede Yaşamak
     Bu ayet, bize hayatta karşılaşacağımız ekonomik, sosyal veya duygusal eşitsizlikler karşısında nasıl duruş sergilememiz gerektiği konusunda büyük bir ilham kaynağıdır.
 
-    Kıskançlığa kapılmayın , çünkü Allah herkese göre verir.
+    Kıskançlığa kapılmayın , çünkü Allah herkese İrade ve Planına göre verir.
     Tamahkar olmayın , çünkü Allah her şeye şahittir.
     Dua edin , çünkü Allah her dileği duyar.
     Şükredin , çünkü şükür, nimeti çoğaltan anahtardır.
@@ -2726,69 +2723,69 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 129. **Kadınlar arasında, canınız çok istese de, olması istediğiniz gibi makul/adaletli ve adil olamazsınız: Ama onu havada asılı bırakmak için bir kadından tamamen yüz çevirmeyin. Dostça bir anlayışa varır ve kendinize hakim olursanız, Allah çok bağışlayandır, çok merhamet edendir.**
 
-Bu ayet, insan kalbinin en zor gerçeğini anlatır:
-Kalp, terazisi şaşmaz bir adalet terazisi değildir.
-Birine biraz daha yakın hisseder, birine biraz daha uzak...
-Ve Allah, bu zayıflığı bilir; çünkü insanı o yaratmıştır.
+    Bu ayet, insan kalbinin en zor gerçeğini anlatır:
+    Kalp, terazisi şaşmaz bir adalet terazisi değildir.
+    Birine biraz daha yakın hisseder, birine biraz daha uzak...
+    Ve Allah, bu zayıflığı bilir; çünkü insanı o yaratmıştır.
 
-Ama bilir diye mazur da görmez.
-Çünkü adalet, insanın iç dünyasında başlamalıdır.
-Birini sevmek, ötekine zulmetmeye bahane olamaz.
-Bir kadını sevmez oldun diyelim;
-onu ne özgür bırakırsın, ne de gönlünü onarırsın — öylece bekletirsin, havada asılı…
-İşte Kur’an buna karşı çıkar.
+    Ama bilir diye mazur da görmez.
+    Çünkü adalet, insanın iç dünyasında başlamalıdır.
+    Birini sevmek, ötekine zulmetmeye bahane olamaz.
+    Bir kadını sevmez oldun diyelim;
+    onu ne özgür bırakırsın, ne de gönlünü onarırsın — öylece bekletirsin, havada asılı…
+    İşte Kur’an buna karşı çıkar.
 
-“Havada asılı bırakmak” —
-bu, ne boşamak ne de eş gibi davranmaktır.
-Kadını bir gölge gibi yaşatmak, ne hayat vermek ne de hayatından vazgeçmektir.
-Böylesi bir haksızlık, hem kalbi hem de hukuku yaralar.
-Ayet der ki:
-“Tamamen yüz çevirmeyin.”
-Yani, duygun sönse de insanlığın sönmesin.
+    “Havada asılı bırakmak” —
+    bu, ne boşamak ne de eş gibi davranmaktır.
+    Kadını bir gölge gibi yaşatmak, ne hayat vermek ne de hayatından vazgeçmektir.
+    Böylesi bir haksızlık, hem kalbi hem de hukuku yaralar.
+    Ayet der ki:
+    “Tamamen yüz çevirmeyin.”
+    Yani, duygun sönse de insanlığın sönmesin.
 
-Allah, insanın içinden geçeni bilir;
-onun kıskançlığını, zayıflığını, eğilimlerini.
-Ama bu ayet, insanı bu duyguların bahanesine sığınmaktan alıkoyar.
-Çünkü adalet, sadece duygularla değil, iradeyle mümkündür.
-Ve irade, merhametin kardeşidir.
+    Allah, insanın içinden geçeni bilir;
+    onun kıskançlığını, zayıflığını, eğilimlerini.
+    Ama bu ayet, insanı bu duyguların bahanesine sığınmaktan alıkoyar.
+    Çünkü adalet, sadece duygularla değil, iradeyle mümkündür.
+    Ve irade, merhametin kardeşidir.
 
-O yüzden Kur’an, “dostça bir anlayışa varın” der.
-Barışın yolu açıktır — yeter ki gurur kapatmasın, kibir susturmasın.
-Bir sözü yumuşatmak, bir yüzü güldürmek, bazen bir evin yıkılmasını engeller.
+    O yüzden Kur’an, “dostça bir anlayışa varın” der.
+    Barışın yolu açıktır — yeter ki gurur kapatmasın, kibir susturmasın.
+    Bir sözü yumuşatmak, bir yüzü güldürmek, bazen bir evin yıkılmasını engeller.
 
-İslam, insanı gerçeğiyle kabul eder — ne melektir ne de hayvan.
-O yüzden dört eşe izin verir ama kalbi ikiye bölmeyi değil, adaleti şart koşar.
-Ve sonra uyarır:
-“Adalet tam sağlanamaz.”
-Bu, hem bir ruh terbiyesidir hem de ince bir hatırlatma:
-Yasalar izin verebilir, ama vicdanın sınırı başkadır.
+    İslam, insanı gerçeğiyle kabul eder — ne melektir ne de hayvan.
+    O yüzden dört eşe izin verir ama kalbi ikiye bölmeyi değil, adaleti şart koşar.
+    Ve sonra uyarır:
+    “Adalet tam sağlanamaz.”
+    Bu, hem bir ruh terbiyesidir hem de ince bir hatırlatma:
+    Yasalar izin verebilir, ama vicdanın sınırı başkadır.
 
-Sonunda ayet, her şeyin özünü bir cümleyle bağlar:
-“Allah çok bağışlayandır, çok merhametlidir.”
+    Sonunda ayet, her şeyin özünü bir cümleyle bağlar:
+    “Allah çok bağışlayandır, çok merhametlidir.”
 
-Bu söz, sadece bir müjde değil, bir sorumluluktur da.
-Çünkü bağışlanmak, zulmü sürdürmek için değil, hatayı fark edip ondan dönmek içindir.
-Ve merhamet, sadece Allah’a ait bir sıfat değil,
-O’na yaklaşmak isteyenin kalbinde yeşermesi gereken bir haldir.
+    Bu söz, sadece bir müjde değil, bir sorumluluktur da.
+    Çünkü bağışlanmak, zulmü sürdürmek için değil, hatayı fark edip ondan dönmek içindir.
+    Ve merhamet, sadece Allah’a ait bir sıfat değil,
+    O’na yaklaşmak isteyenin kalbinde yeşermesi gereken bir haldir.
 
 
-Kur’an’da çok eşlilik hukuken tamamen reddedilmez; çünkü indiği dönemde —özellikle savaş sonrası— toplumun yapısı içinde dul kadınlar ve yetimlerin korunması için bir tür sosyal sorumluluk kapısıydı bu.
+    Kur’an’da çok eşlilik hukuken tamamen reddedilmez; çünkü indiği dönemde —özellikle savaş sonrası— toplumun yapısı içinde dul kadınlar ve yetimlerin korunması için bir tür sosyal sorumluluk kapısıydı bu.
 
-Kur’an,  o izni adalet şartına bağlar: Nisa3, Nisa 129
+    Kur’an,  o izni adalet şartına bağlar: Nisa3, Nisa 129
 
-Yani Allah, insanın kalbini biliyor. Duyguların eşit olamayacağını, sevgiyi terazide tartamayacağını biliyor.
+    Yani Allah, insanın kalbini biliyor. Duyguların eşit olamayacağını, sevgiyi terazide tartamayacağını biliyor.
 
-Bu yüzden, açıkça şunu ima ediyor:
+    Bu yüzden, açıkça şunu ima ediyor:
 
-Çok eşlilik teorik olarak serbesttir ama pratikte neredeyse imkânsız bir adaleti şart koşar.
-Bu da fiilen, tek eşliliği ahlaken üstün ve tercih edilir kılar.
+    Çok eşlilik teorik olarak serbesttir ama pratikte neredeyse imkânsız bir adaleti şart koşar.
+    Bu da fiilen, tek eşliliği ahlaken üstün ve tercih edilir kılar.
 
-Kısacası, Kur’an burada “yasaklamıyor” ama “uyarıyor”:
-— Eğer insan kalbi gerçekten dengede olamayacaksa, adalet tam sağlanamayacaksa,
-— O zaman tek eşlilik hem vicdana hem imana daha uygundur.
+    Kısacası, Kur’an burada “yasaklamıyor” ama “uyarıyor”:
+    — Eğer insan kalbi gerçekten dengede olamayacaksa, adalet tam sağlanamayacaksa,
+    — O zaman tek eşlilik hem vicdana hem imana daha uygundur.
 
-Bu yüzden İslam’ın özü, tek eşliliği ahlaki norm olarak işaret eder.
-Çok eşlilik ise, istisnai bir ruhsat, bir “zorluk anı çözümü” olarak kalır.
+    Bu yüzden İslam’ın özü, tek eşliliği ahlaki norm olarak işaret eder.
+    Çok eşlilik ise, istisnai bir ruhsat, bir “zorluk anı çözümü” olarak kalır.
 
 
 130. **Fakat eğer anlaşmazlığa düşerler ve ayrılmak zorunda kalırlarsa, Allah geniş lütfundan herkese rızık verir: Allah, her şeyi gözetendir, hüküm ve hikmet sahibidir.**
@@ -3346,52 +3343,53 @@ Bu yüzden İslam’ın özü, tek eşliliği ahlaki norm olarak işaret eder.
 
 141. **İşte onlar beklerler ve siz izlerler: Eğer Allah katından bir zafer kazanırsanız, “Biz sizinle beraber değil miydik?” derler. -Fakat kâfirler bir başarı elde ederlerse, onlar der ki: “Biz sizin üstün gelmenizi sağlamadık mı ve sizi mü’minlerden korumadık mı?” Ancak Allah, kıyamet günü aranızda hüküm verecektir. Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecektir.**
 
-Onlar pusudadır. Beklerler. Siz savaşır, siz çabalarsınız; onlar uzaktan seyreder.
-Bir rüzgâr gibi kayar aranızdan; kimin kazanacağına bakarlar.
 
-Allah katından bir zafer gelir, müminler galip düşerse — hemen öne atılırlar:
-“Biz de sizinleydik!” derler utanmadan.
-Fakat inkâr edenler üstün gelirse bu kez yüzleri değişir, sesleri kalınlaşır:
-“Biz sizi müminlerin elinden korumadık mı? Sizin üstün gelmeniz için uğraşmadık mı?”
+    Onlar pusudadır. Beklerler. Siz savaşır, siz çabalarsınız; onlar uzaktan seyreder.
+    Bir rüzgâr gibi kayar aranızdan; kimin kazanacağına bakarlar.
 
-İşte bunlar, yüreği olmayan insanlardır.
-Ne hak bilirler ne batıl. Rüzgâr nereye eserse oraya döner yüzleri.
-Bir gün müminin safında, bir gün zalimin.
-Tek bildikleri şey, kendi çıkarlarıdır.
-Bir damla onur, bir zerre vicdan yoktur içlerinde.
+    Allah katından bir zafer gelir, müminler galip düşerse — hemen öne atılırlar:
+    “Biz de sizinleydik!” derler utanmadan.
+    Fakat inkâr edenler üstün gelirse bu kez yüzleri değişir, sesleri kalınlaşır:
+    “Biz sizi müminlerin elinden korumadık mı? Sizin üstün gelmeniz için uğraşmadık mı?”
 
-Ama Allah, bir gün aralarını ayıracak.
-Kıyamet günü, o büyük hesapta, kimin kalbinde iman, kimin dilinde yalan olduğu ortaya çıkacak.
-O gün artık hiçbir maske kalmayacak.
-Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecek.
+    İşte bunlar, yüreği olmayan insanlardır.
+    Ne hak bilirler ne batıl. Rüzgâr nereye eserse oraya döner yüzleri.
+    Bir gün müminin safında, bir gün zalimin.
+    Tek bildikleri şey, kendi çıkarlarıdır.
+    Bir damla onur, bir zerre vicdan yoktur içlerinde.
 
-Bu söz, bir temenni değil, bir hüküm.
-Çünkü Allah’ın adaleti, görünürde kaybedenlerin kalbinde zaferdir.
-Tarih boyunca iman sahipleri yenilmiş görünmüştür bazen,
-ama hak, her defasında küllerinden doğrulmuştur.
-Zulüm büyümüş, halk ezilmiş, umut susmuş gibi olur —
-ama bir bakarsın, toprağın altında bir ses filizlenir: adaletin sesi.
+    Ama Allah, bir gün aralarını ayıracak.
+    Kıyamet günü, o büyük hesapta, kimin kalbinde iman, kimin dilinde yalan olduğu ortaya çıkacak.
+    O gün artık hiçbir maske kalmayacak.
+    Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecek.
 
-Münafıklar o sesi hiç duymadan yaşar.
-Kazananın sofrasında yer kapmakla meşguldürler.
-Hakkı değil, gücü severler.
-Fakat güç geçer, hak kalır.
-Yalanın saltanatı sürse de, sonunda ışık yine hakikate döner.
+    Bu söz, bir temenni değil, bir hüküm.
+    Çünkü Allah’ın adaleti, görünürde kaybedenlerin kalbinde zaferdir.
+    Tarih boyunca iman sahipleri yenilmiş görünmüştür bazen,
+    ama hak, her defasında küllerinden doğrulmuştur.
+    Zulüm büyümüş, halk ezilmiş, umut susmuş gibi olur —
+    ama bir bakarsın, toprağın altında bir ses filizlenir: adaletin sesi.
 
-Bu ayet, her çağda kulağa fısıldanan bir gerçektir:
-Sadakat, kazanana değil, doğruya olmalı.
-Yoksa insan, insanlığını yitirir.
+    Münafıklar o sesi hiç duymadan yaşar.
+    Kazananın sofrasında yer kapmakla meşguldürler.
+    Hakkı değil, gücü severler.
+    Fakat güç geçer, hak kalır.
+    Yalanın saltanatı sürse de, sonunda ışık yine hakikate döner.
 
-Allah’ın sözü apaçık:
+    Bu ayet, her çağda kulağa fısıldanan bir gerçektir:
+    Sadakat, kazanana değil, doğruya olmalı.
+    Yoksa insan, insanlığını yitirir.
 
-“Allah, asla kâfirlerin müminler üzerinde üstün gelmesine yol vermez.”
+    Allah’ın sözü apaçık:
 
-Bu, karanlığın ortasında bir güven,
-ihanet karşısında bir direniş çağrısıdır.
+    “Allah, asla kâfirlerin müminler üzerinde üstün gelmesine yol vermez.”
 
-Münafıklar gelir, geçer.
-Ama hak…
-O ebedidir.
+    Bu, karanlığın ortasında bir güven,
+    ihanet karşısında bir direniş çağrısıdır.
+
+    Münafıklar gelir, geçer.
+    Ama hak…
+    O ebedidir.
 
 
 
@@ -3495,90 +3493,90 @@ O ebedidir.
 
 
 
-147. Eğer şükreder ve inanırsanız, Allah sizin azabınızla ne elde edebilir? Hayır, hayırları bilen/takdir eden/farkına varan Allah’tır, her şeyi bilendir.
+147. **Eğer şükreder ve inanırsanız, Allah sizin azabınızla ne elde edebilir? Hayır, hayırları bilen/takdir eden/farkına varan Allah’tır, her şeyi bilendir.**
 
 
-"İşte Bak! Safa ve Merve Allah’ın İşaretlerindendir/Sembollerindendir. O halde hac veya umre zamanlarında Evi ziyaret edenler, her ikisini de tavaf ederse, onlara günah yoktur. Kim de kendi iyilik yapma dürtüsüne uyarsa/içinden gelerek iyilik yaparsa, bilsin ki Allah, takdir eden ve bilendir." : Bakara 158
+    "İşte Bak! Safa ve Merve Allah’ın İşaretlerindendir/Sembollerindendir. O halde hac veya umre zamanlarında Evi ziyaret edenler, her ikisini de tavaf ederse, onlara günah yoktur. Kim de kendi iyilik yapma dürtüsüne uyarsa/içinden gelerek iyilik yaparsa, bilsin ki Allah, takdir eden ve bilendir." : Bakara 158
 
-"İbrahim, gerçekten Allah’a boyun eğen, imanı dosdoğru olan bir modeldi/örnek olandı ve Allah’a ortak koşmadı.
-Kendisini seçen ve onu dosdoğru yola ileten Allah’ın nimetlerine şükretti.
-Biz ona dünyada bir hayır verdik, ahirette de salihlerdendir.
-Bu yüzden sana vahyolunan Mesajı öğrettik: “Doğru olan İbrahim’in yollarına uyun ve o, Allah’a ortak koşmazdı.”" : Nahl 120-123
+    "İbrahim, gerçekten Allah’a boyun eğen, imanı dosdoğru olan bir modeldi/örnek olandı ve Allah’a ortak koşmadı.
+    Kendisini seçen ve onu dosdoğru yola ileten Allah’ın nimetlerine şükretti.
+    Biz ona dünyada bir hayır verdik, ahirette de salihlerdendir.
+    Bu yüzden sana vahyolunan Mesajı öğrettik: “Doğru olan İbrahim’in yollarına uyun ve o, Allah’a ortak koşmazdı.”" : Nahl 120-123
 
 
-Bu ayet, insana yavaşça dönüp bakan bir ses gibidir.
-Ne bir tehdit ne bir korkutmadır; daha çok, bir hatırlatmadır.
-“Ben size zulmetmek için değil, sizi yüceltmek için var ettim” der adeta.
+    Bu ayet, insana yavaşça dönüp bakan bir ses gibidir.
+    Ne bir tehdit ne bir korkutmadır; daha çok, bir hatırlatmadır.
+    “Ben size zulmetmek için değil, sizi yüceltmek için var ettim” der adeta.
 
-1. Allah’ın Azapla Bir Kazancı Yoktur
+    1. Allah’ın Azapla Bir Kazancı Yoktur
 
-Allah, kullarını cezalandırarak ne elde eder?
-Hiçbir şey.
-O, hiçbir şeye muhtaç değildir.
-Ne insanların itaatine, ne secdesine, ne duasına…
+    Allah, kullarını cezalandırarak ne elde eder?
+    Hiçbir şey.
+    O, hiçbir şeye muhtaç değildir.
+    Ne insanların itaatine, ne secdesine, ne duasına…
 
-O’nun azabı, bir öfkenin değil, adaletin sonucudur.
-Bir adalet ki, düzen bozulmasın diye işler.
-Tıpkı taşkın bir ırmağın yatağına döndürülmesi gibi.
-Cezanın amacı yok etmek değil, sınır çizmek, dengeyi korumaktır.
+    O’nun azabı, bir öfkenin değil, adaletin sonucudur.
+    Bir adalet ki, düzen bozulmasın diye işler.
+    Tıpkı taşkın bir ırmağın yatağına döndürülmesi gibi.
+    Cezanın amacı yok etmek değil, sınır çizmek, dengeyi korumaktır.
 
-2. Allah, En Küçük Hayrı Bile Görür
+    2. Allah, En Küçük Hayrı Bile Görür
 
-Ayetin sonunda geçen “şekûr” ismi —
-sadece bilen değil, tanıyan, değer veren, karşılığını kat kat ödeyen anlamındadır.
+    Ayetin sonunda geçen “şekûr” ismi —
+    sadece bilen değil, tanıyan, değer veren, karşılığını kat kat ödeyen anlamındadır.
 
-Bir insanın içinden geçen minicik bir iyi niyet,
-bir kırık kalbin içindeki tövbe,
-kimsenin görmediği bir iyilik...
-Hepsi Allah katında kayda geçer.
-Hiçbiri unutulmaz.
+    Bir insanın içinden geçen minicik bir iyi niyet,
+    bir kırık kalbin içindeki tövbe,
+    kimsenin görmediği bir iyilik...
+    Hepsi Allah katında kayda geçer.
+    Hiçbiri unutulmaz.
 
-O’nun terazisinde, karınca kadar hayır da dağ gibi büyür.
+    O’nun terazisinde, karınca kadar hayır da dağ gibi büyür.
 
-3. Şükür ve İman: İnsanın İki Kanadı
+    3. Şükür ve İman: İnsanın İki Kanadı
 
-İman, Allah’ı bilmek ve kabullenmektir.
-Şükür ise O’nu sevmektir.
+    İman, Allah’ı bilmek ve kabullenmektir.
+    Şükür ise O’nu sevmektir.
 
-İman, aklın yoludur;
-Şükür, kalbin.
+    İman, aklın yoludur;
+    Şükür, kalbin.
 
-Bir insan hem inanır hem şükrederse,
-hayat bir anlam kazanır.
-Nimet artık sıradan değildir;
-her lokma bir şükran, her nefes bir teşekkür olur.
+    Bir insan hem inanır hem şükrederse,
+    hayat bir anlam kazanır.
+    Nimet artık sıradan değildir;
+    her lokma bir şükran, her nefes bir teşekkür olur.
 
-Ve işte o zaman, insanın varlığı Allah’ın düzenine karışır;
-kâinattaki o büyük uyumun parçası olur.
+    Ve işte o zaman, insanın varlığı Allah’ın düzenine karışır;
+    kâinattaki o büyük uyumun parçası olur.
 
-4. Allah Her Şeyi Bilir, Ama Özellikle İyiliği Görür
+    4. Allah Her Şeyi Bilir, Ama Özellikle İyiliği Görür
 
-“Allah her şeyi bilir” derken Kur’an,
-korkutmak için değil, güvence vermek için söyler.
+    “Allah her şeyi bilir” derken Kur’an,
+    korkutmak için değil, güvence vermek için söyler.
 
-Çünkü bu bilginin içinde hem adalet vardır,
-hem de lütuf.
-Ne bir iyilik kaybolur,
-ne bir kötülük gizlenir.
+    Çünkü bu bilginin içinde hem adalet vardır,
+    hem de lütuf.
+    Ne bir iyilik kaybolur,
+    ne bir kötülük gizlenir.
 
-O, her şeyi yerli yerinde tartar.
+    O, her şeyi yerli yerinde tartar.
 
-Sonuç: Cezasızlığın Değil, Merhametin Ayeti
+    Sonuç: Cezasızlığın Değil, Merhametin Ayeti
 
-Bu ayet, Allah’ın gazabını değil, merhametini gösterir.
-O, kullarını cezalandırmak için yaratmamıştır.
-Azap, O’nun isteği değil, kulun tercihlerinin sonucudur.
+    Bu ayet, Allah’ın gazabını değil, merhametini gösterir.
+    O, kullarını cezalandırmak için yaratmamıştır.
+    Azap, O’nun isteği değil, kulun tercihlerinin sonucudur.
 
-Bir insan inanırsa, şükrederse,
-artık cezaya yer kalmaz — çünkü o,
-Allah’ın murad ettiği insan olmuştur.
+    Bir insan inanırsa, şükrederse,
+    artık cezaya yer kalmaz — çünkü o,
+    Allah’ın murad ettiği insan olmuştur.
 
-Ve Allah,
-böyle bir kulu tanır, sever, yüceltir.
+    Ve Allah,
+    böyle bir kulu tanır, sever, yüceltir.
 
-Çünkü O,
-her hayrı bilen,
-her şeyi hakkıyla bilendir.
+    Çünkü O,
+    her hayrı bilen,
+    her şeyi hakkıyla bilendir.
 
 
 
@@ -4550,7 +4548,7 @@ her şeyi hakkıyla bilendir.
     Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümlerine tutunur, işte o kişi İslam halkasının son halkasına katılmış olur. Ve kim ki birini inkâr eder, zinciri kırar. Bu zincir, insanı karanlıktan aydınlığa çeken zincirdir. Her halkaya tutunan, hakikatin yolcusu olur.
 
 
-164. Elçilerden bazılarını sana daha önce anlatmıştık; Diğerlerinden bahsetmedik;- ve Allah Musa ile doğrudan konuştu;-
+164. **Elçilerden bazılarını sana daha önce anlatmıştık; Diğerlerinden bahsetmedik;- ve Allah Musa ile doğrudan konuştu;-**
 
 
     Kitapta Musa’nın kıssasını da an; çünkü o, özel olarak seçilmişti, o bir elçi ve bir peygamberdi. : Meryem 51
@@ -4656,74 +4654,74 @@ her şeyi hakkıyla bilendir.
 
     Ve en nihayetinde Allah, apaçık bir kitap indirmiştir kullarına: Kur’an. Ne puslu söz vardır onda, ne eğri büğrü yol. Doğruyla yanlışı ayıran bir kılıç gibi inmiştir yeryüzüne. Adı Furkan’dır. O kitap ki zalimin maskesini düşürür, mazlumun gözyaşını siler. O kitap ki karanlığı deler, aydınlığı getirir.
 
-166. Ama Allah, sana indirdiklerini kendi bilgisinden indirdiğine şahitlik eder ve melekler de şahitlik ederler: Ama şahit olarak Allah yeterdir.
+166. **Ama Allah, sana indirdiklerini kendi bilgisinden indirdiğine şahitlik eder ve melekler de şahitlik ederler: Ama şahit olarak Allah yeterdir.**
 
-De ki: Kim , Allah’ın izniyle öncekileri doğrulayıcı/tasdik edici ve inananlar için bir hidayet ve müjde olan vahyi senin kalbine indirdiği için Cebraile düşmansa,
-Kim Allah’a, meleklerine ve elçilerine, Cebrail’e ve Mikail’e düşmansa, – Bak işte! Allah, İnancı inkar edenlere düşmandır. : Bakara 97-98
+    De ki: Kim , Allah’ın izniyle öncekileri doğrulayıcı/tasdik edici ve inananlar için bir hidayet ve müjde olan vahyi senin kalbine indirdiği için Cebraile düşmansa,
+    Kim Allah’a, meleklerine ve elçilerine, Cebrail’e ve Mikail’e düşmansa, – Bak işte! Allah, İnancı inkar edenlere düşmandır. : Bakara 97-98
 
-Bu ayet, Kur’an’ın kaynağına dair en kesin ilanı içerir:
+    Bu ayet, Kur’an’ın kaynağına dair en kesin ilanı içerir:
 
-Kur’an, insan zihninden değil, Allah’ın bilgisinden gelmiştir. 
+    Kur’an, insan zihninden değil, Allah’ın bilgisinden gelmiştir. 
 
-1. Allah’ın Şahitliği: En Yüksek Gerçek
-Ayet, önce Allah’ın kendisinin şahitlik ettiğini söyler.
-Bu, Kur’an’ın ilahi kökenini sorgulamaya yer bırakmayacak şekilde kesinleştirir.
-Çünkü Allah, her şeyin bilgisine sahip olandır;
-→ O’nun bilgisi, zamandan, mekândan, deneyimden bağımsızdır.
-Dolayısıyla, Kur’an’da geçen:
-→ Geçmiş toplumlarla ilgili haberler,
-→ Ahiret ile ilgili açıklamalar,
-→ Evrensel ahlak ilkeleri,
-hepsi Allah’ın ezelî bilgisinin yansımasıdır — insan tahmininden değil.
+    1. Allah’ın Şahitliği: En Yüksek Gerçek
+    Ayet, önce Allah’ın kendisinin şahitlik ettiğini söyler.
+    Bu, Kur’an’ın ilahi kökenini sorgulamaya yer bırakmayacak şekilde kesinleştirir.
+    Çünkü Allah, her şeyin bilgisine sahip olandır;
+    → O’nun bilgisi, zamandan, mekândan, deneyimden bağımsızdır.
+    Dolayısıyla, Kur’an’da geçen:
+    → Geçmiş toplumlarla ilgili haberler,
+    → Ahiret ile ilgili açıklamalar,
+    → Evrensel ahlak ilkeleri,
+    hepsi Allah’ın ezelî bilgisinin yansımasıdır — insan tahmininden değil.
 
-2. Meleklerin Şahitliği: İlhamın Safiyetini Onaylar
-Melekler, vahyin aktarıldığı aracı varlıklardır : Bakara 97
-Onların şahitliği,
-→ Vahyin bozulmadan, katkısız olarak peygambere ulaştığını,
-→ İnsan iradesi veya dış etkenlerin karışmadığını gösterir.
-Ancak bu şahitlik, Allah’ın şahitliğine ek bir vurgudur;
-→ Çünkü asıl ve yeterli şahit, Allah’tır.
+    2. Meleklerin Şahitliği: İlhamın Safiyetini Onaylar
+    Melekler, vahyin aktarıldığı aracı varlıklardır : Bakara 97
+    Onların şahitliği,
+    → Vahyin bozulmadan, katkısız olarak peygambere ulaştığını,
+    → İnsan iradesi veya dış etkenlerin karışmadığını gösterir.
+    Ancak bu şahitlik, Allah’ın şahitliğine ek bir vurgudur;
+    → Çünkü asıl ve yeterli şahit, Allah’tır.
 
-3. “Allah Yeterlidir” — İmanın Temel Güvencesi
-Ayetin sonunda gelen:
-“Ama şahit olarak Allah yeterlidir.”
-ifadesi,
-→ Dış kanıta, tarihsel delile, hatta melek şahitliğine bile gerek olmadığını
-→ Allah’ın sözünün kendi içinde kendi delilini taşıdığını
-gösterir. 
-Çünkü:
-Allah’ın bilgisi, her şeye şahittir;
-O’nun kelamı, kendi doğruluğunu taşır. 
+    3. “Allah Yeterlidir” — İmanın Temel Güvencesi
+    Ayetin sonunda gelen:
+    “Ama şahit olarak Allah yeterlidir.”
+    ifadesi,
+    → Dış kanıta, tarihsel delile, hatta melek şahitliğine bile gerek olmadığını
+    → Allah’ın sözünün kendi içinde kendi delilini taşıdığını
+    gösterir. 
+    Çünkü:
+    Allah’ın bilgisi, her şeye şahittir;
+    O’nun kelamı, kendi doğruluğunu taşır. 
 
-4. Akılla Anlaşılabilir Gerçek: İlham, İnsan Diliyle İlahi Bilgidir
-Kur’an, insan dilinde inmiştir — Arapça olarak (Zuhruf, 43:3).
-Ancak içeriği, insan zihninin ürettiği bir düşünce değil,
-→ Allah’ın bilgisinin insan anlayışına uyarlanmış bir tecellisidir.
-Bu, ilhamın doğasını açıklar:
-→ Dil ve üslup, peygamberin kişiliğine göre şekillenir,
-→ Ama mesajın kaynağı, tamamen ilahidir.
+    4. Akılla Anlaşılabilir Gerçek: İlham, İnsan Diliyle İlahi Bilgidir
+    Kur’an, insan dilinde inmiştir — Arapça olarak (Zuhruf, 43:3).
+    Ancak içeriği, insan zihninin ürettiği bir düşünce değil,
+    → Allah’ın bilgisinin insan anlayışına uyarlanmış bir tecellisidir.
+    Bu, ilhamın doğasını açıklar:
+    → Dil ve üslup, peygamberin kişiliğine göre şekillenir,
+    → Ama mesajın kaynağı, tamamen ilahidir.
 
-Bu ayet, bize şunu öğretir:
+    Bu ayet, bize şunu öğretir:
 
-Kur’an’ı anlamak için önce onun kaynağını tanımak gerekir.
+    Kur’an’ı anlamak için önce onun kaynağını tanımak gerekir.
 
-O, insanın aklından çıkmamış,
-Tarihin ürünü değil,
-Allah’ın bilgisinden inmiş bir nurdur. 
+    O, insanın aklından çıkmamış,
+    Tarihin ürünü değil,
+    Allah’ın bilgisinden inmiş bir nurdur. 
 
-Kur’an, bir insanın düşüncesi değil,
-bir aklın yorumu değil —
-sonsuz bilginin sesiydi o.
-Zamanın ötesinden gelip insan diline bürünmüş bir hakikat.
+    Kur’an, bir insanın düşüncesi değil,
+    bir aklın yorumu değil —
+    sonsuz bilginin sesiydi o.
+    Zamanın ötesinden gelip insan diline bürünmüş bir hakikat.
 
-Ve en güçlü delil:
+    Ve en güçlü delil:
 
-Allah’ın kendisi şahittir.
-Başka bir şahide gerek yok. 
+    Allah’ın kendisi şahittir.
+    Başka bir şahide gerek yok. 
 
-Çünkü:
+    Çünkü:
 
-şahit olarak Allah yeter.
+    şahit olarak Allah yeter.
 
 
 167. **İnkar edenler ve insanları Allah yolundan alıkoyanlar, gerçekten yoldan çok çok uzaklara sapmışlardır.**
@@ -4961,54 +4959,54 @@ Başka bir şahide gerek yok.
 
 174. **Ey insanlık! Muhakkak ki size Rabbinizden kesin/inandırıcı/ikna edici bir delil gelmiştir: Çünkü Biz size apaçık bir nur indirdik/ Çünkü size apaçık bir nur gönderdik.**
 
-Ey insanlık!
-Size Rabbinizden, apaçık bir delil geldi.
-Bir delil ki — yalanın, karanlığın, putların yüzünü parçalayan bir hakikat gibi geldi.
-Ve ardından bir nur indi üzerinize,
-gözleri kamaştıran değil, gönülleri aydınlatan bir nur.
+    Ey insanlık!
+    Size Rabbinizden, apaçık bir delil geldi.
+    Bir delil ki — yalanın, karanlığın, putların yüzünü parçalayan bir hakikat gibi geldi.
+    Ve ardından bir nur indi üzerinize,
+    gözleri kamaştıran değil, gönülleri aydınlatan bir nur.
 
-O delil, Kur’an’dır —
-sözün en temiz, en derin, en diri hâli.
+    O delil, Kur’an’dır —
+    sözün en temiz, en derin, en diri hâli.
 
-Bu delil,
-→ Gizli bir ilham değil,
-→ Sadece seçkinlere özel bir bilgi değil,
-→ Her akıl sahibinin erişebileceği, apaçık bir gerçektir.
+    Bu delil,
+    → Gizli bir ilham değil,
+    → Sadece seçkinlere özel bir bilgi değil,
+    → Her akıl sahibinin erişebileceği, apaçık bir gerçektir.
 
-Burada “nur”, Kur’an’ın kendisidir:
-“Allah, müminlere kendi nurundan bir nur indirmiştir.” : Hadid 28
-“Kur’an, karanlıklardan nur’a çıkarır.” :İbrahim 1
+    Burada “nur”, Kur’an’ın kendisidir:
+    “Allah, müminlere kendi nurundan bir nur indirmiştir.” : Hadid 28
+    “Kur’an, karanlıklardan nur’a çıkarır.” :İbrahim 1
 
-Bu nur,
-→ Gerçeği gösterir,
-→ Yolu aydınlatır,
-→ Adaleti, merhameti, tevhidi ve ahlakı ortaya koyar.
+    Bu nur,
+    → Gerçeği gösterir,
+    → Yolu aydınlatır,
+    → Adaleti, merhameti, tevhidi ve ahlakı ortaya koyar.
 
-Ey insanlık!
-Artık size hem delil geldi,
-hem ışık…
-İkisini birden göremeyen,
-kendi gözünü karartmış olur.
-Çünkü o nur,
-her gönülde bir kapı aralamak içindir.
-Ve o kapıdan giren,
-karanlıktan kurtulur.
+    Ey insanlık!
+    Artık size hem delil geldi,
+    hem ışık…
+    İkisini birden göremeyen,
+    kendi gözünü karartmış olur.
+    Çünkü o nur,
+    her gönülde bir kapı aralamak içindir.
+    Ve o kapıdan giren,
+    karanlıktan kurtulur.
 
-İnsan, karanlıkta yolunu bulamaz.
-Toplumlar, adaletsizlik, putperestlik, zulüm ve cehalet karanlığında boğulur.
-İşte o karanlığa, Allah apaçık bir nur göndermiştir:
-→ O nur, Kur’an’dır —
-Adaleti emreder,
-Zulümü yasaklar,
-İffeti korur,
-Akla seslenir,
-Vicdanı uyandırır.
+    İnsan, karanlıkta yolunu bulamaz.
+    Toplumlar, adaletsizlik, putperestlik, zulüm ve cehalet karanlığında boğulur.
+    İşte o karanlığa, Allah apaçık bir nur göndermiştir:
+    → O nur, Kur’an’dır —
+    Adaleti emreder,
+    Zulümü yasaklar,
+    İffeti korur,
+    Akla seslenir,
+    Vicdanı uyandırır.
 
-Kur’an zaman ve mekândan bağımsız,
-→ Her akıl sahibine seslenen bir rehber olduğunu gösterir.
-Çünkü gerçek nur,
-→ Sınırlı bir gruba değil,
-→ Bütün insanlığa yöneliktir.
+    Kur’an zaman ve mekândan bağımsız,
+    → Her akıl sahibine seslenen bir rehber olduğunu gösterir.
+    Çünkü gerçek nur,
+    → Sınırlı bir gruba değil,
+    → Bütün insanlığa yöneliktir.
 
 
 
@@ -5016,48 +5014,48 @@ Kur’an zaman ve mekândan bağımsız,
 175. **Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya, Allah onları katından bir rahmet ve lütfa/merhamete sokacak ve onları kendisine varan dosdoğru yola iletecektir.**
 
 
-Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya…
-Onlar, karanlıkta bile yolunu şaşırmazlar.
-Çünkü Allah, onları katından bir rahmetle kuşatır,
-bir lütufla sarar,
-ve sonunda kendi huzuruna, dosdoğru bir yola iletir.
+    Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya…
+    Onlar, karanlıkta bile yolunu şaşırmazlar.
+    Çünkü Allah, onları katından bir rahmetle kuşatır,
+    bir lütufla sarar,
+    ve sonunda kendi huzuruna, dosdoğru bir yola iletir.
 
-İman edenin yolu, bir harita değil, bir yöneliştir.
-Her adımda biraz daha yaklaşır,
-her sarsıntıda biraz daha tutunur.
-Ve sonunda, o tutunmanın kendisi olur —
-çünkü iman, Allah’a varmanın ilk hâlidir.
+    İman edenin yolu, bir harita değil, bir yöneliştir.
+    Her adımda biraz daha yaklaşır,
+    her sarsıntıda biraz daha tutunur.
+    Ve sonunda, o tutunmanın kendisi olur —
+    çünkü iman, Allah’a varmanın ilk hâlidir.
 
-O’nun merhameti,
-göklerin üstünden değil, kalplerin içinden çağlar.
-Kim O’na bağlanırsa,
-O da onu Kendine bağlar —
-bir nur halkası gibi, kesintisiz, sarsılmaz.
+    O’nun merhameti,
+    göklerin üstünden değil, kalplerin içinden çağlar.
+    Kim O’na bağlanırsa,
+    O da onu Kendine bağlar —
+    bir nur halkası gibi, kesintisiz, sarsılmaz.
 
-Ve o yolun sonunda,
-insan kendi aslına döner.
-Çünkü Allah’a giden yol,
-zaten insanın içinden, iradesinden, bireysel sorumluluğundan geçer.
+    Ve o yolun sonunda,
+    insan kendi aslına döner.
+    Çünkü Allah’a giden yol,
+    zaten insanın içinden, iradesinden, bireysel sorumluluğundan geçer.
 
 176. **Senden hukuki bir karar istiyorlar. De ki: Allah, nesep ve zürriyete mirasçı bırakmayanlar hakkında işte böyle emrediyor. Çocuğu olmayan bir kız kardeş bırakarak ölen erkek ise mirasın yarısı onundur. Ölen kadın, çocuğu olmayan bir kadın ise mirasını erkek kardeşi alır. Eğer iki kız kardeş varsa, Mirasın üçte ikisi aralarında onlarındır: Eğer erkek ve kız kardeşler varsa, onlar da paylaşırlar; erkek, dişinin iki katı paya sahiptir. Yanılmayasınız/Sapmayasınız/Yanlış yapmayasınız diye Allah size şeriatını/kanununu işte böyle açıklıyor. Ve Allah, her şeyi bilendir.**
 
 
-Bir adam ölür de ardında yalnız bir kız kardeş kalırsa,
-mirasın yarısı onundur.
-Ama ölen bir kadınsa,
-kardeşi, onun bıraktığını eksiksiz alır.
+    Bir adam ölür de ardında yalnız bir kız kardeş kalırsa,
+    mirasın yarısı onundur.
+    Ama ölen bir kadınsa,
+    kardeşi, onun bıraktığını eksiksiz alır.
 
-İki kız kardeş kalırsa,
-üçte ikisini aralarında paylaşırlar.
-Eğer kardeşler hem erkek hem de kızsa,
-erkek, kadının payının iki katını alır.
+    İki kız kardeş kalırsa,
+    üçte ikisini aralarında paylaşırlar.
+    Eğer kardeşler hem erkek hem de kızsa,
+    erkek, kadının payının iki katını alır.
 
-Böylece Allah,
-hakkı eğip bükmeyesiniz,
-yoldan şaşırmayasınız diye hükmünü apaçık bildirmiştir.
+    Böylece Allah,
+    hakkı eğip bükmeyesiniz,
+    yoldan şaşırmayasınız diye hükmünü apaçık bildirmiştir.
 
-O’dur her şeyi bilen,
-her varlığın seçimini adaletle ölçen.
+    O’dur her şeyi bilen,
+    her varlığın seçimini adaletle ölçen.
 
 
 
