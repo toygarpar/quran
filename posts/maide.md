@@ -4,21 +4,109 @@ Maide Suresi 5-110 ( Öğün, Yemek, Yemek Zamanı )
 
 SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
-1. **Ey iman edenler! tüm yükümlülüklerinizi yerine getirin. Dört ayaklı hayvanlar size helâl kılındı, ancak şu istisnalar vardır: Haram/kutsal yerlerde veya hac kıyafetine girmişken av hayvanları size haram kılındı: Çünkü Allah, iradesi ve planına göre hükmeder.  **
+1. **Ey iman edenler! tüm yükümlülüklerinizi yerine getirin. Dört ayaklı hayvanlar size helâl kılındı, ancak şu istisnalar vardır: Haram/kutsal yerlerde veya hac kıyafetine girmişken av hayvanları size haram kılındı: Çünkü Allah, iradesi ve planına göre hükmeder.**
       
     Sözlerin/Ahdlerin yerine getirilmesi, Allah’ın emridir.  
+
+    "Allah’a ahit verdiğiniz/yaptığınız zaman yerine getirin ve sağlamlaştırdıktan sonra yeminlerinizi bozmayın. Allah’ı kendinize kefil kıldınız; Allah yaptıklarınızı bilir." : Nahl 91
+
+    Ey insan!
+    Söz verdin mi, tutacaksın. Çünkü söz, insanın ağırlığıdır.
+    İnancın, elinin emeğin, komşunun kapısındaki hakkın… hepsi aynı yükümlülüğün parçasıdır.
+    Kur’an der ki: “Ey iman edenler, yükümlülüklerinizi yerine getirin.”
+    Bu, yalnızca bir cümle değildir. Bu, insanın kendine, Yaradan’a ve birbirine karşı borcudur.
+
+    Allah seni yarattı. Aklını verdi, kalbini titretti, seni yönlendiren işaretleri önüne serdi.
+    Sen de bunun karşılığında dürüst olacaksın, sözünde duracaksın, emanete hıyanet etmeyeceksin.
+    Çünkü ihanet, önce insanın kendi yüreğinde başlar.
+
+    Birinin elini sıkarsan, o artık bir sözdür.
+    Bir işe girersen, alın teri karşılığı haktır.
+    Bir topluluğa ait olursan, onun adaletine, düzenine katkın olacak.
+    Yalanla, suskunlukla, korkuyla yükümlülükten kaçarsan—Allah’tan değil, insandan kaçmış olursun.
+    Ve bil ki, sorumluluktan kaçarak çöle çekilip yalnız ibadet edenin kaçışı ibadet değildir; korkunun saklandığı yerdir.
+
+    Sadakat, dürüstlük, adalet… bunlar dinin değil, insan olmanın taşlarıdır.
+    Biri eksik olursa, bina yıkılır.
+
+    Ayet devam eder:
+    “Dört ayaklı hayvanlar size helâldir, ancak bazıları hariç.”
+    Yani nimet boldur ama ölçü vardır.
+    Helâlin sınırı, insanın nefsini dizginlediği yerdedir.
+    İhramlıyken av yasaktır; çünkü orası sığınaktır.
+    Kutsal bölge, yalnızca taş duvar değil, merhametin alanıdır.
+    Orada ne kuş ürker, ne ot ezilir.
+
+    Ve sonunda Allah buyurur:
+    “O, dilediğini emreder; çünkü hükmü hikmetle doludur.”
+    Yani her yasak, her emir bir dengeye dayanır.
+    Keyif yoktur bunda; adalet vardır, düzen vardır.
+
+    Bu ayet insana şunu hatırlatır:
+    İman, secdede başını eğmek değil sadece.
+    Eğilmek, birinin hakkına dokunmamakta da gizlidir.
+    İbadet, sözünü tutmakla başlar;
+    ve adaletin yanında durmakla tamamlanır.
+
+    Çünkü Allah’ın huzurunda en büyük dua, dürüst yaşamaktır.
+
     
-2. **Ey iman edenler! Allah’ın şiarlarına, haram/mübarek aya, kurban edilen hayvanlara, onları süsleyen gerdanlıklara ve lütuf ve rızık dileyerek ve Rablerinin hoşnutluğunu arayarak Beyt-i Haram’a sığınanlara karşı husumet etmeyin. Fakat Harem-i Haram’dan ve hacı elbisesinden kurtulduğunuz zaman avlanabilirsiniz ve bazı kimselerin sizi Mescid-i Haram’dan uzaklaştıran kinlerinin sizi haddi aşmaya ve kendi açınızdan düşmanlığa sevk etmesine izin vermeyin. İyilik ve takva konusunda yardımlaşın, günah ve kin konusunda yardımlaşmayın: Allah’tan korkun. Çünkü Allah’ın azabı çetindir.  **
+2. **Ey iman edenler! Allah’ın şiarlarına, haram/mübarek aya, kurban edilen hayvanlara, onları süsleyen gerdanlıklara ve lütuf ve rızık dileyerek ve Rablerinin hoşnutluğunu arayarak Beyt-i Haram’a sığınanlara karşı husumet etmeyin. Fakat Harem-i Haram’dan ve hacı elbisesinden kurtulduğunuz zaman avlanabilirsiniz ve bazı kimselerin sizi Mescid-i Haram’dan uzaklaştıran kinlerinin sizi haddi aşmaya ve kendi açınızdan düşmanlığa sevk etmesine izin vermeyin. İyilik ve takva konusunda yardımlaşın, günah ve kin konusunda yardımlaşmayın: Allah’tan korkun. Çünkü Allah’ın azabı çetindir.**
       
+    
+    
+    Ey insan,
+    Allah’ın işaretlerine el uzatma. Ne Hac’ın kutsal günlerine, ne o yola adanmış hayvanlara, ne de onların boynuna takılan gerdanlıklara. Çünkü onlar sadece taş, zaman, ya da hayvan değildir — hepsi bir inancın, bir teslimiyetin, bir sözün simgesidir.
+
+    Kutsal olanla alay etme. Çünkü kutsala saygı, insanın kendine saygısıdır.
+    Bir topluluk düşün: Beyt-i Haram’a yönelmiş, gönlünde rızık değil, rıza arayan bir kalabalık. Onlara el kaldırma, yollarını kesme. Çünkü onlar Allah’a yürürken senin önüne geçmen, senin kendi vicdanına engel olmandır.
+
+    İhramdan çıktığında av serbesttir. Yani hayat döner, dünya yine işini ister.
+    Ama bil ki, her yasak, her sınır, insanın kendi nefsine çekilmiş bir çizgidir.
+    Ve sakın… sakın, seni bir zamanlar kutsaldan alıkoyanların kiniyle dolma.
+    Kin, insanın kalbinde büyüyen kara bir ot gibidir — önce adaleti, sonra merhameti boğar.
+
+    Sana yapılan haksızlık, sana haddi aşma hakkı vermez.
+    Onlar seni engelledi diye, sen de onların yolunu kesemezsin.
+    Çünkü adalet, intikamla değil, sabırla ölçülür.
+    Müslüman, öfkesini dizginleyendir — çünkü dizginlenmeyen öfke, imanı yıkar.
+
+    İyilikte yardımlaş. Doğrulukta omuz ver.
+    Ama günaha, yalana, kini besleyen işlere el uzatma.
+    Birinin yanlışına ortak olan, o yanlışın yükünü de taşır.
+    Birinin kötülüğüne susan, kötülüğün ortağı olur.
+
+    Gerçek iman, kardeşinin elini tutmaktır.
+    Onun yıkıldığı yerde yanında durmaktır.
+    Kardeşin yükseldiğinde, içten sevinmektir.
+    İnananlar, ormandaki ağaçlar gibidir —
+    birinin gölgesi, diğerine serinlik verir;
+    kökleri birbirine geçmiştir, rüzgâr onları yıkamaz.
+
+    Ve en sonunda, Allah şöyle der:
+    “Takvadan ayrılmayın, çünkü Benim azabım çetindir.”
+    Bu söz, korkutmak için değil, uyandırmak içindir.
+    Çünkü Allah’tan korkmak, zulümden kaçmak, vicdanı diri tutmaktır.
+
+    Gerçek takva, sessiz bir dua değil;
+    haksızlık karşısında adaletle, öfke karşısında sabırla,
+    yalnızlık karşısında dayanışmayla cevap vermektir.
+
+    İman, taş duvarların içinde değil;
+    birbirine güvenen yüreklerin arasında yaşar.
+      
+    
+    
     İnananlar, bir dağın eteklerinde birleşen sular gibi, ortak bir amaç uğruna bir araya gelmelidir. Allah’ın taraftarları olarak, aynı çatı altında toplanıp, birbirlerine destek olmaları gerekir. Ayetler, açık bir şekilde, inananların hayırlı işlerde yardımlaşmalarını, birbirlerine destek olarak doğruluktan ayrılmamalarını emreder. Gerçek inananlar arasında, hayırlı işlerin gerçekleştirilmesi noktasında kıskançlık ya da haset olmaz.  
       
     Gerçek bir müslüman, kardeşi olarak gördüğü başka bir müslümanın başarılı, adaletli, dirayetli ve kabiliyetli olmasını ister. Onun yükselmesini, ilerlemesini arzular. Hak ve hukuk çerçevesinde, ona destek olur, arka çıkar. Bu, bir ormanın ağaçları gibidir. Her biri, diğerine gölge olur, kökleriyle birbirine kenetlenir, rüzgârlara birlikte direnir.  
       
     İnananlar da böyle olmalıdır. Birbirlerine destek olmalı, hayırlı işlerde yarışmalı, kıskançlık ve hasetten uzak durmalıdır. Çünkü gerçek inanç, kardeşliği, dayanışmayı, adaleti gerektirir. İnananlar, birbirlerinin yanında durdukça, Allah’ın rızasına daha da yaklaşır. Bu, bir nehrin denize ulaşması gibidir. Her bir damla, diğerine katılır, birlikte büyük bir güce dönüşür. İnananlar da böyle birleşmeli, birlikte hakikatin denizine ulaşmalıdır.  
-      
+
+
       
     
-3. **Size yemek için haram kılınanlar: Ölü et, kan, domuz eti ve Allah’tan başkası adına kesilenler, boğularak veya şiddetli bir darbeyle veya baş aşağı düşerek veya boynuzlanarak öldürülenler; kısmen vahşi bir hayvan tarafından yenenler; usulüne uygun olarak kesmeye gücünüz yetmedikçe taş sunaklarda kurban edilenlerdir; ayrıca oklarla çekilişle etin bölünmesi de haramdır: bu Allah’a saygısızlıktır. Bugün, inkâr edenler, sizin dininizden ümidlerini kestiler; onlardan korkmayın, Benden korkun. Bugün size dininizi kemale erdirdim, üzerinizdeki nimetimi tamamladım ve size din olarak İslam’ı seçtim. Ama kim, haddi aşmaya meyletmeden, açlıktan dolayı mecbur kalırsa, şüphesiz Allah, gerçekten çok bağışlayandır, çok merhamet edendir. ** 
+3. **Size yemek için haram kılınanlar: Ölü et, kan, domuz eti ve Allah’tan başkası adına kesilenler, boğularak veya şiddetli bir darbeyle veya baş aşağı düşerek veya boynuzlanarak öldürülenler; kısmen vahşi bir hayvan tarafından yenenler; usulüne uygun olarak kesmeye gücünüz yetmedikçe taş sunaklarda kurban edilenlerdir; ayrıca oklarla çekilişle etin bölünmesi de haramdır: bu Allah’a saygısızlıktır. Bugün, inkâr edenler, sizin dininizden ümidlerini kestiler; onlardan korkmayın, Benden korkun. Bugün size dininizi kemale erdirdim, üzerinizdeki nimetimi tamamladım ve size din olarak İslam’ı seçtim. Ama kim, haddi aşmaya meyletmeden, açlıktan dolayı mecbur kalırsa, şüphesiz Allah, gerçekten çok bağışlayandır, çok merhamet edendir.** 
       
       
       
@@ -61,7 +149,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     
-4. **Kendilerine yiyecek olarak neyin helâl kılındığını sana soruyorlar. De ki: İyi ve temiz olan her şey ve Allah’ın size emrettiği/buyurduğu şekilde yetiştirdiğiniz avcı hayvanların sizin için tuttuklarını yemeniz size helal kılındı, fakat üzerlerine Allah’ın adını anın ve Allah’tan korkun. Çünkü Allah hesabı çabuk görendir.  **
+4. **Kendilerine yiyecek olarak neyin helâl kılındığını sana soruyorlar. De ki: İyi ve temiz olan her şey ve Allah’ın size emrettiği/buyurduğu şekilde yetiştirdiğiniz avcı hayvanların sizin için tuttuklarını yemeniz size helal kılındı, fakat üzerlerine Allah’ın adını anın ve Allah’tan korkun. Çünkü Allah hesabı çabuk görendir.**
       
       
     Ayetler, insanların hayatını kolaylaştıran, onlara yol gösteren bir rehber gibidir. Avcılık konusunda da bu böyledir. Eğitilmiş köpekler, şahinler, doğanlar… Bu hayvanlar, insanlar için avlanır, yakaladıklarını tutar. Ayetler, bu tür eğitilmiş avcı hayvanların yakaladıklarının yenilebileceğine dikkat çeker. Bu, adeta doğanın insana bir lütfudur. Dağların, ovaların, ormanların içinde, insanla hayvan arasında kurulan bu kadim ilişki, Allah’ın izniyle şekillenir.  
@@ -71,21 +159,55 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnsanlar, peygambere sorular sordular, cevaplarını Kur’an’da buldular. Demek ki Allah, bu soruların açıklığa kavuşmasını diledi ve gönderdiği ayetlerle her şeyi aydınlığa kavuşturdu.  
       
     
-5. **Bugün size temiz ve güzel olan her şey helal kılındı. Kitap Ehli’nin yemeği size helâl, sizin yemeğiniz de onlara helâldir. Yalnızca iffetli mümin kadınlar değil, aynı zamanda sizden önce indirilmiş Kitap Ehli’nden iffetli kadınlar da, mehirlerini verdiğiniz ve iffeti arzuladığınız, fuhuş ve gizli entrikalar olmadığı takdirde size helâldir. Eğer İnsan/herhangi biri imanı reddederse, yaptığı iş boşa gider/meyvesizdir ve ahirette bütün manevî güzellikleri yitirenlerin saflarından olur.  **
+5. **Bugün size temiz ve güzel olan her şey helal kılındı. Kitap Ehli’nin yemeği size helâl, sizin yemeğiniz de onlara helâldir. Yalnızca iffetli mümin kadınlar değil, aynı zamanda sizden önce indirilmiş Kitap Ehli’nden iffetli kadınlar da, mehirlerini verdiğiniz ve iffeti arzuladığınız, fuhuş ve gizli entrikalar olmadığı takdirde size helâldir. Eğer İnsan/herhangi biri imanı reddederse, yaptığı iş boşa gider/meyvesizdir ve ahirette bütün manevî güzellikleri yitirenlerin saflarından olur.**
       
     
-6. **Ey iman edenler! Salata hazırlandığınız zaman yüzlerinizi, ellerinizi ve dirseklerinize kadar kollarınızı yıkayın. Başınızı suyla ovun/mesh edin; ve ayaklarınızı bileklere kadar mesh edin. Eğer cünüplük içindeyseniz, bütün vücudunuzu yıkayın. Fakat hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz bir toprak veya kum alın ve onunla ellerinizle yüzünüzü mesh edin. Allah size güçlük çıkarmak istemez, ancak sizi temizlemek ve üzerinizdeki nimetini tamamlamak ister ki şükredesiniz.  **
+6. **Ey iman edenler! Salata hazırlandığınız zaman yüzlerinizi, ellerinizi ve dirseklerinize kadar kollarınızı yıkayın. Başınızı suyla ovun/mesh edin; ve ayaklarınızı bileklere kadar mesh edin. Eğer cünüplük içindeyseniz, bütün vücudunuzu yıkayın. Fakat hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz bir toprak veya kum alın ve onunla ellerinizle yüzünüzü mesh edin. Allah size güçlük çıkarmak istemez, ancak sizi temizlemek ve üzerinizdeki nimetini tamamlamak ister ki şükredesiniz.**
       
-      
-    Din adına doğru bilinen yanlışların başında, Kur’an’ı tutmak ve okumak için abdestli olmanın şart olduğu inancı gelir. Öyle ki bu düşünce, sadece halk arasında değil, ilahiyat sahasında çalışan nice akademisyen arasında bile yerleşmiştir. Oysa bu konuda ne tek bir ayet vardır ne de kayda değer bir rivayet. Buna rağmen böylesine yaygın bir kabulün oluşması, insanı hayrete düşürür.  
-      
-    Oysa abdest, yalnızca namaz için emredilmiş bir hazırlıktır. Kur’an’da, namaza durmadan önce abdest alınması gerektiği açıkça bildirilmiş, nasıl alınacağı da ayrıntısıyla tarif edilmiştir. Bundan ötesi, insanın kendi inancı ve alışkanlığıdır.  
-      
-    Şayet Kur’an’ı tutmak ya da okumak için de abdestli olunması gerekli olsaydı Allah için bunun belirtilmesi zor değildir.  
-      
-    İnsanların din üzerine yaptığı ilaveler, Allah’ın saf ve berrak mesajını bulandırıyor. Din, adeta bir nehrin yatağından çıkarılıp, kendi elleriyle çamurlu sulara dönüştürülüyor. Bu ilaveler, hem dini tanınmaz hale getiriyor hem de kendi içinde çelişkiler yaratıyor. Oysa inananlar için bağlayıcı olan, mezheplerin görüşleri değil, Allah’ın ayetleridir. Kur’an, her şeyi açıkça ortaya koyar. Abdest konusunda da durum böyledir. Kur’an’a göre abdesti bozan şeyler, tuvalet ihtiyacının giderilmesi ve cinsel ilişkiye girilmesidir. Bunların dışında, insanların uydurduğu sayısız detay, dini karmaşık hale getirmekten başka bir işe yaramaz.  
-      
-    Allah’ın dini, sadedir, anlaşılırdır. İnsanların ona yaptığı eklemeler ise bu sadeliği bozar, dini anlaşılmaz bir hale sokar. İnananlar, mezheplerin görüşlerine değil, Kur’an’ın açık hükümlerine tabi olmalıdır. Çünkü gerçek rehber, Allah’ın kelamıdır. Abdest gibi ibadetlerde de Kur’an’ın belirlediği sınırlar dışına çıkmak, dini zorlaştırmaktan başka bir şey değildir. Allah’ın dinini, insanların ekledikleriyle değil, asıl kaynağından öğrenmek gerekir.  
+    Allah senin önüne zor bir din koymadı. Temizlik dedi, sade dedi, kolay dedi.
+    Ama insan, Allah’ın kolayını bırakıp kendi zorunu icat etti. 
+
+    Namaza kalktığında yüzünü, ellerini yıka. Başını mesh et, ayaklarını bileklerine kadar ov.
+    Cünüpsen, tüm bedenini yıka.
+    Ama hasta isen, yolda isen, su bulamıyorsan—toprağa elini sür, yüzünü mesh et.
+    Hepsi bu.
+    Ne eksik, ne fazla.
+
+    Allah, senden zorluk değil, bilinç ister.
+    Temizliğin özünü, suyun dokunuşunu, toprağın kokusunu hatırlamanı ister.
+    Çünkü abdest, sadece bir yıkanma değildir; insanın kendini yeniden fark etmesidir.
+    Su, bedeni arındırır ama niyet kalbi temizler.
+
+    Sonra bakarsın ki, insanlar Allah’ın koymadığı şartları birbirine zincir etmiş:
+    “Kur’an’a dokunmak için abdest gerekir,” der biri.
+    “Abdestsiz okuma, günah olur,” der bir diğeri.
+    Oysa Kur’an’da bunun adı bile geçmez.
+    Bu konuda ne tek bir ayet vardır ne de kayda değer bir rivayet.
+    Şayet Kur’an’ı tutmak ya da okumak için de abdestli olunması gerekli olsaydı Allah bunu belirtirdi.
+
+    Ama insanlar kendi elleriyle kutsalın üstüne perde örer, sonra da o perdenin arkasında kaybolurlar.
+
+    Din, Allah’ın söylediği kadardır; fazlası insanın kibridir.
+    Kimi hükmü ağırlaştırır, kimi kolayını küçümser.
+    Böylece Allah’ın indirdiği berrak su, bulanık bir gölete döner.
+
+    Kur’an’ın söylediğini işit. Onun suskun kaldığı yerde sen de sus.
+    Çünkü din, insanın Allah’a kendi yorumunu değil, kendi teslimiyetini sunmasıdır.
+    Abdest, temizliğin sembolüdür; zorun değil, kolayın adıdır.
+
+    Allah senin elini, yüzünü yıkamanı ister —
+    kalbini yormamanı, inancını taş gibi katılaştırmamanı ister.
+    Çünkü O, senin yükünü hafifletmek, nimetini tamamlamak ister.
+    Sen  şükret diye.
+
+    İlaveler, hem dini tanınmaz hale getiriyor hem de kendi içinde çelişkiler yaratıyor.
+    Bağlayıcı olan, mezheplerin görüşleri değil, Allah’ın ayetleridir.
+
+    Allah’ın dini, sadedir, anlaşılırdır. 
+    İnsanların ona yaptığı eklemeler ise bu sadeliği bozar, dini anlaşılmaz bir hale sokar. 
+    İnananlar, mezheplerin görüşlerine değil, Kur’an’ın açık hükümlerine tabi olmalıdır. 
+    Çünkü gerçek rehber, Allah’ın kelamıdır. 
+    Allah’ın dinini, asıl kaynağından öğrenmek gerekir.  
       
       
     

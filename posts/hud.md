@@ -121,7 +121,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 113. Zulmedenlere meyletmeyin, yoksa sizi ateş yakalar. Sizin için Allah’tan başka velileriniz yoktur ve size yardım da edilmeyecektir.
 114. Gündüzün iki tarafında ve gecenin yaklaştığı vakit salatı ikame et: İyi olan bu şeyler kötü olanları kaldırır: Rablerini zikredenlere şu hatırlanacak söz olsun:
 115. Sabırlı ol; Çünkü Allah, salihlerin mükâfatını zayi etmeyecektir.
-116. Niçin sizden önceki nesillerde sağduyulu kişiler, insanları yeryüzünde bozgunculuktan men etmiyorlardı – içlerinden zarardan koruduğumuz pek azı dışında? Fakat zalimler, hayatın kendilerine bahşedilen nimetlerinin tadını çıkarma peşinde koştular ve günahta ısrar ettiler.
+116. Niçin sizden önceki nesillerde akıl ve idrak sahibi/sağduyulu kişiler, insanları yeryüzünde bozgunculuktan men etmiyorlardı – içlerinden zarardan koruduğumuz pek azı dışında? Fakat zalimler, hayatın kendilerine bahşedilen nimetlerinin tadını çıkarma peşinde koştular ve günahta ısrar ettiler.
 117. Eğer üyeleri düzelecek olsa, Rabbin bir tek günahtan dolayı ümmetleri helâk edecek değildir.
 118. Rabbin dileseydi, insanları tek bir ümmet yapardı: fakat onlar çekişmekten geri durmazlar.
 119. Ancak Rabbinin kendilerine rahmet ihsan ettiği kimseler müstesna, onları bunun için yarattı ve Rabbinin şu sözü yerine gelmiştir: “Cehennemi cinlerden ve insanlardan topluca dolduracağım.”

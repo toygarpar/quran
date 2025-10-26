@@ -310,7 +310,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     İşte bir ayet ki, hem zamanın yükünü taşır hem insanın vicdanına dokunur. Yoksulun, eli dar olanın, gönlü sıkışanın hâline bakar da, ona yol açar. Özgür bir kadınla evlenmeye gücü yetmeyen kul için, Allah bir kapı aralar. Der ki: “Sahip olduklarınızdan, yani o savaşın, o kargaşanın, o esaretin içinden size düşen, ama yine de iman etmiş kadınlarla evlenin.”
 
-    Ama bu öyle kolay bir iş değildir. “İman etmiş olacak,” diyor Allah. Çünkü iman, insanı insan eden cevherdir. Ve ardından ekliyor: “Siz birbirinizdensiniz.” Ne demek bu? Demek ki kimse kimseden üstün değil. Ne özgürlük, ne kölelik insanın özünden bir şey eksiltmez. Hepimiz aynı topraktanız. Aynı gökyüzünün altındayız.
+    Ama bu öyle kolay bir iş değildir. “İman etmiş olacak,” diyor Allah. Çünkü iman, insanı insan eden cevherdir. Ve ardından ekliyor: “Siz birbirinizdensiniz.” Ne demek bu? Demek ki kimse kimseden üstün değil. Ne özgürlük, ne modern kölelik insanın özünden bir şey eksiltmez. Hepimiz aynı topraktanız. Aynı gökyüzünün altındayız.
 
     Evlenirken onun gönlünü alın. Mal diye değil, insan diye görün onu. Ona çeyizini verin; ama pazarlık eder gibi değil, gönülden, hürmetle. O kadın iffetiyle yaşamalı. Gizli işlere bulaşmamalı. Şehvetle değil, insan onuruyla yürümeli bu yol. Eğer bir hata ederse de, cezası, toplumun şartları gözetilerek daha hafif olur. Çünkü onun yükü zaten ağırdır.
 
@@ -332,27 +332,27 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 29. **Ey iman edenler! Mallarınızı kendi aranızda boş yere yemeyin: Ama aranızda alışveriş ve karşılıklı iyi niyetle/rızaya dayanan ticaret ve alışveriş olsun: Kendinizi ne öldürün ne de yok edin: çünkü Allah size karşı çok merhametlidir!**
 
-    Ey insan, ey aç kalmış kardeşim, ey mal peşinde koşarken insanlığını düşüren dostum! Kulak ver şimdi. Allah diyor ki: “Mallarınızı aranızda batıl yollarla yemeyin.”
+    Ey insan, ey aç kalmış kardeşim, ey mal peşinde koşarken insanlığını kaybeden dostum! Kulak ver şimdi. Allah diyor ki: “Mallarınızı aranızda batıl yollarla yemeyin.”
 
     Yani ne demek bu? Haksızlıkla, yalanla, dolanla, rüşvetle, torpille, kul hakkıyla bir lokma bile yutma. Çünkü o lokma, bir çocuğun rızkı olabilir. Bir kadının sütünden, bir işçinin nasırından, bir öğrencinin defterinden eksilmiş olabilir. Yeme! Allah’ın verdiği malı, alın teriyle alın. Zorla değil. Aldatmayla değil. Helalle.
 
-    Diyor ki: “Karşılıklı rızaya dayanan alışveriş yapın.” Rıza nedir bilir misin? Bir annenin, çocuğuna verdiği ekmeği, içi rahat verişidir. İşte öyle olacak alışverişin. Kandırmadan, ezmeden, hakkını vererek.
+    Diyor ki: “Karşılıklı rızaya dayanan alışveriş yapın.” Rıza nedir bilir misin? Bir annenin, çocuğuna verdiği ekmek gibi, için rahat olarak veriştir. İşte öyle olacak alışverişin. Kandırmadan, ezmeden, hakkını vererek.
 
     Ve sonra asıl acı kısım gelir:
     "Kendinizi öldürmeyin. Birbirinizi de."
     Bunun adı, yalnızca bıçakla ya da kurşunla olmaz. Bir adamı aç bırakmak, işsiz bırakmak, umutsuz bırakmak da öldürmektir. Taksit taksit, yavaş yavaş…
-    Her sabah işe giden bir babaya hakkını vermemek, onun çocuklarının gözlerini karartmaktır.
+    Her sabah işe giden bir babaya hakkını vermemek, onun çocuklarının geleceğini karartmaktır.
     Bir kadının emeğini görmezden gelmek, onu yok saymaktır.
-    Gençlerin hayalini çalmak, kendi ellerinle geleceği gömmektir.
+    Gençlerin hayalini çalmak, kendi ellerinle hepimizin geleceğini gömmektir.
 
     Allah diyor ki: "Ben size merhametliyim."
     O zaman sen de ol. Sen de kardeşine merhametli ol. Komşunun ekmeğini çalmadan yaşa. Zengine dalkavuk, yoksula cellât olma. Mallarınızın, zamanınızın, gücünüzün emanet olduğunu bil. İsraf etme. Çünkü Allah israfdan nefret eder.
 
-    Kendine de merhamet et. İçindeki iyiliği tüketme. Nefretle beslenme. Çünkü kendini öldürmek, bazen ruhunu aç bırakmaktır. Vicdanını susturmaktır. Bir çocuğun gülüşünü umursamadan yaşamak, kendi ruhunu da öldürmektir.
+    Kendine de merhamet et. İçindeki iyiliği tüketme. Nefretle beslenme. Ruhunu aç bırakmak, kendini öldürmektir. Vicdanını susturmaktır. Bir çocuğun gülüşünü umursamadan yaşamak, kendi ruhunu da öldürmektir.
 
     Ve bil ki bu sözlerin sahibi Allah’tır.
     Sonsuz merhamet sahibi, her şeyi gören…
-    Sen şimdi malını sayarken, o senin kalbini tartar.
+    Sen şimdi malını sayarken, o senin kalbini/niyetini tartar.
     Bir tas çorbayla sınanırsın bazen, bir tokatla, bir imza ile.
     Ve gün gelir, her şeyin hesabı sorulur.
     İşte o gün, haklı olanın başı dik, batıl yiyenin dili tutulur.
@@ -360,16 +360,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Dolayısıyla bu ayet, modern dünyada yaşarken özellikle şunları düşünmemizi sağlar:
 
     Ekonomide etik: Kazanç sağlarken adalet, dürüstlük ve karşılıklı fayda ilkelerini benimsemek.
-    Kişisel sorumluluk: Zamanımızı, paranızı, enerjimizi nasıl kullandığımızı sorgulamak.
+    Kişisel sorumluluk: Zamanımızı, paramızı, enerjimizi nasıl kullandığımızı sorgulamak.
     Toplumsal barış: Şiddetin her türlüsünden kaçınmak, sevgi ve anlayışla iletişim kurmak.
-    Merhamet ve vicdan: Allah’ın bize sunduğu hayatı, O’nun merhametinden örnek alarak başkalarıyla da merhametle yaşamak.
+    Merhamet ve vicdan: Allah’ın bize sunduğu hayatı, O’nun merhametinden örnek alarak başkalarıyla da merhamet içinde/bağlamında yaşamak.
 
 
-    a. "Malları batıl yollarla yememek" – Emanete Saygı ve İsraf Karşısı Duruş
-    “Allah’ın verdiği rızık” olarak görebileceğimiz mallarımız yalnızca kendi özel varlığımıza ait olanlar değil; emanet olarak elimize geçen her şeyi kapsar: başkalarının parası, doğa kaynakları, zaman, yetenekler… Bu ayet bize, bu malları israf etmemeyi, adaletsizce tüketmemeyi ve emin olunan yerden sapmamayı öğütler.
+    a. "Malları batıl yollarla yememek" – Emanete Saygı ve İsrafa Karşı Duruş
+    “Allah’ın verdiği rızık” olarak görebileceğimiz mallarımız yalnızca kendi özel varlığımıza ait olanlar değil; emanet olarak elimize geçen her şeyi kapsar: başkalarının parası, doğa kaynakları, zaman, yetenekler… Bu ayet bize, bu malları israf etmemeyi, adaletsizce tüketmemeyi ve emin olunan yerden/yoldan sapmamayı öğütler.
 
-    İsraf , Allah’ın insanlara verdiği nimetleri gereksiz yere harcamaktır.
-    Emaneti kötü kullanmak ,güvenle bırakılan şeylere zarar vermek ya da onları kişisel çıkar için istismar etmektir.
+    İsraf, Allah’ın insanlara verdiği nimetleri gereksiz yere harcamaktır.
+    Emaneti kötü kullanmak ,güvenle emanet bırakılan şeylere zarar vermek ya da onları kişisel çıkar için istismar etmektir.
     Burada vurgu, ahlaki sorumluluk üzerine: İnsanlar arasında adil ve dürüst ilişkiler kurabilmek için mal mülk konusunda bilinçli davranmalıyız.
 
     b. Ticaret ve Alışverişte Rıza Esası – Ekonomik Ahlak ve Kalkınma
@@ -390,7 +390,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     d. Allah’ın Merhameti – İnsan Olarak Sorumluluğumuzun Temeli
     Sonuçta tüm bu öğütlerin altında yatan büyük tema, Allah’ın evrensel merhametidir. 
 
-    Biz insanlar, birer emanetçiyiz, birer sorumluyuz.
+    Biz insanlar, Allah'ın yaratıklarıyız, birer emanetçiyiz, birer sorumluyuz.
     Allah'ın merhameti bizim iyiliğimize yöneliktir; o yüzden biz de başkalarına karşı merhametli olmalı, şiddetten uzak durmalı, adaleti sağlamak için çalışmalıyız.
     Kardeşimizi, komşumuzu, hatta düşmanımızı bile bir “Allah'ın yaratığı” olarak görmek, ona zarar vermenin aslında O'nun merhametine karşı gelmek olduğunu fark etmektir.
     
@@ -405,11 +405,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 31. **Eğer ancak size yasaklanan şeylerin en çirkininden kaçınırsanız, içinizdeki bütün kötülükleri üzerinizden çıkarır ve sizi şerefli bir kapıya koyarız/kabul ederiz.**
 
 
-32. **Ve Allah’ın kiminize kiminizden daha fazla lütufta bulunduğu /cömertçe bahşettiği  şeylere asla tamah etmeyin/göz dikneyin: Erkeklere kazandıklarından nasip verilir, kadınlara da kazandıklarından: Ama Allah’ın lütfundan isteyin. Çünkü Allah, her şeyi hakkıyla bilendir.**
+32. **Ve Allah’ın kiminize kiminizden daha fazla lütufta bulunduğu /cömertçe bahşettiği  şeylere asla tamah etmeyin/göz dikmeyin: Erkeklere kazandıklarından nasip verilir, kadınlara da kazandıklarından: Ama Allah’ın lütfundan isteyin. Çünkü Allah, her şeyi hakkıyla bilendir.**
 
 
     Bak şimdi, Allah diyor ki:
-    “Başkasının elindekine göz dikme. Senin olanla yetin. Lütuf mu istersin? O'ndan iste.”
+    “Başkasının elindekine göz dikme. Senin olanla yetin. Lütuf mu istiyorsun? O'ndan iste.”
 
     İnsan var ya, gözü doymuyor. Komşunun buğdayı daha beyaz, onun ineği daha sütlü, onun nasibi daha bereketli diye içi içini yiyor. Ama bilmiyor ki her nimetin bir yükü var. Her nasibin bir sınavı...
 
@@ -432,21 +432,21 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve sonra Allah seslenir:
     “Lütuf istiyorsan, benden iste.”
     Gitme başkasının bahçesine. Senin toprağın neyse orada çiçek açtır.
-    Komşunun üzümünden şarap hayal etme, kendi incirinden helva yap.
-    Yüreğinin taşını, sabırla, dua ile yoğur.
+    Komşunun üzümünden şerbet hayal etme, kendi unundan helva yap.
+    Yüreğini, sabırla, dua ile yoğur.
     Çünkü O seni senden iyi bilir.
 
     Bir de şunu unutma:
-    Kimi var ki saraylarda yaşar ama geceleri gözünü tavana diker.
+    Kimi var ki saraylarda yaşar ama bütün gece gözünü tavana diker.
     Kimi var ki kuru bir ekmeği ısırırken dua eder, huzurla uyur.
     Hangisi zengin? Hangisi nimet sahibi?
 
     İşte bunu ancak Allah bilir.
     Ve işte bu yüzden, insan kendine bakmalı.
-    İçindeki boşluğu başkalarının doluluğuyla ölçmemeli.
+    İçindeki boşluğu başkalarına bakarak ölçmemeli.
     Çünkü her nasip, sahibine yakışır. Her yük, taşıyanına...
 
-    a. Kıskançlık ve Tamahkarlık Karşısında İnançla Başa Çıkma
+    a. Kıskançlık ve Tamahkarlık Karşısında İnançla Mücadele
     Allah’ın insanlar arasında dağıttığı nimetler farklıdır. Kimi zengin doğar, kimi yetenekli, kimi bilgili, kimi sabırlı... Bu farklılıklar, hayatın doğal yapısıdır. Ancak burada vurgulanan şey şudur:
 
     Göz dikmek , yani başka insanların nimetlerine haset etmek ya da onları aşağılamak, içsel bir eksiklik hissinden kaynaklanır.
@@ -458,18 +458,18 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Allah’ın nimetleri sınırsızdır. Eğer bir şeyi hakça arzu ediyorsan, onu O’ndan istemekte hiçbir engel yoktur.
     Ancak önemli olan, bu isteğin kıskançlık ya da tamahkarlık temelli olmamasıdır. Gerçek dua, ihtiyaçtan gelir; gururdan değil.
-    Ayrıca dua, sadece Allah’a seslenme değildir; aynı zamanda kendimize karşı dürüstlük tür. Dua ettiğimizde, neden bu şeye ihtiyacımız olduğunu anlama fırsatı buluruz.
+    Ayrıca dua, sadece Allah’a seslenme değildir; aynı zamanda kendimize karşı dürüstlüktür. Dua ettiğimizde, neden bu şeye ihtiyacımız olduğunu anlama fırsatı buluruz.
 
     c. Eşitlik Değil, Adalet Vardır
     “Erkeklere kazandıklarından, kadınlara da kazandıklarından nasip vardır.” Buradaki mesaj çok önemlidir:
 
     Allah’ın adaleti, herkesi aynı şekilde değil , ama gerektiği kadarıyla ödüllendirir.
-    Kazandığımız şeyler, sadece maddi başarıyla değil; sabır, emek, niyet, fedakârlık gibi görünmeyen değerlerle de ölçülür.
-    İnsan gözüne eşit görünmeyen şeyler, göklerin hesabıyla dengeye oturmuş olabilir.
+    Kazandığımız şeyler, sadece maddi başarıyla değil; sabır, emek/efor, niyet, fedakârlık gibi görünmeyen değerlerle de ölçülür.
+    İnsan gözüne eşit görünmeyen şeyler, O'nun hesabıyla, İrade ve Planına dengeye oturmuştur.
     Bu yüzden ayet şöyle devam eder: “Çünkü Allah her şeyi hakkıyla bilendir.”
 
     d. Allah Bilir, Biz Bilmiyoruz
-    Bu ayet, aynı zamanda insanın sınırlı bilgisini kabul etmesi gerektiğini hatırlatır:
+    Bu ayet, aynı zamanda insanın sınırlı bilgi sahibi olduğunu kabul etmesi gerektiğini hatırlatır:
 
     Başkaları bizden daha mutlu, daha güçlü ya da daha başarılı görünse de, biz onların içinde bulunduğu tüm imtihanları bilmiyoruz.
     Belki o kişi, görünmeyen bir hastalığı ya da içsel bir çöküntüyü yaşarken, biz sadece dış görünüşüne odaklanıyoruz.
@@ -504,8 +504,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ana baba ardında kalır miras; kardeş, evlat, yetim, uzak-yakın akraba… Allah buyurur:
     “Her birine payını verin. O payın içinde alın teri, gözyaşı, beklenti vardır; sakın ola eksiltmeyin.”
 
-    Mevâli diyor Kur’an – öyle kuru bir kelime değil:
-    Kimi sana kan yakın, kimi yoldaş, kimi komşu; kimi zamanında ekmeğini bölüp seninle yemiş. Hepsi bir şekilde emanet. Ve Allah şahit: Payı kesen, hakkı yiyen, gözü kapalı zannedip mazlumu unutan, gün gelir o yediği lokmayı boğazında bulur.
+    Mevali diyor Kur’an – öyle kuru bir kelime değil:
+    Kimi sana kan yakın, kimi yoldaş, kimi komşu; kimi zamanında ekmeğini bölüp seninle yemiş. Hepsi bir şekilde emanet. Ve Allah şahit: Payı kesen, hakkı yiyen, mazlumu unutan, gün gelir o yediği lokmayı boğazında takılı bulur.
 
     Mirasın Ahlakı: Bağlara Saygı, Hakka Teslimiyet
 
@@ -527,13 +527,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 34. **Erkekler, Allah’ın birine diğerinden daha fazla güç vermesi ve kadınları imkanlarıyla desteklemeleri nedeniyle kadınların koruyucusu ve gözeticisidir. Bu nedenle salih kadınlar, samimi/içten olarak itaatkardırlar/sadıktırlar ve Allah’ın korumalarını istediği şeyleri yokluğunda korurlar. Sadakatsizlik ve edepsizliklerinden endişe ettiğiniz kadınlara önce öğüt verin, sonra yatakları paylaşmaktan vazgeçin ve son olarak bulundukları yerden ayırın, eğer itaate/sadakate dönerlerse onlara karşı bir eziyet aramayın/ onları rahatsız edecek vesileler aramayın. Çünkü Allah yücedir, hepinizden büyüktür.**
 
 
-    Erkek, kadının üstüne çıkmaz bu ayette. Elini kaldıramaz, kaşını çatamaz, onu hor göremez. Ayette söylenen şudur: Allah birine birinde olmayanı verdi diye, birine ötekine göre bir sorumluluk yüklemişse, bu kimseye üstünlük vermez. Aksine yük bindirir, vebal yükler. O yüzden erkek, evin geçimini sağlar; çalışır, didinir, harcar. Erkek ve Kadın birbirine sadık kalır; kocası yanındayken de yokken de namusunu, evini, insanlığını korur. Günümüzde kadınlar da çalışma hayatında artık rahatlıkla yer almaktadır. Her kendine düşen sorumluluğu yerine getirir.
+    Erkek, kadının üstüne çıkmaz bu ayette. Elini kaldıramaz, kaşını çatamaz, onu hor göremez. Ayette söylenen şudur: Allah birine birinde olmayanı verdi diye, birine ötekine göre başka bir sorumluluk yüklemişse, bu kimseye üstünlük vermez. Aksine yük bindirir, vebal yükler. O yüzden erkek, evin geçimini sağlar; çalışır, didinir, harcar. Erkek ve Kadın birbirine sadık kalır; kocası yanındayken de yokken de namusunu, evini, insanlığını korur. Günümüzde kadınlar da çalışma hayatında artık rahatlıkla yer almaktadır. Her birey kendine düşen sorumluluğu yerine getirir.
 
     Salih kadın ve erkek denince akla gelen budur: Yalpa yapmaz, sağa sola bakmaz, kendine de eşine de ihanet etmez. Evi ayakta tutmak bir kişinin işi değil, iki insanın alın teridir.
 
-    Peki evde bir çözülme varsa, işler sarpa sardıysa ne yapılır? Ayet bunun da yolunu gösterir. Önce konuşacaksın. Yani bağırıp çağırmak değil, sövmek değil. Oturup, insanca, gönül diliyle anlatacaksın. Olmadı mı? Biraz uzak duracaksın. Soğusun. Herkes nerede yanlış yaptığını düşünsün. Yine fayda etmediyse, ayette geçen o kelimeyi herkes başka yere çeker: “Vadribuhunne.” Kimi dövün diye çevirir. Ama herkesin unuttuğu bir şey var: Resul, bir kadına el kaldırmamış bir adamdır. Vurmamış, sövmemiş, aşağılamamıştır. O yüzden burada anlatılan, kadını incitmek değil, gerekirse bir süre ayrı düşmek, düşünmek, sil baştan yapmaktır. Kullanılan kelimenin 17 tane değişik anlamı vardır ama nedense kadını aşağı gören bazıları/müşrikler bağlamından çıkarıp, aklı işletmeden, akıl ve mantık süzgecinden geçirmeden kadını dövün diye çevirmektedir.
+    Peki evde bir çözülme varsa, işler sarpa sardıysa ne yapılır? Ayet bunun da yolunu gösterir. Önce konuşacaksın. Yani bağırıp çağırmak değil, sövmek değil. Oturup, insanca, gönül diliyle anlatacaksın. Olmadı mı? Biraz uzak duracaksın. Soğusun. Herkes nerede yanlış yaptığını düşünsün. Yine fayda etmediyse, ayette geçen o kelimeyi herkes başka yere çeker: “Vadribuhunne.” Kimi kötü niyetliler dövün diye çevirir. Ama herkesin unuttuğu bir şey var: Resul, bir kadına el kaldırmamış bir adamdır. Vurmamış, sövmemiş, aşağılamamıştır. O yüzden burada anlatılan, kadını incitmek değil, gerekirse bir süre ayrı düşmek, düşünmek, sil baştan yapmaktır. Kullanılan kelimenin 17 tane değişik anlamı vardır ama nedense kadını aşağı gören bazıları/müşrikler bağlamından çıkarıp, aklı işletmeden, akıl ve mantık süzgecinden geçirmeden kadını dövün diye çevirmektedir.
 
-    Ama her şey denendi de olmadıysa… O zaman iki aileden birer hakem gelir. İkisi de bilir kendi tarafının huyunu, ahlakını, geçmişini. Amaç düşman yaratmak değil, yuva kurtarmaktır. Herkes “boşanın” diye değil, “barışın” diye masaya oturur. Çünkü Allah her şeyi bilir, kalpleri de niyetleri de görür.
+    Ama her şey denendi de olmadıysa… O zaman iki aileden birer hakem gelir. İkisi de bilir kendi tarafının huyunu, ahlakını, geçmişini. Amaç düşman yaratmak değil, yuva kurtarmaktır. Herkes “boşanma için değil, barış için masaya oturur. Çünkü Allah her şeyi bilir, kalpleri de niyetleri de görür.
 
     Şunu unutma: Kadın da insan, erkek de insan. Kimse kimsenin sahibi değil. Aile, biri yönetiyor öteki boyun eğiyor diye yürümez. Aile, biri susuyor öteki bağırıyor diye ayakta kalmaz. Aile dediğin, adaletle, merhametle, sabırla yürür.
 
@@ -560,7 +560,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Aile İçi Sorunlar İçin: Üç Aşamalı Bir Çözüm
     "Sadakatsizlik ve edepsizliklerinden endişe ettiğiniz kadınlara önce öğüt verin, sonra yatakları paylaşmaktan vazgeçin ve son olarak bulundukları yerden ayırın..."
-    (Qur'an, 4:34) 
+    (Nisa 34) 
 
     Bu ayet, eşler arasındaki sorunların çözümü için üç aşamalı bir rehber sunar . Bu yöntem, hem dini hem de insanî bir yaklaşımla yapılandırılmıştır.
 
@@ -568,7 +568,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Sorunun çözümü her zaman açık iletişimle başlar. Eşin hatalarını nazikçe dile getirmek, onu yargılamadan bilgilendirmek, ilk adım olmalıdır.
 
     Bu aşama, saygı ve anlayış temelli bir yaklaşımdır.
-    Kavga, öfke veya alayla değil, vicdanı titretici bir üslup la başlamalıdır.
+    Kavga, öfke veya alayla değil, vicdanı titretici bir üslupla başlamalıdır.
 
     II. Yatak Paylaşımından Vazgeçmek
     Bu adım, fiziksel yakınlıktan uzak durarak duygusal mesafeyi belirtir.
@@ -576,7 +576,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Amaç, cezalandırmak değil , farkındalık yaratmaktır .
     Bu, bir tür uyarıdır: “Senin davranışın bizi uzaklaştırıyor.”
 
-    "Darabe" Kelimesinin Anlamı: Ayırma mı, Dövmek mi?
+    "Darabe" Kelimesinin Anlamı: Ayırmak mı, Dövmek mi?
     Burada geçen “vadribuhunne” kelimesi, genellikle “dövmek” olarak çevrilir. Ancak bu kelime Kur’an’da birçok farklı anlamda kullanılır:
     Kaçınmak
     Ayrılmak
@@ -615,12 +615,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Dargın Yüreklere Köprü
 
-    Evlilikte çatı çökmeye yüz tutar mı? Allah der ki:
+    Evlilikte çatı çökmeye yüz tuttuğunda Allah der ki:
     “Erkeğin ailesinden bir hakem, kadının ailesinden bir hakem salın. Dert neyse ortada konuşulsun.”
 
     Çünkü aile mahkeme değil; içinden sulh fışkıran bir toprak olsun. Hakemler sıcağı alan bir serinlik, kırığı saran bir mendil…
     Eğer barışmak isterlerse Allah yollarını birleştirir.
-    İster Latin kıyılarında olsun ister Anadolu bozkırında; hakemin dili merhamettir, adalettir. Sulh varken kin niye, dava niye?
+    İster Pasifik kıyılarında olsun ister Anadolu bozkırında; hakemin dili merhamettir, adalettir. Sulh varken kin niye, dava niye?
 
     Ailede Kriz Değil Çözüm Üretmek: Hakemlik Sistemi
 
@@ -630,7 +630,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Her iki aileden birer hakem… Tarafsız, dürüst ve barışa niyetli.
     Eğer yüreklerde hâlâ bir kıvılcım varsa, Allah o kıvılcımı ateşe değil, ışığa çevirir.
 
-    Pek çok Latin hukuk sistemi, bu yöntemi uygularken, Müslüman toplumların bu güzel emirden uzak durması, Kur’an’a yabancılaşmanın bir başka göstergesidir.
+    Pek çok hukuk sistemi, bu yöntemi uygularken, Müslüman toplumların bu güzel emirden uzak durması, Kur’an’a yabancılaşmanın bir başka göstergesidir.
 
 
 36. **Allah’a kulluk edin ve O’na hiçbir şeyi ortak koşmayın. Anaya, babaya, akrabaya, yetimlere, yoksullara, yakın komşuya, uzak komşuya, yanınızdaki arkadaşa, yolda kalmışa ve sağ ellerinizin altında bulunanlara iyilik edin. Çünkü Allah kibirli/küstah, büyüklük taslayanları/gururluları sevmez ;-**
@@ -640,13 +640,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Allah’a kulluk – bu işin temeli. Sonrası?
     Ana babaya saygı, akrabaya hürmet, yetime kol kanat.
-    Komşu yakın, komşu uzak; yoldan geçen, çölde susamış yolcu; kapında çalışan, tırnağıyla evini ayakta tutan… Hepsine iyilik.
+    Yakın komşu, uzak komşu; yoldan geçen, çölde susamış yolcu; kapında çalışan, tırnağıyla evini ayakta tutan… Hepsine iyilik.
 
-    Bu iyilik kuru bir “hissiyat” değil – ekmek bölmektir, ter paylaşmaktır.
-    Komşuna kap yemek kokusu gitti mi, kapıyı da tıkla, tabağın payını da bırak.
+    Bu iyilik kuru bir “hissiyat” değil – ekmek bölmektir, paylaşmaktır.
+    Komşuna kap yemek kokusu gitti mi, kapıyı da tıkla, payını da bırak.
     Yolda kalmışı gördün mü, “Kimse yok” deyip geçme; Allah var, Allah görüyor.
 
-    Çünkü bir zaman sen de yolda kalırsın. Bir gün senin evladın da kapı çalar. Ve Allah kibri, övünmeyi sevmez. Kibirli olma; gönlünü alçalt, elini yükselt.
+    Çünkü bir zaman gelir sen de yolda kalırsın. Bir gün senin evladın da kapı çalar. Ve Allah kibri, övünmeyi sevmez. Kibirli olma; gönlünü alçalt, elini yükselt.
 
     33-35-36. ayetler bir ortak gerçeği yankılar: Adaletle pay, sulhle hayat, iyilikle kul olmak.
     Allah her şeyi görüyor, her şeyi tartıyor.
@@ -655,8 +655,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve unutma: “Allah her şeye şahittir.”
 
     İyilikle Var Olmak: Sadece Kula Değil, Yaradan’a da Yakın Olmak
-
-    “Allah’a kulluk edin ve O’na hiçbir şeyi ortak koşmayın. Ana-babaya, akrabaya, yetimlere, ihtiyaç sahiplerine, yakın komşuya, uzak komşuya, yanınızdaki arkadaşa, yolda kalmışa ve sağ elinizin altında bulunanlara iyilik edin. Allah, kibirlenenleri ve övünenleri sevmez.”
 
     Bu ayet, Kur’an’ın en kapsamlı ahlak manifestolarından biridir.
     İman, sadece inanç değil; davranışla ispatlanmış bir sadakattir.
@@ -689,7 +687,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Cimriliğin kardeşidir.
     İnsan kendini büyük gördüğünde, kalbi kurur. O zaman hem vermez hem söylenir: “Bunlar hak etmez, ben çok çalıştım.” Hâlbuki Allah sana, çalıştığın için değil, rahmetiyle vermiştir. Unutma bunu.
 
-    Kimi insanlar başkasının yediği ekmeğe bile göz diker. Kendisi doyar ama komşusu aç kalınca içi rahat eder. Çünkü o, paylaşmanın insanı insan ettiğini bilmez. Çünkü onun kalbi taşlaşmış, gözü körleşmiştir.
+    Kimi insanlar başkasının yediği ekmeğe bile göz diker. Kendisi doyar ama komşusu aç kalsa bile içi rahat eder. Çünkü o, paylaşmanın insanı insan ettiğini bilmez. Çünkü onun kalbi taşlaşmış, gözü körleşmiştir.
 
     Ve Allah böylelerine ne der?
     Hor görülecekleri bir azap…
@@ -711,7 +709,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Yani cimrilik, paylaşmama kadar başkalarının da paylaşmasını engelleme niyetiyle birlikte yürür.
 
     b. Kibir ve Cimrilik – Allah’a Sevgi ve İman Eksikliğinin İki Yüzü
-    İşaret ettiğin gibi, kibir ve cimrilik aslında aynı kökten gelir:
+    Kibir ve cimrilik aslında aynı kökten gelir:
 
     Kibirli kişi , kendini diğerlerinden üstün görür.
     Cimri kişi , sahip olduklarıyla övünür ama başkalarıyla paylaşmaktan kaçınır.
@@ -747,7 +745,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 38. **Allah’a ve ahiret gününe inanmadıkları halde, insanlara gösteriş için mallarından harcayanlar: Kim şeytanı kendine yakın edinirse, o ne kötü yakındır!**
 
  
-    Kuran, duyan kulaklara, titreyen yüreklere, adaletin izini süren vicdanlara seslenir. Sadaka verirken, hayır işlerken, elinden malını çıkarırken, niyetini yüreğinde tart diyor bu kitap. Bir elin verdiğini öteki el bilmeyecek ya hani, işte öyle bir sır, öyle bir sessizlikle yap diyor iyiliği. Çünkü Allah, sadece yapılanı değil, niyetin derinini de bilir. Kalbin nereye döndüğünü, gözün kimi kolladığını, kulağın hangi övgüye aç olduğunu bilir.
+    Kuran, duyan kulaklara, titreyen yüreklere, adaletin izini süren vicdanlara seslenir. Sadaka verirken, hayır işlerken, elinden malını çıkarırken, niyetini yüreğinde tart diyor bu kitap. Bir elin verdiğini öteki el bilmeyecek ya hani, işte öyle bir sır, öyle bir sessizlikle yap diyor iyiliği. Çünkü Allah, sadece yapılanı değil, niyetin derinini de bilir. Kalbin nereye döndüğünü, gözün kimi,neyi kolladığını, kulağın hangi övgüye aç olduğunu bilir.
 
     "Ey iman edenler! Mallarını insanlara gösteriş için harcayan, fakat Allah’a ve ahiret gününe inanmayanlar gibi, cömertliğinizi hatırlatarak veya inciterek sadakanızın hayrını hükümsüz kılmayın/boşa çıkarmayın. Onlar, üzerinde biraz toprak olan sert, çorak bir kaya gibidirler: Üzerine şiddetli bir yağmur yağar ve onu sadece çıplak bir taş bırakır. Kazandıkları şeylerle hiçbir şey yapamayacaklar. Ve Allah imanı/inancı reddedenlere hidayet etmez." : Bakara 264
 
@@ -797,7 +795,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Eğer gerçekten Allah’a inanıyorsan, eğer Ahiret’e inanıyorsan, şu soruyu soramazsın: “Niye vereyim?”
     Çünkü sen Allah’ın kullarından bir kul, Onun verdiğini yine O’nun kullarıyla bölüşmekle yükümlü bir emanetçisin.
-    Vermezsen, eksilmezsin; ama vermezsen, içten eksilirsin.
+    Vermezsen, içten eksilirsin.
 
     Ve Allah…
     Senin neye ne kadar sahip olduğunu bilir.
