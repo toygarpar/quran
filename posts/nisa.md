@@ -866,7 +866,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kendi küçük iyiliklerimizin her biri, kalbimizin arınmasından kaynaklanır. Dünya hayatında bu iyiliklerin sonuçları, Allah’ın lütfu ve merhameti sayesinde katlanır ve çoğalır; ancak asıl büyük ödül, O’nun yakınlığından ve O’nun razı oluşundan gelir. Bu razı oluş bizi O’na daha çok yaklaştırır.
 
     a. İyilik Sadece Eylem Değildir, Niyettir
-    Her iyi söz, yardım ya da sessiz dua aslında kalbin temizliğinden doğar. İslam’da “amal” (fiil) kadar “niyet” de önemlidir. Çünkü:
+    Her iyi söz, yardım ya da sessiz dua aslında kalbin temizliğinden doğar. İslam’da “amel” (fiil) kadar “niyet” de önemlidir. Çünkü:
 
     Kalp temizse , elin yaptığı iş de temiz olur.
     Niyet doğruysa , en küçük iyilik dahi Allah katında büyüyebilir.
@@ -884,7 +884,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu razı oluş, insanı Allah’a yaklaştırır .
     Bu razı ile birlikte gelen manevi huzur ve mutluluk , bedensel tüm hazlardan üstündür.
     Ahirette Allah’ın rahmetine eren kişi, sonsuz mutluluğa kavuşmuş demektir.
-    Sonuç: Hayatımızda Yer Alan Her İyi Şey, Bir Bağıştır
+    Hayatımızda Yer Alan Her İyi Şey, Bir Bağıştır.
     Bu düşünce bize şu önemli mesajı veriyor:
 
     Bizim iyiliğimiz, O’nun bize sunduğu arınma imkanının sonucudur.
@@ -937,7 +937,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kalbimizi temizleyelim.
     Sözlerimizi, davranışlarımızı hesap edelim.
     Gözümüzden kaçan eksikliklerimizi fark edelim.
-    Allah’tan affı dileyelim, çünkü O, merhamet sahibidir.
+    Allah’tan af dileyelim, çünkü O, merhamet sahibidir.
 
 43. **Ey iman edenler! Salata, ne söylediğinizi anlayıncaya kadar kafanız buğulu bir şekilde, ne de cünüplük halinde, ancak yolculuk hali müstesna olarak, bütün vücudunuzu yıkayana dek yaklaşmayın. Eğer hasta veya yolculukta iseniz veya biriniz tabiat işlerinden gelmiş veya kadınlarla temas etmiş ve su bulamamışsanız, o halde kendinize temiz kum veya toprak alın ve onunla yüzlerinize ve ellerinize sürün. Çünkü Allah günahları siler ve tekrar tekrar bağışlar.**
 
@@ -954,7 +954,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Çünkü o secde, sıradan bir eğilme değil; o, senin boynunu gönüllü olarak kendi iradenle bükmendir.
 
     Yıkansın bedenin.
-    Kir sadece toprakta olmaz; derinin üstündeki değil, içinde taşıdığın da arınmalı.
+    Kir sadece toprakta olmaz; cildin üstündeki değil, içinde taşıdığın da arınmalı.
     Yola çıkmışsan, hastaysan, su yoksa…
     O zaman elini toprağa sür.
     Toprak anadır. Onda hayat da temizlik de vardır.
@@ -1000,6 +1000,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     "İşit!" demeleri gerekirken, lafı eğip büktüler; sinsi bir alaya çevirdiler.
     Sözde dua gibi, ama içinde kin gizliydi.
     Peygamber’i sözle aşağılamak için her fırsatı kullandılar.
+
+    "Ey İnançlılar! Raina! demeyin Unzurna! Deyin/Bizi davar gibi güt diye konuşmayın. Bize bak! Diye konuşun ve dinleyin." : Bakara 104
 
     "Ra’ina" dediler.
     Dıştan, “Bizi gözet” gibi dursa da, içinde aşağılayıcı bir çarpıtma vardı.
@@ -1094,7 +1096,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
  
     Allah, kendisine ortak koşanı bağışlamaz. Başka günahlar, dilerse bağışlanır. Ama bu, en ağır suçtur; hem Hak’ka, hem insana karşı işlenmiş en büyük zulümdür.
 
-    Nasıl ki bir devlette en büyük ihanet, başa ve ülkeye karşı işlenirse; manevi dünyada da en büyük ihanet, Allah’ın yanına bir başka kudret koymaktır. Bu, insanın kalbine ve ruhunun özüne atılmış bir zehir gibidir.
+    Nasıl ki bir devlette en büyük ihanet, ülkeye karşı işlenirse; manevi dünyada da en büyük ihanet, Allah’ın yanına bir başka kudret koymaktır. Bu, insanın kalbine ve ruhunun özüne atılmış bir zehir gibidir.
 
     Ama bir şey bilmeden, yanılarak yapılmışsa, sonra da insan, hatasını görüp pişman olmuşsa… işte o zaman kapı kapanmaz. Allah’ın merhameti engin, dönüş yolu açıktır.
 
@@ -1128,7 +1130,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Sonra, inkârcıya döner, “Sen bizden de doğru yoldasın” derler. Bu söz, hem kibir, hem alay, hem de hakikate ihanettir. Ellerindeki kitabın sesini susturmuş, yerine putların sesini koymuşlardır.
 
-    Medine’de vaktiyle böyleleri vardı. Peygamberin geldiğini bilirlerdi. Kitaplarından tanırlardı. Ama kıskançlıkları, hırsları, çıkar hesapları ağır bastı. Hatta putperestlerle omuz omuza verip Müslümanlara karşı savaştılar.
+    Medine’de vaktiyle böyleleri vardı. Peygamberin geldiğini bilirlerdi. Kitaplarından tanırlardı. Ama kıskançlıkları, hırsları, çıkar hesapları ağır bastı. Hatta müşriklerle omuz omuza verip Müslümanlara karşı savaştılar.
 
     Kitap sahibi olmak, tek başına insanı kurtarmaz. Kitabın hakkını vermeyen, kitabı sırtında bir yük gibi taşır. Gerçek yol, Allah’a teslimiyetledir. Batıla yönelenin adı ister “seçilmiş” olsun, ister “mümin”, akıbeti hüsrandır.
 
@@ -1146,7 +1148,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ama bu sadece bir tarih sahnesi değil—her çağın aynasıdır bu.
     Kim Allah’ı bırakır da yaratılmışa bel bağlarsa,
-    elinine geçeni değil, elinden gidenleri görür.
+    eline geçeni değil, elinden gidenleri görür.
 
     Çünkü yardım, kudret, nefes—hepsi Allah’tandır.
     O dilerse bir kelimeyle yüceltir,
@@ -1165,7 +1167,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     "O, Geceyi Gündüze katar, Gündüzü Geceye katar, Güneşi ve Ay’ı Kanununa boyun eğdirir: her biri belirlenmiş bir dönem boyunca kendi rotasını yürütür. İşte Rabbiniz Allah budur: Mülk O’nundur. O’ndan başka taptıklarınız ise hiçbir şeye güç yetiremezler." : Fatr 13
 
-    Hâkimiyet ve kudrette  payları mı var? 
+    Hâkimiyet ve kudrette payları mı var? 
     Bak hele:
     Yoldaşlarına, bir hurma çekirdeğinin içindeki o küçük oyuğu bile çok görürler.
     O oyuk ki, yenmez, içilmez—yok hükmündedir.
@@ -1265,7 +1267,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ey iman edenler, diyor ya o ayet…
     Allah’a itaat edin, Resûl’e itaat edin… ve “sizden olan emir sahiplerine.”
 
-    “Sizden olan” kısmı hep gözden kaçar. Oysa işin özü orada. “Sizden olan” demek, senin gibi ter dökmüş, aynı sofrada ekmek bölmüş, aynı acının içinde yanmış demek. Aynı yoksulluğu görmüş, aynı yağmurda ıslanmış. Yani senden kopmamış. Yani seninle aynı yükü taşımış.
+    **“Sizden olan”** kısmı hep gözden kaçar. Oysa işin özü orada. “Sizden olan” demek, senin gibi ter dökmüş, aynı sofrada ekmek bölmüş, aynı acının içinde yanmış demek. Aynı yoksulluğu görmüş, aynı yağmurda ıslanmış. Yani senden kopmamış. Yani seninle aynı yükü taşımış.
 
     Ama şimdi bir bak etrafına. “Emir sahipleri” dediğin kim? Halktan mı, milletin içinden mi? Yoksa yüksek duvarların ardında, halktan bihaber olanlardan mı? “Uli’l-emr” diye geçiyor kitapta — yani yetki sahipleri. Ama yetki nereden gelir? Milletin iradesinden/vicdanından mı, yoksa paradan mı, sandıktan mı, saraydan mı? 
 
@@ -1281,13 +1283,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ama ayet orada duruyor, hâlâ.
     Diyor ki: “Bir konuda anlaşamazsanız, onu Allah’a ve Resûl’e götürün.”
-    Yani eygamberin vicdanına ve tebliğ ettiği Kuran'ın adaletine, insanlığın özüne dönün.
-    Kimin doğru, kimin eğri olduğunu orada görün. Bu kitabın başka bie adı da Furkan'dır. 
+    Yani Peygamberin vicdanına ve tebliğ ettiği Kuran'ın adaletine, insanlığın özüne dönün.
+    Kimin doğru, kimin eğri olduğunu orada görün. Bu kitabın başka bir adı da Furkan'dır. 
     Çünkü orada çıkar yok, orada hesap yok. Sadece hak var.
 
     Belki de mesele bu kadar basit.
     İtaat edeceksen, adaleti gözeten insana et.
-    Yöneteceksen, gece yastığa başını koyduğunda halkın gözlerini hatırla.
+    Yöneteceksen, gece yastığa başını koyduğunda halkın gözlerini hatırla, derdini dert edin, sevincini paylaş.
     O gözler sana ya Allah razı olsun der, ya da lanetler.
 
     Bir gün o büyük hesap günü geldiğinde, ne koltuk kalacak, ne unvan, ne de “ben emir kuluydum” demek işe yarayacak.
