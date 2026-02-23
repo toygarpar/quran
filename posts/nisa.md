@@ -1337,15 +1337,15 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Allah onların kalplerinde ne olduğunu bilir. Sen bilmezsin, ama O bilir. Bu yüzden onlardan uzak dur; ama sadece yüz çevirip gitme. Sözünü söyle. Öyle bir söyle ki, kalplerinin en derinine insin, sessizliğin bile onları rahatsız etsin.
 
-    Bu adamlara güvenmek akılsızlıktır. Çünkü dilleri başka, içleri başkadır. Gülerken hesap yaparlar, dost görünürken tuzak kurarlar. Ama onlara öfkeyle saldırmak da çözüm değildir. Çünkü öfke, bazen insanı yakar; oysa onların içinde, hâlâ sönmemiş bir parça kalabilir. O parçayı öldürmek değil, uyandırmak gerekir.
+    Bu insanlara güvenmek akılsızlıktır. Çünkü dilleri başka, içleri başkadır. Gülerken hesap yaparlar, dost görünürken tuzak kurarlar. Ama onlara öfkeyle saldırmak da çözüm değildir. Çünkü öfke, bazen insanı yakar; oysa onların içinde, hâlâ sönmemiş bir parça kalabilir. O parçayı öldürmek değil, uyandırmak gerekir.
 
     Peygamber’in yolu da buydu: Onların oyunlarını bilirdi, ama kirlerine bulaşmazdı. Aralarına karışmazdı, ama onları umutsuzluğa da terk etmezdi. Sessizliği bile bir öğüt gibiydi. Konuştuğunda ise sözü sertti, ama adildi. Kırmak için değil, uyandırmak içindi.
 
     İki yüzlüyle yaşamak zordur. Her çağda çıkarlar. Mecliste, işte, evde, sokakta. Herkese “kardeşim” derler ama kimsenin yanında durmazlar. İnandıklarını söylerler, ama o inançtan eser yoktur hayatlarında. Onlara ne tam yaklaşılır, ne de tümden uzaklaşılmalıdır.
 
-    Yapılması gereken bellidir: Ne güven, ne de kin tut. Uzak dur ama onları unutma. Sözünü esirgeme ama öfkeye teslim olma. Çünkü bazen tek bir söz, bir insanın içindeki taş halibe gelmiş vicdanı çatlatır. Bazen senin bir cümlen, birinin hayatına ışık düşürür.
+    Yapılması gereken bellidir: Ne güven, ne de kin tut. Uzak dur ama onları unutma. Sözünü esirgeme ama öfkeye teslim olma. Çünkü bazen tek bir söz, bir insanın içindeki taş haline gelmiş vicdanı çatlatır. Bazen senin bir cümlen, birinin hayatına ışık düşürür.
 
-    Mesele onları yok etmek değil, içlerinde kaybolmuş olan insanı bulup çıkarmaktır. Gerçek mücadeleo insanın dışıyla değil, içiyle, ruhuyla, vicdanıyladır.
+    Mesele onları yok etmek değil, içlerinde kaybolmuş olan insanı bulup çıkarmaktır. Gerçek mücadele insanın dışıyla değil, içiyle, ruhuyla, vicdanıyladır.
     Ve hakikat, her zaman aynı şeyi söyler:
     İki yüzlüye sırtını dön, ama umuda değil.
     Çünkü Allah, kalplerin en gizli köşesinde bile neyin/nelerin hâlâ yaşadığını bilir.
@@ -1422,13 +1422,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu sofranın dört basamağı vardır:
 
-    Birincisi Peygamberlerdir. Onlar, doğrudan Allah’tan ilham alır; hem sözle, hem hâlle insanlığa yol gösterirler. Bu makam, İslam’da Muhammed Mustafa’ya (s.a.v.) aittir.
+    Birincisi Peygamberlerdir. Onlar, doğrudan Allah’tan ilham alır; hem sözle, hem örnekle/davranışla insanlığa yol gösterirler. Bu makam, İslam’da Muhammed Mustafa’ya (s.a.v.) aittir.
 
     İkincisi Dürüstlerdir. Onların mührü sadakattir. Hakka mallarıyla, canlarıyla, sözleriyle, elleriyle bağlıdırlar. Bu sıfatın en büyük örneği Ebu Bekir Sıddîk’tir.
 
     Üçüncüsü Şahitlerdir. Onlar, hakkı bazen kalemle, bazen dille, bazen de canlarıyla ilan ederler. Şahitlik kimi zaman şehadetle, kimi zaman sessiz bir direnişle olur.
 
-    Dördüncüsü Salihlerdir. Onlar gündelik işlerini herkes gibi yaparlar; ama her işlerinde adaleti, dürüstlüğü, merhameti unutmadan yaşarlar. Onlar bu büyük cemaatin omurgasıdır.
+    Dördüncüsü Salihlerdir. Onlar gündelik işlerini herkes gibi yaparlar; ama her işlerinde adaleti, dürüstlüğü, merhameti unutmadan yaşarlar. Onlar bu büyük koleftif ruhun omurgasıdır.
 
     Her biri yerinde durur ama hepsi birbirine bağlıdır.
     Kim bu yola girerse, ister sade bir insan olsun, ister büyük bir bilge, o da bu nurun parçası olur. Çünkü bu toplulukta asalet, makamla değil; niyetle ve amelle ölçülür.
@@ -1497,7 +1497,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ya şehit düşerler, ya zafer kazanırlar.
     İkisi de Allah katında büyük bir kazanımdır; ikisi de insanın onurunu yüceltir.
 
-    Bu herkesin işi değildir. Korkaklara, iki yüzlülere, kendi derisini kurtarmaya koşanlara göre değildir.
+    Bu herkesin işi değildir. Korkaklara, iki yüzlülere, kendi canını kurtarmaya koşanlara göre değildir.
     Allah yolunda savaşmak bir onurdur; onu anlayan, bu kısa hayatın geçiciliğini görür ve gerektiğinde her şeyi bırakır. Çünkü bilir: Bir anlık fedakârlık, ebedi bir ışığın karşılığıdır.
 
     Görünürde yenilgi mi var? Hayır. Gerçek savaşçı ya düşmanı yener, ya da şehitlik makamına çıkar — her iki hâl de zaferdir.
@@ -1537,7 +1537,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 77. **Ellerini savaştan çekmeleri, salatı düzenli ikame etmeleri ve düzenli olarak sadaka vermeleri emredilen kimseleri görmüyor musun? Onlara savaş emri verildiğinde zaman, işte! Onlardan bir kısmı, insanlardan Allah’tan korkmaları gerektiği kadar, hatta ondan daha fazla korkuyorlardı. Dediler ki: “Rabbimiz! Niçin bize savaşmayı emrettin? Bize yakın olan ecelimize kadar mühlet vermez misin?” De ki: “Dünyanın keyfi kısadır. Ahiret, iyilik yapanlar için daha hayırlıdır. En ufak bir haksızlığa asla uğramayacaksınız!**
 
 
-    Kimi zaman, “Elinizi savaştan çekin, önce namazı dosdoğru kılın, infak edin,” denildi onlara.
+    Kimi zaman, “Elinizi savaştan çekin, önce salatı dosdoğru ikame edin, infak edin,” denildi onlara.
     Ama savaş emri geldiğinde — bir kısmı insanlardan, Allah’tan korkmaları gibi gerektiğinden bile fazla korktu.
     Ve dediler ki:
     “Rabbimiz! Niçin bize savaş emrettin? Biraz daha mühlet verseydin ya, ömrümüz zaten kısa değil mi?”
@@ -1563,14 +1563,15 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     “Hayat zaten kısa. Niye tehlikeye atalım kendimizi?”
 
     İşte Allah bu zihniyeti tersine çeviriyor/alaşağı ediyor.
-    Çünkü (1) bu dünya geçicidir; bu hayat kısa, bu zevkler aldatıcıdır. Akıllı insan, geçicinin esiri olmaz.
+    Çünkü; 
+    (1) bu dünya geçicidir; bu hayat kısa, bu zevkler aldatıcıdır. Akıllı insan, geçicinin esiri olmaz.
     (2) Asıl olan, görevidir insanın. Görevini yapmayan, yaşasa da eksiktir.
     (3) Görev, bedel ister. Allah kimseye taşıyamayacağı yükü yüklemez.
     (4) Ölümden korkarak ölümden kaçamazsın. Nereye gitsen, o seni bulur. O halde neden onurlu bir dava uğruna yüzleşmeyesin?
 
     Kısacası:
     Korkak, uzun yaşasa da boş yaşar.
-    İmanlı insan, ölse de davasıyla yaşar,O2nun yolunda yürüdüğünden, kaybetmez - kazanır.
+    İmanlı insan, ölse de davasıyla yaşar,O'nun yolunda yürüdüğünden, kaybetmez - kazanır.
 
 78. **“Nerede olursanız olun, sağlam ve yüksek kulelerde olsanız bile ölüm sizi bulacaktır!” Onlara bir iyilik dokunsa “Bu Allah’tandır” derler, eğer bir kötülük olursa “Bu sendendir” derler ey Peygamber. De ki: “Hepsi Allah’tandır.” Ama bu insanlara ne oldu ki, tek bir gerçeği bile anlamıyorlar?**
 
@@ -1770,11 +1771,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Dünya bazen adaleti saklar gözden.
     İyilik görünürde kaybolmuş gibi görünür; kötülük başını alıp yürümüştür.
-    Ama sakın aldanma. Allah’ın işleyişi, o görünüşün ardındadır.
+    Ama sakın aldanma. Allah’ın İrade ve Planının işleyişi, o görünüşün ardındadır.
     Her iyilik kayıtlıdır; her ihanetin hesabı bellidir.
 
     Allah her şeye gücü yetendir.
-    Ne bir hayır hedefsiz kalır, ne bir kötülük cezasız.
+    Ne bir hayır kayıtsız kalır, ne bir kötülük cezasız.
 
     O hâlde:
     Ellerini hayıra uzat.
@@ -1844,7 +1845,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
     Onlar sizin imanınızı bırakıvermenizi, kendi gibi olmanızı isterler.
-    Ama sakın ha, onların arasından dostlar edinip güvenme — değilse, sizi içten bölüp biteceklerdir.
+    Ama sakın ha, onların arasından dostlar edinip güvenme —  sizi içten bölüp bitereceklerdir.
     Ta ki o kişi gerçekten Allah yoluna hicret etsin; yani samimi olsun, disipline razı olsun, yasak olandan yüz çevirsin.
     O zaman onun sadakati sınanmış olur; cemaatin bir ferdi gibi kabul edilebilir.
 
@@ -1853,7 +1854,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Öyle birini yakalarsanız, artık normal hukuk değil; savaşın acı gerçeği devreye girer. Çünkü o, sizin içinizde kötü niyetle kalarak dışarıya güç vermiştir.
 
     Savaş varken, disipline uymayan, emirlere riayet etmeyen kimse sadakatini ispatlamamıştır.
-    İhanetle gelenin, sözüyle içten oynayanın merhameti hak etmez; çünkü o, önce “bizden” diye güven çemberine girmiş, sonra da o güveni baltalamıştır.
+    İhanetle gelenin, sözüyle içten içten oynayan merhameti hak etmez; çünkü o, önce “bizden” diye güven çemberine girmiş, sonra da o güveni baltalamıştır.
 
     Güvenin sınavdan geçen; Hicret eden, teslim olan, yasak olandan yüz çeviren — kabul edilir.
     Ama içten içe düşmana çalışan, ihaneti planlayıp uygulayan — onunla dostluk kurma; onun hainliğine layık muamele yap.
@@ -1877,7 +1878,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Eğer sizinle aynı çizgide durmazlar, barış güvencesi vermezler, ellerini geri çekmezlerse—onları yakalayın, nerede bulursanız öldürün. Bu konuda size açık bir delil verilmiştir.
 
-    Kaçana merhamet gösterilebilir; ama bu iki yüzlüler için merhamet yeri yoktur. Onlar yüzünüze dost, arkanızdan düşmandır. Her fırsatta hıyanete, oyuna, ihanet planlarına sapanlardır.
+    Kaçana merhamet gösterilebilir; ama bu iki yüzlüler için merhametin yeri yoktur. Onlar yüzünüze dost, arkanızdan düşmandır. Her fırsatta hıyanete, oyuna, ihanet planlarına sapanlardır.
 
     Onlarla yaşayamazsınız; aranızda tutmak hem sizi hem davayı çökertir. Yönetim, güvenlik ve direnişin ölçüsü, böyle kimselere karşı sert olmaktır: onlara açık düşman muamelesi yapın.
 
@@ -1885,7 +1886,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Savaşta, ihanetini açık eden birini yakalayıp etkisiz hâle getirmek, meşru bir müdahaledir; çünkü o, önce “bizden” diye güven kazanmış, sonra sizi içeriden parçalamaya çalışmıştır.
 
-    İşte kural budur: Güvenin sınırı bellidir. İçten gelen ihanetin hesabı ağırdır. Onunla uzlaşma değil, korunma gerekir.
+    İşte kural budur: Güvenin sınırı bellidir. İçten gelen ihanetin hesabı ağırdır. Onunla uzlaşma değil, ondan korunma gerekir.
 
 
 92. **Asla bir mümin, bir mümini öldürmesin; Ancak yanlışlıkla olursa, tazminat gerekir: Bir kimse bir mümini öldürürse, bir mümin köle azat etmesi ve ölenin ailesine, onlar özgürce karşılıktan vazgeçmedikçe, tazminat vermesi farz kılınmıştır. Eğer ölen, sizinle savaş halinde olan bir kavimden olup da mü’min ise, mü’min bir köle azad etmesi yeterlidir. Eğer o, ittifak yaptığınız bir kavme mensupsa, ailesine tazminat ödenmeli ve mümin bir köle azat edilmelidir. Buna güç yetiremeyenlere, Allah’a tövbe etmeleri için iki ay peşpeşe oruç farz kılındı. Allah her şeyi bilir ve tamamen hikmet sahibidir.**
@@ -1911,10 +1912,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ama düşman safında olan biriyse, o zaman adaletin dengesi başka türlü kurulacak.
 
     Ve eğer kişi ne köle azat etmeye, ne de diyet vermeye gücü yetmezse,
-    işte o zaman Allah, ona içinden bir yol gösterir:
+    işte o zaman Allah, ona bir yol gösterir:
     İki ay boyunca oruç tutacak,
     açlıkla, susuzlukla, yalnızlıkla kendi vicdanının derinliğine inecek.
-    Her yudumda hatasını tadacak,
+    Her nefeste hatasını tadacak,
     her gün batımında affın kapısına bir adım daha yaklaşacak.
 
     Çünkü Allah, her şeyi bilir, her işi hikmetle ölçer.
@@ -1945,16 +1946,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bir mümini kasten öldürenin akıbeti bellidir: onun karşılığı cehennemdir; orada ebedî kalacak, Allah’ın gazabı ve lâneti onun üzerindedir. Bu, sadece insan kanunlarının hükmü değil; ruhun ahvali, ahiretin terazisidir — orada ağır bir ceza hazırlanmıştır.
 
-    Yeryüzünde yapılması gerekenler de açıktır: Kısas hükmü, adaletin çıpasıdır — bir canın bedeli, eşdeğer bir karşılıkla alınır. Ama akıl sahibi toplumlar, kan ağasını sürdürüp nesilleri birbirine düşürmek yerine, hakkaniyeti gözetirler: Eğer ölenin varisleri makul bir tazminatı kabul ederse, kan davası sonlandırılır. Bu yol, hayatı kurtarır; kin zincirini kırar; aklın ve merhametin yoludur.
+    Yeryüzünde yapılması gerekenler de açıktır: Kısas hükmü, adaletin çıpasıdır — bir canın bedeli, eşdeğer bir karşılıkla alınır. Ama akıl sahibi toplumlar, kan davasını sürdürüp nesilleri birbirine düşürmek yerine, hakkaniyeti gözetirler: Eğer ölenin varisleri makul bir tazminatı kabul ederse, kan davası sonlandırılır. Bu yol, hayat kurtarır; kin zincirini kırar; aklın ve merhametin yoludur.
 
-    Unutmayın: Kasten adam öldürmek sadece bir suç değil; ruhun çarpıklığıdır. Hem bu dünyada düzeni bozar, hem de öte tarafta sahibini tarifsiz bir azaba götürür. Adaletin terazisi hem hukuken hem de ahirette işleyecektir.
+    Unutmayın: Kasten adam öldürmek sadece bir suç değil; ruhun çarpıklığıdır. Hem bu dünyada düzeni bozar, hem de öte tarafta sahibini tarifsiz bir azaba götürür. Adaletin terazisi hem hukuken bu dünyada hem de ahirette işleyecektir.
 
 
 
 94. **Ey iman edenler! Allah yolunda sefere çıktığınız zaman iyice araştırın ve size selâm verene: “Sen mü’min değilsin!” demeyin, Dünya hayatının geçici mallarına göz dikerek: Allah katında kazançlar da, ganimetler de çoktur. Allah size lütufta bulununcaya kadar siz de bundan önce böyleydiniz: O halde iyice araştırın. Çünkü Allah, yaptıklarınızdan haberdardır.**
 
 
-    Unutmayın: Siz de bir zamanlar öyleydiniz. Şüpheyle bakılırdı size, hatalarınız vardı, eksikleriniz… Sonra Allah size merhamet etti, yolunuzu aydınlattı. O halde siz de başkalarına aceleyle hüküm vermeyin. İyice anlayın, araştırın. Çünkü Allah, sizin her sözünüzü, her niyetinizi, her adımınızı bilir.
+    Unutmayın: Siz de bir zamanlar öyleydiniz. Şüpheyle bakılırdı size, hatalarınız vardı, eksikleriniz… Sonra Allah size merhamet etti, yolunuzu aydınlattı. O halde siz de başkaları hakkında aceleyle hüküm vermeyin. İyice anlayın, araştırın. Çünkü Allah, sizin her sözünüzü, her niyetinizi, her adımınızı bilir.
 
     Bu ayet, savaş meydanında söylenmişti belki ama mânası her zamana/çağa uzanır.
     Kibir, insanın kalbini karartan en sinsi düşmandır. Kimi zaman kılıçla değil, bakışla öldürür insan; kimi zaman bir selamı almamakla.
@@ -2093,14 +2094,14 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Peygamber de böyle yapmıştır. Yolculuğa çıktığında, düşman olmasa bile, ibadetini kısa tutmuştur. Çünkü asıl maksat, ibadeti sürdürmek; ruhu diri, kalbi bağlı tutmaktır. Bu kolaylık, bir gevşeklik değil, kulluğun devamı içindir.
 
-    Kur’an, yolculuğun uzunluğunu, adım sayısını ya da mil hesabını vermez. Çünkü herkesin yolu başkadır. Kimi elli kilometrede yorgun düşer, kimi bin kilometrede bile dimdik yürür. Ölçü, mesafe değil; insanın gücü, halidir.
+    Kur’an, yolculuğun uzunluğunu, adım sayısını ya da kilometre hesabını vermez. Çünkü herkesin yolu başkadır. Kimi elli kilometrede yorgun düşer, kimi bin kilometrede bile dimdik yürür. Ölçü, mesafe değil; insanın gücü, halidir.
 
     İslam, işte bu yüzden diridir: İnsanı tanır. Ne buyruğu taş gibidir ne de ruhsuz bir kural. Yeryüzü geniştir, yollar uzun; ama Allah’ın kolaylığı, her adımda insanla beraberdir.
 
 102. **Ey Resul, sen onların yanında bulunup da onlara salat ikame ettirdiğin zaman, onlardan bir grup, silahlarını yanlarına alarak sizle birlikte salata dursunlar. Secdelerini bitirdiklerinde, arkada yerlerini alsınlar. Ve henüz salat ikame etmeyen diğer taraf gelsin seninle salatı ikame etsin – ve sizinle birlikte her türlü tedbiri alarak ve silahlarını kuşanarak salata dursunlar: Kâfirler, silahlarınızdan ve yüklerinizden gafil olsaydınız, bir anda üzerinize saldırmak isterlerdi. Fakat yağmurun size verdiği rahatsızlıktan veya hasta olmanızdan dolayı silahlarınızı kenara koyarsanız size bir vebal yoktur. Ama kendiniz için her türlü önlemi alın. Allah, kâfirler için alçaltıcı bir azap hazırlamıştır.**
 
     Buradan çıkarılacak ders sert ve yalındır: Mümin, hem Rabbinin emrine uyacak, hem de aklını kullanacaktır. Tevekkül, tedbirsizlik değildir.
-    Düşman hileyle, pusuyla üzerinize atılacaksa, imanını bir kenara bırakıp “Allah yeter” demek değil; imanla birlikte akılla tedbir almak gerekir.
+    Düşman hileyle, pusuyla üzerinize atılacaksa, imanla birlikte akılla tedbir almak gerekir.
 
     Ve biliniz: Kâfirlerin düşmanlığı açıktır; onların niyeti bellidir. Onlara karşı gözünüz açık olsun, ama imanınız da kapalı kalmasın.
     İbadet ve savunma—ikisini birden eksiksiz taşıyabilen, hem Rabbine karşı sorumluluğunu yerine getirmiş olur, hem de ümmetinin can ve malını korur.
@@ -2127,7 +2128,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ama sizde bir şey var ki, onlarda yok: Allah’tan umut.
     İşte o umut, sizi ayakta tutar. O umut, karanlığın ortasında bir kandil gibi yolunuzu aydınlatır.
 
-    Kâfirin yüreğinde o ışık yoktur. Onun mücadelesi yalnızca dünyalık bir hesap içindir; kaybetti mi, elindekini yitirdi mi, ruhu da söner. Müminin gücü ise, göğe bağlı bir köktendir — toprağa düşse bile, yeniden filiz verir.
+    Kâfirin yüreğinde o ışık yoktur. Onun mücadelesi yalnızca dünyalık bir hesap içindir; kaybetti mi, elindekini yitirdi mi, ruhu da söner. Müminin gücü ise, göğe bağlı bir köktendir — ne zaman düşse, yeniden filiz verir.
 
     Bu ayet der ki: direniş sadece kılıçla olmaz. Direniş, yürekle olur, sabırla olur, hakka olan inançla olur. Müminin cihadı yalnızca düşmana karşı değil; korkuya, umutsuzluğa, gevşekliğe karşıdır da.
 
@@ -2149,9 +2150,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kur’an Hakkı Ayakta Tutmak İçin İndirilmiştir.
 
-    Kur’an’ın indirilişi, bir toplumun vicdanı çürümeye yüz tuttuğunda, araya adaletin girmesi içindir. O, karanlığın ortasına bir nur gibi inmiştir. Her kelimesi hesaplı, her hükmü dengelidir. Bu hüküm, zengini kayırmaz, yoksulu ezmez. Anaya, babaya, yetime, borçluya, haklının hakkını verir. Faize karşı durur, zekâtla toplumu ayakta tutar. Kur’an’ın adaleti, kelimelerle değil, hayatla yazılmıştır.
+    Kur’an’ın indirilişi, bir toplumun vicdanı çürümeye yüz tuttuğunda, araya adaletin girmesi içindir. O, karanlığın ortasına bir nur gibi inmiştir. Her kelimesi hesaplı, her hükmü dengelidir. Bu hüküm, zengini kayırmaz, yoksulu ezmez. Anaya, babaya, yetime, borçluya, haklının hakkını verir. Faize karşı durur, zekâtla toplumu ayakta tutar. Kur’an’ın adaleti, hayata yazılmıştır.
 
-    Kur’an her detayı tek tek anlatmaz. Ama ilkeleri öyle sağlam koyar ki, değişen zamana rağmen özü asla sarsılmaz. İnsan aklıyla değil, Allah’ın hükmüyle yol bulur ama bu yolun taşlarını döşemek de insana düşer. Kur’an, insana düşünmeyi, danışmayı ve en doğru kararı vermeyi emreder.
+    Kur’an her detayı tek tek anlatmaz. Ama ilkeleri öyle sağlam koyar ki, değişen zamana rağmen özü asla sarsılmaz. İnsan aklıyla ve Allah’ın hükmüyle yol bulur ama bu yolun taşlarını döşemek de insana düşer. Kur’an, insana düşünmeyi, danışmayı ve en doğru kararı vermeyi emreder.
 
     Her hüküm, insana taşımayacağı kadar değil, yüklenebileceği kadar verilmiştir.
 
@@ -2159,7 +2160,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kur’an’ın adaleti, yalnız mahkemede değil, pazarda da, evde de, sokakta da yaşanır. Herkesin önünde terazisi vardır Allah’ın. Kimse kimseden üstün değildir. Soyla, servetle, unvanla kimse kendini başkasından yukarıda göremez.
 
-    Kur’an’ın adaleti, yalnız kanunda değil, insanın kalbinde yaşar.
+    Kur’an’ın adaleti, yalnız kanunda değil, içselleştirilmiş olarak insanın kalbinde yaşar.
 
     Kur’an’ın Hükmü, Zamanla Eskimez, Evrenseldir.
 
@@ -2223,7 +2224,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Allah’ın “kuşatması” sadece bilmek değildir; hâkimiyettir, kudrettir.
     Yani insan kötülük kursa da, o kötülük Allah’ın kudreti içindedir.
-    İstese engeller, isterse izin verir — çünkü her şey O’nun hikmetine bağlıdır.
+    İsterse engeller, isterse izin verir — çünkü her şey O’nun hikmetine bağlıdır.
     Bazen kötülüğe izin verir ki, onun içinden bir hayır doğsun;
     Bazen zulme mühlet verir ki, zalim kendi tuzağına düşsün.
 
@@ -2283,7 +2284,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kendi suçunu örtmek için bir başkasını ateşe atar.
     Bir günahla başlar, iftirayla büyür, zulme dönüşür.
     Ve sonunda kişi hem kendi yükünü taşır, hem de yalanın yükünü.
-    Çünkü adalet, sadece Allah’a aittir.
+    Adalet, sadece Allah’a aittir.
     Masumu suçlamak, O’nun düzenine meydan okumaktır.
 
     **Sonuç olarak:**
@@ -2352,7 +2353,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Sır, eğer adaletin ve sevginin üzerine kurulursa, o artık karanlık değil, nurdur.
 
 
-115. K**im kendisine doğru yol apaçık tebliğ edildikten sonra Peygambere karşı çıkar ve müminlere uygun olmayan bir yola uyarsa, onu gittiği yolda bırakır ve cehenneme sokarız, ne kötü bir sığınaktır o!**
+115. **Kim kendisine doğru yol apaçık tebliğ edildikten sonra Peygambere karşı çıkar ve müminlere uygun olmayan bir yola uyarsa, onu gittiği yolda bırakır ve cehenneme sokarız, ne kötü bir sığınaktır o!**
 
 
 116. **Allah, kendisine başka ilahlarla ortak koşma günahını bağışlamaz; Bunun dışındaki günahları dilediği şekilde bağışlar: Allah’a başka ilahları ortak koşan kimse, haktan çok, çok uzaklara sapmıştır.**
@@ -2384,7 +2385,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Allah ne erkektir ne dişi.
     O, yaratılmış olanın sınırlarının dışındadır.
-    O’nu bir kalıba sokmak, göğe taşla atış yapmaktır.
+    O’nu bir kalıba sokmak, göğe taş atmaktır.
     İnsanın eli göğe yetmez; ama kibri, oraya taş fırlatacak kadar delidir.
 
     Şeytan da böyle başlamadı mı?
@@ -2409,7 +2410,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kalplerinde hakikatin yerini kibir alınca, artık ilah da değişir, kıble de.
 
     Bu ayet, yalnızca eski Arap putçuluğuna değil,
-    bugünün insanına da iner —
+    bugünün insanına da seslenir —
     her çağın, her kalbin üstüne.
     Bir uyarıdır:
     Tanrını taşta değil, kalbinde ara.
@@ -2417,7 +2418,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
 
-118. Allah ona lânet etti, fakat o: “Senin kullarından belli bir pay alacağım” dedi.
+118. **Allah ona lânet etti, fakat o: “Senin kullarından belli bir pay alacağım” dedi.**
 
 
 119. **“Onları saptıracağım ve onlarda kuruntular/yanlış arzular yaratacağım; hayvanların kulaklarını kesmelerini ve Allah’ın yarattığı güzel tabiatı bozmalarını emredeceğim.” Kim Allah’ı bırakıp şeytanı dost edinirse, kesinlikle apaçık bir hüsrana uğramıştır.**
@@ -2438,7 +2439,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     O büyük gün geldiğinde, şeytan ardına bile bakmaz. "Ben karışmam," der. "Ben sadece söyledim, siz istediniz," der. İşte o zaman insan yalnız kalır. Ne dostu kalır, ne bahanesi...
 
-    Peki ne yapmalı? Kur’an açık yollar sunar. Allah’a sığınmalı. Zikretmeli. Kur’an okumalı. Dua etmeli. Kalbini diri tutmalı. Tövbe etmeli. Çünkü bu bir savaş değil, bu bir büyük mücadeledir: Cihad-ı Ekber. İnsanın kendi nefsine, vesveseye, yalana, riyaya karşı açtığı savaş.
+    Peki ne yapmalı? Kur’an açık yollar sunar. Allah’a sığınmalı. Zikretmeli. Kur’an okumalı. Dua etmeli. Kalbini diri tutmalı. Tövbe etmeli. Çünkü bu sadece basit bir savaş değil, en büyük mücadeledir: Cihad-ı Ekber. İnsanın kendi nefsine, vesveseye, yalana, riyaya karşı açtığı savaş.
 
     “Kim Allah’a sarılırsa, onun için korku yoktur.”
     İşte o zaman şeytan fısıldasa da ulaşamaz. O zaman insan düşmez, yolunu şaşırmaz. Allah’ı unutmayan, şeytanı da unutur. Gerçek kurtuluş, işte budur.
@@ -2457,7 +2458,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Mutluluk mu vaat etti? Haramın gölgesinde mi?
     İtibar mı vaat etti? Gururla, kibirle mi?
 
-    Kimi paranın, kimi şehvetin, kimi şöhretin ardına düşer. “Kimse bilmez,” der. “Yapsan ne olur?” der. “Sen bir kere yaşarsın,” der. Ama insan o bir kereyi kendine harcar, ömrünü karartır, ahiretini yitirir. O ümit dedikleri, aslında bir kandırmacadır. Şeytan, insanın arzularını şişirir, büyütür, çarpıtır. Herkes yapıyor der. Oysa herkes uçuruma yürürken, yürümek erdem değildir.
+    Kimi paranın, kimi şehvetin, kimi şöhretin ardına düşer. “Kimse bilmez,” der. “Yapsan ne olur?” der. “Sen bir kere yaşarsın,” der. Ama insan o bir kereyi bir kerede kendine harcar, ömrünü karartır, ahiretini yitirir. O ümit dedikleri, aslında bir kandırmacadır. Şeytan, insanın arzularını şişirir, büyütür, çarpıtır. Herkes yapıyor der. Oysa herkes uçuruma yürürken, yürümek erdem değildir.
 
     Kuruntu dediği, insanın içindeki zehir gibidir. Görünmez ama işler. Hakla bâtılı karıştırır. Doğruyu yanlış gösterir. Haramı meşru gibi süsler. Oyun kurar, kalbi yorar. Çünkü şeytan aldatır. İnsan da aldanmaya hazırsa, birlikte düşerler.
 
@@ -2564,17 +2565,17 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bütün benliğini Allah’a teslim eden…
     Kalbini, aklını, iradesini, nefsini O’na bırakan…
     Ve yaptığı her işte iyiliği gözeten…
-    Hem de İbrahim’in yolundan yürüyen — o hak yolcusu, o put kırıcı, o yalnız adamın izinden giden — kim olabilir ondan daha güzel bir inanç sahibidir?
+    Hem de İbrahim’in yolundan yürüyen — o hak yolcusu, o put kırıcı, o yalnız adamın izinden giden — kim olabilir ondan daha güzel bir inanç sahibi?
     Çünkü Allah, İbrahim’i dost edinmiştir.
 
-    Bu ayet, dinin bütün özünü üç kelimede toplar: **teslimiyet, iyilik, doğruluk.**
+    Bu ayet, dinin bütün özünü üç kelimede toplar: ***teslimiyet, iyilik, doğruluk.***
 
     Teslimiyet — sadece dilin değil, kalbin secdesidir.
     Bir insanın benliğini, kendi arzusunu, çıkarını, öfkesini Allah’ın hükmüne teslim etmesidir.
     Bu teslimiyet korkudan değil, bilinçten doğar.
     “Benim Rabbim bilir, ben bilmem” diyebilmenin vakarıdır bu.
     İşte İslam budur:
-    Sadece namazda değil, pazarda, mahkemede, evde, kalpte teslim olmaktır.
+    Sadece salatta değil, pazarda, mahkemede, evde, kalpte teslim olmaktır.
 
     İyilik — salih amel, ihsan.
     İyilik, bir başkasının yüzünü güldürmek kadar, haksızlığa karşı sessiz kalmamaktır da.
@@ -2584,13 +2585,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ve üçüncüsü: İbrahim’in yolu.
     İbrahim, yalnız bir adamdı.
-    Babası put yapardı, halkı putlara tapardı, kral tanrılık taslardı.
+    Babası put yapardı, halkı putlara tapardı, zalim kral tanrılık taslardı.
     O ise hepsine karşı çıktı.
     Bir tek Allah’a yöneldi.
     Yalnızlığın ateşine atıldı ama yanmadı;
-    çünkü kalbi Allah’a dayanmıştı.
-    Bir oğuldan, bir vatanı terk edişten, bir ateşten geçti —
-    ama teslimiyetinden dönmedi.
+    çünkü kalbini Allah’a dayanmıştı.
+    Bir oğuldan feda etti, bir vatanı terk edişten/hicretten ve bir ateşten geçti —
+    ama teslimiyetten dönmedi.
     İşte o yüzden, Allah onu dost edindi.
 
     “Halilullah” derler ona — Allah’ın dostu.
@@ -2608,9 +2609,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Sorulsa bugün:
     “En güzel din, en doğru inanç nedir?”
     Cevap bellidir:
-    **Allah’a teslimiyet + iyilik + İbrahim’in dürüst yolu.**
+    ***Allah’a teslimiyet + iyilik + İbrahim’in dürüst yolu.***
 
-    Çünkü iman, sözle değil, duruşla belli olur.
+    Çünkü iman, sözle değil, duruşla/tavırla/davranışla belli olur.
     Ve insan, Allah’a dost olmayı dilerse, önce İbrahim gibi yalnız kalmayı göze almalıdır.
 
 
@@ -2702,7 +2703,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İyiliği seçen, adaleti gözeten, kendi nefsine rağmen merhamet edendir.
 
     Evlilik, İslam’da bir sözleşmeden fazlasıdır;
-    iki kalbin, iki kaderin ortak emaneti.
+    iki kalbin, iki yazgının ortak emaneti.
     Ve bu emanet çatırdamaya başladığında, Allah hemen boşanmayı değil, barışı öğütler.
     Çünkü bazen bir kelime, bir özür, bir fedakârlık, bir evi yıkılmaktan kurtarır.
 
