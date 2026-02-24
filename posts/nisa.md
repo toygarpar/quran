@@ -2742,7 +2742,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Böylesi bir haksızlık, hem kalbi hem de hukuku yaralar.
     Ayet der ki:
     “Tamamen yüz çevirmeyin.”
-    Yani, duygun sönse de insanlığın sönmesin.
+    Yani, duygun sönse de insanlığın sönmesin/ölmesin.
 
     Allah, insanın içinden geçeni bilir;
     onun kıskançlığını, zayıflığını, eğilimlerini.
@@ -2755,7 +2755,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bir sözü yumuşatmak, bir yüzü güldürmek, bazen bir evin yıkılmasını engeller.
 
     İslam, insanı gerçeğiyle kabul eder — ne melektir ne de hayvan.
-    O yüzden dört eşe izin verir ama kalbi ikiye bölmeyi değil, adaleti şart koşar.
+    O yüzden dört eşe izin verir belki ama kalbi ikiye bölmeyi değil, adaleti şart koşar.
     Ve sonra uyarır:
     “Adalet tam sağlanamaz.”
     Bu, hem bir ruh terbiyesidir hem de ince bir hatırlatma:
@@ -2807,7 +2807,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Evlilikte, ticarette, dostlukta — insanlar birbirine bağlıdır; ama o bağlar çözülse bile, Allah’ın rahmeti çözülmez.
     Bir ev yıkılır, bir dost gider, bir kalp kırılır; fakat Allah’ın lütfu tükenmez. O, boşluğu doldurur, yeniden verir, yeniden diriltir.
-    Çünkü O, **“her şeye sahip olan”**, **“her eksiklikten uzak olandır.”**
+    Çünkü O, ***“her şeye sahip olan”***, ***“her eksiklikten uzak olandır.”***
 
 
 
@@ -2831,7 +2831,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Çünkü asıl teslimiyet, kaybettiğinde bile O’na güvenmektir.
 
     Ve o zaman anlarsın:
-    **Ahlak, iman, sabır, sevgi — hepsi Allah’a ait bir hikmetin yankısıdır.**
+    ***Ahlak, iman, sabır, sevgi — hepsi Allah’a ait bir hikmetin yankısıdır.***
     O yankı, göklerde de vardır, yerin taşında da, insanın kalbinde de.
 
 
@@ -2855,7 +2855,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     İnsanın bütün gayreti, bütün çabası sonunda bir duvara çarpar.
     Çünkü insanın elindeki güç sınırlıdır; planları eksiktir, niyetleri karışıktır.
-    Ama Allah dilediğinde, bir kalbi bir anda değiştirir, bir kapıyı ansızın açar.
+    Ama Allah dilediğinde, kalbi bir anda değiştirir, bir kapıyı ansızın açar.
     O’nun dilemesiyle işleyen bir düzenin içindeyiz.
     Para, makam, şöhret, hepsi birer geçici gölge —
     ama O’nun kudreti, O’nun lütfu baki.
@@ -2872,7 +2872,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu ayet, bir Müslümanın kalbindeki en derin sığınaktır.
     Zorlukta, haksızlıkta, korkuda insanın içinden bir ses yükselir:
-    **“Hasbunallah.”**
+    ***“Hasbunallah.”***
     Bu söz, bir teslimiyet değil; bir direniştir.
     Çünkü bu dünyada hiçbir güç sonsuz değildir,
     ama Allah’ın kudreti sonsuzdur.
@@ -2895,7 +2895,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     O’na sığınmak bilgeliktir,
     O’nun merhametine umut bağlamak ise kalbin huzurudur.
 
-    **“Allah, her işi tek başına idare etmeye yeterlidir.”**
+    ***“Allah, her işi tek başına idare etmeye yeterlidir.”***
     Bu söz, bir iman bildirisi değil sadece;
     bir haykırıştır da:
 
@@ -2927,7 +2927,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     ### 2. Allah’ın Lütfu, Hayalin Sınırlarını Aşar
 
     Ayet der ki:
-    **“Allah’ın lütfunda hem bu dünyanın hem ahiretin mükâfatı vardır.”**
+    ***“Allah’ın lütfunda hem bu dünyanın hem ahiretin mükâfatı vardır.”***
 
     Yani isteyen için dünya vardır, isteyen için ahiret…
     Ama O dilerse, ikisini birden verir — hem rızkı hem huzuru.
@@ -2966,7 +2966,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu sözü kalbine yazan mümin, ne dünyaya tapar ne de ahireti unutur.
     Duası dengeli olur, umudu geniş, kalbi huzurlu olur.
     Çünkü bilir ki:
-    **Allah’ın lütfu, insanın hayal gücünden bile büyüktür.**
+    ***Allah’ın lütfu, insanın hayal gücünden bile büyüktür.***
 
 
 
@@ -2974,7 +2974,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 135. **Ey iman edenler! Kendiniz, ana-babanız, akrabalarınız aleyhine de olsa, zengine, fakire karşı da olsa, Allah’ın şahitleri olarak adaleti ayakta tutun: Allah her ikisini de en iyi koruyandır. Nefsinizin hevâsına uymayın, yoksa saparsınız ve eğer adaleti saptırırsanız veya adaleti yerine getirmekten kaçınırsanız, şüphesiz Allah, yaptıklarınızdan haberdardır.**
 
 
-    "Ey iman edenler/inananlar! Adaletin/adil davranışın şahitleri olarak Allah için sımsıkı sarılın/direnin/dik durun ve başkalarına olan buğzunuz/nefretiniz sizi yanlış yola/haksızlığa saptırmasın ve adaletten /uzaklaştırmasın/ayırmasın/adaletin yolundan saptırmasın. Adil olun, bu takvanın yanındadır / takvadan sonra gelir ve Allah’tan korkun. Çünkü Allah, yaptıklarınızdan haberdardır." : Maide 8
+    "Ey iman edenler/inananlar! Adaletin/adil davranışın şahitleri olarak Allah için sımsıkı sarılın/direnin/dik durun ve başkalarına olan buğzunuz/nefretiniz sizi yanlış yola/haksızlığa saptırmasın ve adaletten uzaklaştırmasın/ayırmasın /adaletin yolundan saptırmasın. Adil olun, bu takvanın yanındadır / takvadan sonra gelir ve Allah’tan korkun. Çünkü Allah, yaptıklarınızdan haberdardır." : Maide 8
 
     Ey iman edenler!
     Kendinizin, ana babanızın, yakınlarınızın aleyhine de olsa, zengine ya da fakire karşı da olsa, Allah için adaleti ayakta tutun.
@@ -2986,7 +2986,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     1. Adalet: Allah’a Şahitlik Etmek
 
-    “Allah için adaletin temsilcisi olun” buyruğu, insanın adaleti kendi çıkarı için değil, Allah’ın huzuru için yaşamasını ister.
+    “Allah için adaletin temsilcisi olun” buyruğu, insanın adaleti kendi çıkarı için değil, Allah’ın hoşnutluğu için yaşamasını ister.
     Adalet, Allah’ın isimlerinden biridir — el-Adl.
     Bu yüzden adaletli olmak, Allah’ın varlığını insan davranışında tecelli ettirmektir.
     Adalet, bir ruh hâlidir; yalnızca kanunlarda değil, kalpte başlar.
@@ -2999,7 +2999,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İşte orada belli olur imanın ağırlığı.
 
     Adalet, zengine yaranmak değildir; fakire acıyıp haksızlık etmek de değildir.
-    Adalet, bir terazidir — ne servetle, ne duyguyla, ne korkuyla eğilmez.
+    Adalet, bir terazidir — ne servetle, ne duyguyla, ne korkuyla şaşmaz/sapmaz/bükülmez/sarsılmaz.
 
     3. “Gökler Yıkılsa da Adalet Yerini Bulsun”
 
@@ -3070,7 +3070,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Melekler, Allah’ın iradesinin görünmez taşıyıcılarıdır.
     Ne arzuları vardır, ne isyanları.
-    İnsanın göremediği ama varlığı sezdiği o derin düzenin temsilcileridir.
+    İnsanın göremediği ama varlığını sezdiği o derin düzenin temsilcileridir.
     Onlara iman etmek, insanın varlığı yalnızca maddeyle sınırlamaması demektir.
     Gözle görünmeyen bir dünyanın, bir hikmet katmanının varlığını kabul etmektir.
 
@@ -3135,7 +3135,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ve sonunda şunu anlar:
     İman, sadece “inandım” demek değildir.
-    İman, her sabah yeniden inanabilmek, filleriyle bunu gösterebilmektir.
+    İman, her sabah yeniden inanabilmek, fiilleriyle bunu gösterebilmektir.
 
 
 
@@ -3149,7 +3149,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     ### 1. İmanın Gerçek Yüzü
 
-    Gerçek iman, bir söz değil, bir hâlidir.
+    Gerçek iman, bir söz değil, bir tavır hâlidir.
     Kalbin en derin yerinde başlayan, insanın bütün varlığına yayılan bir ateştir.
     Bir kez yanarsa, bir daha sönmez.
     Ama burada anlatılanlar, o ateşi hiç yakmamış olanlardır.
@@ -3181,7 +3181,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kendine, topluma, Allah’a karşı…
     Bu sorumluluktan kaçmak isteyen, imanı bir sığınak değil, bir kaçış aracı yapar.
     Ama İslam, kolaycılığın değil, direnişin dinidir.
-    İman, insanı dönüştürmeyen bir süs değil, ateşte saflaşan bir metaldir.
+    İman, üzerimizde taşınan bir süs değil; içimizde yanan ve bizi her an yeniden inşa eden/saflaştıran bir ateştir/ocaktır.
 
     ### Sonuç
 
@@ -3210,7 +3210,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     1. “Dost Edinmek” Ne Demektir?
 
     Buradaki “dost” kelimesi, sıradan bir arkadaş değildir.
-    Kiminle kaderini paylaşıyorsan, kim için risk alıyorsan, kimden medet umuyorsan — senin dostun odur.
+    Kiminle yazgını paylaşıyorsan, kim için risk alıyorsan, kimden medet umuyorsan — senin dostun odur.
     Kâfirleri dost edinmek demek, onların bakışını, değerini, ölçüsünü benimsemek demektir.
     Yani “benim kurtuluşum sizdedir” demektir.
     Kur’an’ın karşı çıktığı da tam budur.
@@ -3229,9 +3229,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Hayır!
     Gerçek şeref, Allah’a sadakatte; O’nun huzurunda başı dik durabilmektedir.
 
-    3. Kâfirlerin Şerefi: Parlar Ama Çürük
+    3. Kâfirlerin Şerefi: Parlar Ama Çürüktür
 
-    İnançsızların izzeti/Allah'ın ilkelerini ihlal edenlerin izzeti, altın gibi parlar ama içi boştur.
+    İnançsızların izzeti/Allah'ın ilkelerini ihlal edenlerin izzeti, altın gibi parlayabilir ama içi boştur.
     Paranın, gücün, alkışın üzerinde yükselir.
     Ama içten içe çürür.
     Bugün alkışlarlar, yarın unutur giderler.
@@ -3251,7 +3251,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu ayet, bir uyarıdan fazlasıdır — bir kimlik beyanıdır.
     “Ben kimden izzet bekliyorum?” sorusunu her müminin kalbine yazar.
     Gerçek şeref, Allah’ın dostluğundadır; insanların onayında değil.
-    Ve bu cümle, bir asır değil, bir ömür yankılanır:
+    Ve bu cümle, bir asır değil, ebediyen yankılanır:
 
     “Bütün izzet, yalnızca Allah’ındır.”
 
@@ -3335,7 +3335,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Çünkü her oturuş, bir seçimi gösterir.
     Ve bazen kalkıp gitmek, en sessiz ama en asil eylemdir.
 
-    **Allah’ın ayetleriyle alay edildiğinde, kalkmak — bir kaçış değil, bir ibadettir.**
+    ***Allah’ın ayetleriyle alay edildiğinde, kalkmak — bir kaçış değil, bir ibadettir.***
     Bir mümin, o anda değilse bile, eninde sonunda o masadan kalkar.
     Çünkü kalbi bilir:
     Hakikatin küçümsendiği yerde oturmak, ruhun yavaşça ölmesidir.
@@ -3346,27 +3346,27 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
     Onlar pusudadır. Beklerler. Siz savaşır, siz çabalarsınız; onlar uzaktan seyreder.
-    Bir rüzgâr gibi kayar aranızdan; kimin kazanacağına bakarlar.
+    Bir rüzgâr gibi kayarlar aranızdan; kimin kazanacağına bakarlar.
 
-    Allah katından bir zafer gelir, müminler galip düşerse — hemen öne atılırlar:
+    Allah katından bir zafer gelir, müminler galip gelirse — hemen öne atılırlar:
     “Biz de sizinleydik!” derler utanmadan.
-    Fakat inkâr edenler üstün gelirse bu kez yüzleri değişir, sesleri kalınlaşır:
+    Fakat inkâr edenler üstün gelirse bu kez yüzleri o yana değişir, sesleri kalınlaşır:
     “Biz sizi müminlerin elinden korumadık mı? Sizin üstün gelmeniz için uğraşmadık mı?”
 
-    İşte bunlar, yüreği olmayan insanlardır.
-    Ne hak bilirler ne batıl. Rüzgâr nereye eserse oraya döner yüzleri.
+    İşte bunlar, vicdanı olmayan insanlardır.
+    Ne hak bilirler ne batıl. Rüzgâr nereye eserse oraya dönerler yüzlerini.
     Bir gün müminin safında, bir gün zalimin.
     Tek bildikleri şey, kendi çıkarlarıdır.
     Bir damla onur, bir zerre vicdan yoktur içlerinde.
 
-    Ama Allah, bir gün aralarını ayıracak.
+    Ama Allah, bir gün ayrım yapacak.
     Kıyamet günü, o büyük hesapta, kimin kalbinde iman, kimin dilinde yalan olduğu ortaya çıkacak.
     O gün artık hiçbir maske kalmayacak.
     Ve Allah, müminlere karşı kâfirlere asla bir zafer yolu vermeyecek.
 
     Bu söz, bir temenni değil, bir hüküm.
     Çünkü Allah’ın adaleti, görünürde kaybedenlerin kalbinde zaferdir.
-    Tarih boyunca iman sahipleri yenilmiş görünmüştür bazen,
+    Tarih boyunca iman sahipleri yenilmiş görünmüştür zaman zaman,
     ama hak, her defasında küllerinden doğrulmuştur.
     Zulüm büyümüş, halk ezilmiş, umut susmuş gibi olur —
     ama bir bakarsın, toprağın altında bir ses filizlenir: adaletin sesi.
@@ -3402,7 +3402,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Onlar ne buradadır, ne ötededir.
     Ne Allah’a gönülden bağlanırlar, ne de inkâr ettiklerine bütünüyle teslim olurlar.
-    İki dünyanın ortasında kalmışlardır; bir boşlukta, yönsüz ve sessiz.
+    İki dünyanın ortasında kalmışlardır; bir boşlukta, yönsüz, yolsuz ve sessiz.
     Ne bir tarafa kök salarlar, ne öte yana.
     Rüzgâr nereden eserse, yüzlerini o yana çevirirler.
     Ve işte, o bocalayış…
@@ -3416,7 +3416,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Allah da onu o karanlıkta bırakır.
     Zorla iman ettirmez kimseye.
     İnsan ister ki kandırsın; hem Allah’ı, hem kullarını, hem kendini.
-    Ama kandırdığı tek şey, kendi kalbidir.
+    Ama kandırdığı tek şey, kendi vicdanıdır.
 
     Çünkü kalp, yalanla beslendi mi bir daha doğrulmaz.
     Vicdan körelir, yüz soğur, bakış donar.
@@ -3425,7 +3425,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve sonunda ne dünyada yer bulur, ne ahirette.
     Arada kalmışlığın en derin, en sessiz azabına mahkûm olur.
 
-    “Allah kimin yolundan çevirirse, onun için asla bir yol bulamazsın.”
+    “Allah kimi yolundan çevirirse, onun için asla bir yol bulamazsın.”
     Bu, bir tehdit değil, bir hakikattir.
     İnsan kendi yolunu seçer, sonra o yol onu yutar.
     Çünkü samimiyet, bir kalbin en değerli hazinesidir.
@@ -3497,7 +3497,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 147. **Eğer şükreder ve inanırsanız, Allah sizin azabınızla ne elde edebilir? Hayır, hayırları bilen/takdir eden/farkına varan Allah’tır, her şeyi bilendir.**
 
 
-    "İşte Bak! Safa ve Merve Allah’ın İşaretlerindendir/Sembollerindendir. O halde hac veya umre zamanlarında Evi ziyaret edenler, her ikisini de tavaf ederse, onlara günah yoktur. Kim de kendi iyilik yapma dürtüsüne uyarsa/içinden gelerek iyilik yaparsa, bilsin ki Allah, takdir eden ve bilendir." : Bakara 158
+    "İşte Bak! Safa ve Merve Allah’ın İşaretlerindendir/Sembollerindendir. O halde hac veya umre zamanlarında Evi ziyaret edenler, her ikisini de tavaf ederse, onlara günah yoktur. Kim kendi iyilik yapma dürtüsüne uyarsa/içinden gelerek iyilik yaparsa, bilsin ki Allah, takdir eden ve bilendir." : Bakara 158
 
     "İbrahim, gerçekten Allah’a boyun eğen, imanı dosdoğru olan bir modeldi/örnek olandı ve Allah’a ortak koşmadı.
     Kendisini seçen ve onu dosdoğru yola ileten Allah’ın nimetlerine şükretti.
@@ -3601,8 +3601,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     İşte o zaman susmak, suça ortak olmaktır.
     İşte o zaman söz, silah değil, adaletin nefesi olur.
-    Çünkü susulan yerde zalim büyür,
-    bağırılan yerde hakkı gözetmek gerek.
+    Çünkü susulan yerde zalim/zulm büyür,
+    Haykırılan/Feryatların koptuğu/Hakikatin dillendiği yerde hakkı gözetmek gerek.
 
     Ama insan, niyetini bilmeden konuşursa,
     adaletle öfkeyi karıştırır.
@@ -3612,7 +3612,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Allah işte bunu bilir.
     Sözün hangi kalpten çıktığını,
     hangi karanlıkta yoğrulduğunu,
-    hangi niyetle söylendiğini duyar.
+    hangi niyetle söylendiğine vakıftır.
 
     Ve o yüzden der ki bu ayet:
 
@@ -3622,7 +3622,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     ölçülü, temiz, dürüstçe konuş.”
 
     Çünkü Allah,
-    kötülüğü yaymaktan hoşlanmaz,
+    kötülüğün yayılmasından hoşlanmaz,
     ama zulmü örtmekten hiç hoşlanmaz.
 
     O, adaleti sever.
