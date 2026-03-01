@@ -3642,8 +3642,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bir iyiliği açığa da vursan, gizlesen de,
     bir kötülüğü affedip üstünü örtsen de…
     Bil ki Allah, her şeyi bilen, her şeyi yerli yerine koyandır.
-    O, günahı siler, gönlün tartısını şaşırmaz.
-
+    
     İyilik bazen meydanda yapılır.
     Halk görsün, ibret alsın diye.
     Bir zalime karşı durursun,
@@ -3652,7 +3651,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     adaletin sesidir çünkü.
 
     Ama bazen de el gizlice uzanır,
-    bir açın sofrasına bir ekmek bırakılır,
+    bir açın sofrasına ekmek bırakılır,
     bir yetimin başı sessizce okşanır.
     O vakit iyilik, söze değil, yüreğe yazılır.
     Gizli yapılan, daha ağır basar terazide —
@@ -3675,11 +3674,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     niyetin hakkını verir.
     Her işin içini, her kalbin yönünü görür.
     Bir iyiliği kimin için yaptığını,
-    bir affı hangi kalple dile getirdiğini bilir.
+    bir affı hangi vicdani nedenle getirdiğini bilir.
 
     O’nun adaletinde hiçbir şey eksik kalmaz:
     Ne gizli bir dua unutulur,
-    ne gizli bir kin gizli kalır.
+    ne gizli bir kin saklı kalır.
 
     Ve sonuçta, ayet şunu fısıldar insana:
 
@@ -3719,9 +3718,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kendini kendi haline bırakır,
     ama o hal, bir boşluktur — dipsiz, sessiz bir hiçliktir.
 
-    İkinci tür, seçmecidir.
+    İkinci tür, seçicigillerdir.
     “Bizim kavmimizden gelen elçiye inanırız,
-    ama ötekine yok!” der.
+    ama ötekine hayır!” derler.
     Sanki Allah, bir halkın tekelindeymiş gibi.
     Oysa Allah, yaratandır, tek Hakim'dir;
     rüzgârı bir millete ait değildir.
@@ -3732,12 +3731,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Üçüncü tür ise, kararsızdır.
     Ne inanır, ne inkâr eder.
-    Bir eliyle iman tutar, öbür eliyle şüpheyi.
+    Bir elinde imanı tutar, öbür eliyle şüpheyi.
     İman ona ağır gelir, ama nimetini ister.
     Bir yandan “Tanrı var” der,
     bir yandan kendi çıkarına tapar.
     Bu yol, yol değildir;
-    ne iman olur, ne inkâr —
+    sonucu ne iman olur, ne inkâr —
     sadece bir kaçıştır, bir korkudur.
 
     Kur’an der ki:
@@ -3747,8 +3746,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ne ırkla sınırlı,
     ne dille,
     ne çağla.
-    Her çağda, her halkta aynı hakikat parlar —
-    bir dağın farklı yüzlerine yansıyan güneş gibi.
+    Her çağda, her kavme aynı hakikat parlar —
+    bir dağın farklı yamaçlarına/eteklerine yansıyan güneş gibi.
 
     Ve ayet akılla konuşur:
     İman, pazarlık değildir.
@@ -3757,10 +3756,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     kaynağı reddetmektir.
 
     Çünkü Allah’ın yolu bölünmez;
-    bölünürse, artık o yol değildir.
+    bölünürse, artık o yol O'nun yolu değildir.
 
     Ve bil ki:
-    Doğru yol bütündür.
+    Doğru yol bir bütündür.
     Yarım iman, imansızlıktır.
     Yarım doğru, yalandır.
 
@@ -3781,8 +3780,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     "Allah, yedi göğü ve yerden/yeryüzünden de bir o kadarını yaratandır. Allah’ın her şeye kadir olduğunu ve Allah’ın her şeyi ilmiyle kuşattığını bilesiniz diye emri onların arasından iner./Hepsinin ortasından O’nun Emri iner: Allah’ın her şeye kadir olduğunu ve Allah’ın her şeyi ilmiyle kuşattığını bilesiniz diye." : Talak 12
 
 
-    Kitap ehli senden, “Gökyüzünden bize bir kitap indir” diye tutturdular.
-    Sanki gözleriyle görmeden inanamayacaklardı.
+    Kitap ehli, “Gökyüzünden bize bir kitap indir” diye tutturdular.
+    Sanki gözleriyle görmeden ikna olmayacaklardı.
     Oysa onlardan öncekiler, Musa’dan daha büyüğünü istemişti:
     “Bize Allah’ı açıkça göster!” dediler.
     Ama o kibirleriyle, gök gürültüsünün sesiyle sersemlediler,
@@ -3794,8 +3793,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Yine de Allah onları affetti,
     ve Musa’ya apaçık deliller verdi.
 
-    Bu ayet, insanın görmeden inanamama hastalığını anlatır.
-    İman isterler — ama gözle.
+    Bu ayet, insanın görmeden inanmama hastalığını/gönül körlüğünü anlatır.
+    İman etmek isterler — ama gözle.
     Oysa göz, sadece şekli görür;
     hakikati gören, kalptir.
 
@@ -3803,11 +3802,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     sonsuzu göz hizasına indirmek,
     yaratıcıyı kendi terazisinde tartmak istemektir.
     İnsanın gözünün eriştiği her şey sınırlıdır,
-    Allah ise sınırsız.
+    Görülen, sınırlara mahkûmdur.
+    Allah ise sınırsız, her türlü sınırın ötesinde...
     Görünür olan yaratılmıştır,
     Oysa Allah, yaratan’dır.
     Yaratılan, Yaratan’a bakmakla değil,
-    O’nun eserine akılla bakmakla idrak eder.
+    O’nun eserine akılla bakarak/akıl ile süzerek idrak eder.
 
     Ama insan, hep görmek ister.
     Denizi ikiye yaran Musa’nın kavmi bile,
@@ -3816,12 +3816,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     mucize bile fayda etmez.
     Altını eritir, put yapar;
     fikirden tapınak kurar;
-    sözü, Tanrı yerine koyar.
+    hevasıyla yarattığı putları, Tanrı yerine koyar.
 
     Ve yine de Allah affeder.
     Çünkü rahmeti engindir.
     Ama o affın içinde bir uyarı gizlidir:
-    Affedilmek, yeniden sorumlu olmak demektir.
+    Affedilmek, yeniden sorumlu olmak, sorumluluk almak demektir.
     Musa’ya “apaçık deliller” verilmesi de bundandır —
     İman, sadece affın hediyesi değil,
     sorumluluğun yüküdür.
@@ -3829,7 +3829,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ders şudur:
     Allah’ı görmek istersen,
     dağa değil, kalbine bak.
-    Yıldızlara değil, vicdanına kulak ver.
+    Yıldızlara değil, vicdanına rücu et/yoğunlaş.
     Çünkü O, gökte değil sadece,
     adaletin terazisinde,
     merhametin sesinde,
@@ -3839,11 +3839,15 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     ışığın kendisine değil,
     ışığın aydınlattığına bakmalıdır.
 
+    "Allah, göklerin ve yerin aydınlığıdır/nurudur. O’nun nurunun misali sanki camın/fanusun içine kapatılmış adeta parlak bir yıldız gibidir: Ne doğuya ne de batıya ait olan mübarek bir ağaçtan, zeytinden aydınlatılmıştır/yakılmıştır;ama ateş ona pek değmediği halde/dokunmasa bile yağı hemen hemen nurludur: Nur üstüne nur! Allah, dilediğini nuruna eriştirir/iletir: Allah insanlara misaller verir: Allah her şeyi bilir." : Nur 35
+
     Sonuç:
-    Kur’an burada, bizi dış arayıştan iç arayışa çağırır.
-    Sorudan düşünmeye,
+    Kur’an burada, bizi dış arayıştan iç arayışa, ruhun derinliğine çağırır.
+    Zahirden batına,
+    Sorudan düşünmeye/tefekküre,
+    Sorgulamaktan idrake,
     görmekten anlamaya,
-    meraktan teslimiyete.
+    meraktan hakikate teslim olmaya...
 
     Ve bize şunu hatırlatır:
 
@@ -3862,65 +3866,72 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ahdin Ağırlığı
 
-    Bu ayet, İsrailoğulları’nın Allah ile yaptıkları sözü — o büyük ahdi — defalarca bozduklarını hatırlatır. Üç olay üzerinden anlatılır bu: Sina Dağı’nın gölgesinde verilen söz, tevazuyla girilmesi gereken bir kapı, ve haddi aşılmaması gereken bir gün.
-    Hepsi, insanın kendi sözüne karşı nasıl gevşediğini; ilahî emre karşı nasıl unutuşa kapıldığını gösterir.
+    Bu ayet, İsrailoğulları’nın Allah ile yaptıkları sözü/sözleşmeyi — o büyük ahdi — defalarca bozduklarını hatırlatır. Üç olay üzerinden anlatılır bu: Sina Dağı’nın gölgesinde verilen söz, tevazuyla girilmesi gereken bir kapı, ve haddin aşılmaması gereken bir gün.
+    Hepsi, insanın kendi sözüne karşı nasıl gevşediğini; ilahî emre karşı nasıl unutuşun sisine kapıldığını/zihnin unutkanlığına yenildiğini gösterir. Bazen de hafızasından silip atar.
+
+    İnsan, dağı görse de ağırlığını hissetmez; kapıyı görse de tevazuyu bilmez; sınırı görse de taşmadan duramaz.
+    İşte 'sağlam söz' (mîsâkan galîzâ), sadece dille söylenen bir vaat değil, bu üç imtihanın toplamıdır: Ağırlığı taşımak, eşikte eğilmek ve sınırda durmak."
 
     1. Sina Dağı Eteklerinde Ahid
 
-    Allah, Tevrat’ı Mûsâ’ya verirken İsrailoğulları’na imanlarını yeniletmişti.
+    Allah, Tevrat’ı Mûsâ’ya verirken İsrailoğulları’na imanlarını yeniletmişti/tazeletmişti/perçinletmişti.
     Dağ, onların üzerine bir tehdit gibi yükselmişti — sanki gök, “Verdiğin söze sahip çık” diyordu.
     Bu sahne, ahdin ne kadar ağır bir sorumluluk olduğunu anlatır.
 
-    Akılla bakarsak: İlahi düzen, evrenin yasaları kadar gerçektir. Ona başkaldırmak, doğanın dengesine karşı çıkmak gibidir.
+    Meseleyi akıl mizanına vurduğumuzda/Aklın süzgecinden geçirdiğimizde: İlahi düzen, evrenin yasaları kadar gerçektir. Ona başkaldırmak, doğanın dengesine karşı çıkmak gibidir.
     İnsan, verdiği sözle kendi kaderini bağlar; o sözü bozduğunda, aslında kendi iç düzenini yıkar.
 
-    2. “Kapıdan Alçakgönüllüce Girin” Emri
+    2. “Kapıdan Alçakgönüllü Bir Ruhla Girin” Emri
 
     Onlara bir şehre girerken alçakgönüllü olmaları emredilmişti.
     Ama onlar, bu emri küçümseyerek, alaycı bir sözle yanıt verdiler:
     “Biz öyle değil, şöyle gireriz!”
     O an, bedenleri itaat etti ama kalpleri isyan etti.
 
-    Bu olay, dış itaatle iç tevazunun farkını gösterir.
-    Allah, eğilen bedeni değil, eğilen kalbi ister.
-    Gerçek teslimiyet, secdenin biçiminde değil, niyetinde gizlidir.
+    Bu olay, dış itaatle/biçimle içsel tevazunun farkını/içteki mananın uçurumunu gösterir.
+    Allah, eğilen bedeni değil, eğilen kalbi, kibrini kırmış bir kalbi ister.
+    Gerçek teslimiyet, secdenin dış görünüşünde/biçiminde değil, niyetinde gizlidir/niyetin o sessiz boyun büküşünde gizlidir.
 
     3. Şabat Gününde Haddi Aşmak
 
     Cumartesi, onlar için kutsal bir dinlenme günüydü.
-    O gün hiçbir iş yapılmaz, balık tutulmaz, ticaret edilmezdi.
-    Ama onlar, denizin bereketine sabredemediler; hileyle yasağı deldiler.
+    O gün hiçbir iş yapılmaz, balık tutulmaz, ticaret bırakılırdı.
+    Ama onlar, denizin bereketinin cazibesine sabredemediler; hileyle yasağı deldiler.
     Kutsalı, menfaatin önünde eğdiler.
 
-    Bu, kutsal olanı sıradanlaştırmak, yani profanlaştırmaktır —
+    Bu, kutsal olanı sıradanlaştırmak, yani profanlaştırmaktır/İlahi olanı sığlaştırmaktır —
     ilahi sınırları bilerek çiğnemek, ahdin özüne ihanettir.
 
     4. Ortak Ders: Sözün Ağırlığı
 
     Bu üç olayda da Allah, onlara açık emirler vermişti.
-    Görmüşlerdi, duymuşlardı, hatta mucizelere tanık olmuşlardı.
+    Görmüşlerdi/Gözleriyle şahit olmuşlar, duymuşlardı/işitmişlerdi, hatta mucizelere tanık olmuşlardı.
     Ama yine de arzularının, çıkarlarının peşinden gittiler.
+    Yine de hırslarının gürültüsü, vicdanlarının sesini bastırdı.
+    
 
     Bu yüzden Kur’an der: “Onlardan ağır bir ahd aldık.”
     Ağır, çünkü kolay bozulmaz.
-    Ağır, çünkü her ihlali bir sarsıntı getirir — hem topluma, hem kalbe.
+    Ağır, çünkü her ihlali bir sarsıntı getirir — hem topluma, hem kalbe/vicdana.
+    Hem sokağın düzenini bozar, hem de kalbin huzurunu/mihverini kaydırır.
 
-    Sonuç (Akılla Anlaşılabilir Gerçek)
+    Sonuç (Akıl Mizanında Son Söz/Aklın Süzgecinden Süzülen Hakikat)
 
     Bu ayet yalnızca bir kavmi anlatmaz; her nesle, her inanana seslenir:
 
     Ahid, sadece “İnandık” demek değildir.
-    O, her emir karşısında içten boyun eğmektir.
-    Tevazu, sadece tavırda değil; kalpte Allah’a olan saygıda görünür.
-    Kutsal olanı korumak, ilahi sınırları menfaat uğruna aşmamaktır.
+    O, her emir karşısında içten boyun eğmek' her tercih anında Allah’ın muradını kendi nefsinin önüne koymaktır.
+    Tevazu, sadece tavırda değil; kalpte Allah’a olan saygıda görünür. Sadece bedenin eğilmesi değil; kalbin Allah’ın büyüklüğü karşısında kibirden arınmasıdır.
+    Kutsal olanı korumak, ilahi sınırları menfaat/dünyevi iştahlar uğruna aşmamaktır.
 
     Ve unutma:
-    Allah, sözünü unutanı affeder — ama önce hatırlamasını ister.
-    Çünkü iman, sadece sözle değil, sınav anında verilen kararla ölçülür.
+    Allah, sözünü unutanı affeder — ama önce hatırlamasını ister. Allah, unutulan bir sözü hatırlatmak için dağı bile kaldırır; ama affetmek için önce insanın özüne rücu etmesini bekler.
+    Çünkü iman, takınılan tavır, fırtınada tutulan sözdür. Sadece sözle değil, sınav anında verilen kararla ölçülür.
+    
 
 
 
-155. İlahi hoşnutsuzluğa maruz kaldılar/Allah’ın gazabına uğradılar: Peygamberleri haksız yere öldürüp Allah’ın âyetlerini inkâr ederek; “Kalplerimiz Allah’ın kelâmını muhafaza eden perdelerdir, daha fazlasına ihtiyacımız yok” diyerek antlaşmalarını bozular; – Hayır, Allah onların kalplerini küfretmelerinden dolayı mühürlemiştir ve onlar pek az inanırlar;
+155. **İlahi hoşnutsuzluğa maruz kaldılar/Allah’ın gazabına uğradılar: Peygamberleri haksız yere öldürüp Allah’ın âyetlerini inkâr ederek; “Kalplerimiz Allah’ın kelâmını muhafaza eden perdelerdir, daha fazlasına ihtiyacımız yok” diyerek antlaşmalarını bozdular; – Hayır, Allah onların kalplerini küfretmelerinden dolayı mühürlemiştir ve onlar pek az inanırlar;**
 
 
     “Kalplerimiz, Allah’ın kelamını koruyan bir örtüdür , daha fazlasına ihtiyacımız yok.” derler. Hayır, Küfürlerinden/Şirklerinden dolayı Allah’ın laneti onların üzerinedir: Ne kadar az inanıyorlar. : Bakara 88
@@ -3931,36 +3942,39 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu ayet, İsrailoğulları’nın imanla bağlarını nasıl kopardıklarını adım adım gösterir.
     Her ihlal, bir öncekinden daha derin bir uzaklaşmadır.
-    Ve bu uzaklaşma, sadece bir topluluğun değil — her çağın, her kalbin uyarısıdır.
+    Ve bu uzaklaşma, sadece bir kavimsel veya tarihsel bir olay değil; kalbin kendi hakikatine kapıları kapatmasıdır.
 
-    1. Ahdi Bozmak – Sözün Değerini Yitirmek
+    1. Ahdi Bozmak – Sözün Haysiyetini Yitirmek
 
-    Allah onlarla açık bir sözleşme yapmıştı:
+    Allah onlarla açık/berrak bir sözleşme yapmıştı:
     → İman edecekler, emirlerine uyacaklar, hakka tanıklık edeceklerdi.
-    Ama onlar bu sözü kendi elleriyle bozdular.
+    Ama onlar bu sözü kendi elleriyle/seçimleriyle/tercihleriyle bozdular.
 
-    Bir toplum sözün kutsiyetini yitirirse,
+    Bir toplum Sözün kutsiyetini yitirirse,
     adalet de çöker, ahlak da.
     Çünkü ahid bozulduğunda, insanın kendi özüyle olan bağı da kırılır.
+    Sözün değerini kaybettiği bir yerde, insan da kendi kıymetini kaybeder.
 
     2. Allah’ın Ayetlerini Reddetmek – Gerçeği Görmezden Gelmek
 
-    Ayet, yalnızca kelime değildir.
-    Evrenin düzeni, vicdanın sesi, tarihin ibreti de ayettir.
-    Onlar, bu delilleri gördüler — ama kabullenmediler.
+    Ayet, yalnızca kağıda dökülmüş bir metin/dilde yankılanan bir lafız/satırlara hapsolmuş bir ibare değildir.
+    Evrenin düzeni/kusursuz işleyişi, vicdanın sesi, tarihin tozlu sayfalarındaki ibretler de birer ayettir.
+    Onlar, bu delilleri gördüler/apaçık delilleri iliklerinde hissettiler — ama teslim olmaya yanaşmadılar. 
 
     Gerçek inkâr, bilgisizlikten değil;
-    gördüğünü görmezden gelme iradesinden doğar.
+    Göz önündeki hakikati örtbas etme iradesinden/Gördüğüne karşı körleşme tercihinden doğar.
+    İnsan bazen görmemek için bakar.
+    İşte asıl karanlık, dışarıda ışığın yokluğu değil, içerideki ışığı bilerek söndürme inadıdır.
 
     3. Elçileri Öldürmek – Hakkı Susturma Suçu
 
     Elçi, Allah’ın insanla kurduğu bağın canlı halidir.
     Onu öldürmek, yalnız bir insanı değil,
-    adaletin sesini, merhametin imkânını da öldürmektir.
+    adaletin sesini, merhametin tecellisini de/soluğunu da/müjdesini de öldürmektir.
 
     Kur’an der ki: “Onları haksız yere öldürdüler.”
     Yani gerçeği biliyorlardı — ama kibir, çıkar ve korku onları susturdu.
-    Bu, kalbin kendi nuruna düşman olmasıdır.
+    Bu, hakikatin nefesini kesmek, kalbin kendi nuruna düşman olmasıdır.
 
     4. “Kalplerimiz Dolu” Demek – Kibirle Kapanmak
 
@@ -3968,39 +3982,46 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Yani: “Yeni bir hakikate ihtiyacımız yok.”
     Bu, imanı miras sanmaktır; sanki Tanrı’ya doğuştan sahipmiş gibi davranmak.
 
-    Oysa dolu kalp, yeni nuru alamaz.
+    Oysa doygunluk kibriyle dolmuş bir kalp, yeni bir nuru asla içeri alamaz.
     Bu yüzden Allah, onların kalplerini mühürledi.
-    Bu mühür, zorla değil — kendi seçimlerinin doğal sonucuydu.
+    Bu mühür, zorla değil — kendi seçimlerinin doğal sonucu, insanın kendi seçiminin üzerine vurulmuş bir onaydı.
     Kapatmayı onlar istediler; Allah sadece mühürledi.
 
-    5. “Ve Onların İnandıkları Çok Azdır” – Yüzeyde Kalan İman
+    5. “Ve Onların İnandıkları Çok Azdır” – Yüzeyde Kalan/Sığ Eğreti İman
 
     Belki dilleri “Allah” dedi,
-    ama kalpleri boştu.
-    İnanç, yalnız kelimede değil;
-    adalette, tevazuda, merhamette görünür.
-    Bunlar yoksa, inanç sadece bir gürültüdür.
+    ama kalpleri boştu, bu ikrarın ağırlığından yoksundu.
+    İnanç, yalnızca kelimelerin gölgesinde saklanan bir kavram değil;
+    adalette, tevazuda, merhamette görünür/ adaletin keskinliğinde, tevazunun mahviyetinde ve merhametin sıcaklığında vücut bulur.
+    Eğer bu meyveler yoksa, inanç; hakikati perdeleyen boş bir yankıdan, ruha dokunmayan kuru bir gürültüden ibarettir.,
 
-    Sonuç (Akılla Anlaşılabilir Gerçek)
+    İmanın "az" olması, nicelikle ilgili değildir; nitelikle ilgilidir.
+    Azdır, çünkü hayata karışmaz.
+    Azdır, çünkü fedakarlık gerektirdiğinde geri çekilir.
+    Azdır, çünkü menfaatle karşılaştığında hemen sönüverir.
 
-    İman bir soy meselesi değil; bir kalp kararıdır.
+    Sonuç (Akıl Mizanında Bakarsak)
+
+    İman bir soy meselesi değil; bir vicdani karardır.
     Ahid, bir törenden ibaret değil; yaşanmış bir sadakattir.
-    Elçi, bir tarih figürü değil; tebliğ edilen evrensel mesaj her çağda süren bir uyarıdır.
-    Ve kalp, bir depo değil — bir penceredir.
-    Açılırsa nur girer; kapanırsa karanlık mühürlenir.
+    Elçi, bir tarih figürü değil; tebliğ edilen evrensel mesaj her çağda süren/geçerli/diri bir nida/zamanı aşan bir uyarıdır.
+    VKalp bir mülk deposu/ değil — hakikate açılan bir penceredir.
+    Açılırsa nur girer; aralanırsa nur süzülür; kibirle kapatılırsa karanlık mühürlenir.
 
-    En tehlikelisi, kendinden çok emin olmaktır.
+    En tehlikelisi, kendinden çok emin olmak, kendinden emin olmanın körlüğüdür.
     Çünkü bazen insan, “Ben zaten inanıyorum” der —
-    ama kalbi çoktan mühürlenmiştir.
+    “Ben zaten hakikate sahibim” der —
+    ama oysa kalbi çoktan kendi hırsına mühürlenmiştir.
+    
 
-    Kur’an bu yüzden sorar:
-    “Sen, delilleri görmezden mi geliyorsun?
-    Hak söylenirken neden susuyorsun?
+    Kur’an bu yüzden sorar ve sarsar:
+    “Sen, apaçık delilleri nefsin için görmezden mi geliyorsun?
+    Hak söylenirken/Adalet çiğnenirken neden susuyorsun?
     Ve kalbine yeni bir hakikat geldiğinde,
-    ‘Ben zaten biliyorum’ mu diyorsun?”
+    ‘Ben zaten biliyorum’ mu diyorsun?”/‘Benim heybem zaten dolu’ mu diyorsun?”
 
-    Çünkü Allah’ın gazabı, yalnız inkârcıya değil,
-    kibrini iman sanana da dokunur.
+    Çünkü Allah’ın gazabı/uyarısı, yalnız açık inkârcıya değil;
+    kibrini iman, alışkanlığını din sanana da dokunur.
 
 
 
@@ -4015,9 +4036,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Meryem oğlu İsa, bir elçiden başka bir şey değildi; ondan önce de nice elçiler gelip geçmiştir. Annesi hakikat kadınıydı. İkisi de günlük yemeklerini yemek zorundaydı. Bak, Allah onlara âyetlerini nasıl açıklıyor; halbuki bak, hangi yollarla nasıl hakikatten saptırılıyorlar! : Maide 75
 
+    Allah ona 'Sıddîka' der; yani o, varlığıyla hakikati tasdik eden bir aynadır. Ona atılan iftira, aslında o aynanın yansıttığı nuru karartma girişimidir. Ama güneş balçıkla sıvanmaz; Meryem'in iffeti, Allah'ın koruması altındaki bir kaledir.
+
     Meryem’e Atılan Büyük İftira
 
-    Bu ayet, İsrailoğulları’nın işledikleri iki en ağır suçu yan yana getirir:
+    Bu ayet, İsrailoğulları’nın işledikleri en ağır iki suçu yan yana getirir:
     İnancı reddetmek ve Meryem’e karşı büyük bir iftira uydurmak.
     İkisi de, hakikate karşı kibirli bir meydan okumanın iki yüzüdür.
 
@@ -4031,13 +4054,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kur’an’a göre iman, kör bir bağlılık değil,
     → Akılla, vicdanla, gözle görülene ve kalple hissedilene bir cevaptır.
     Bu yüzden imanı reddetmek,
-    → Gerçeğin göz önünde durduğu halde yüz çevirmektir.
+    → Gerçek göz önünde durduğu halde ondan yüz çevirmektir.
 
     Böyle bir reddediş, insanı düşünebilen bir varlıktan,
     aklını işletemeyen noktasına sürükler —
     karanlıkta kalmak, kendi tercihidir artık.
 
-    2. Meryem’e Atılan İftira – İlahi Kudrete Saygısızlık
+    2. Meryem’e Atılan İftira – İlahi Kudrete Saygısızlık/İlahi İradeye Başkaldırı/Mucizeyi Lekeleyerek İnkâr Etme
 
     Kur’an bu iftirayı ayrıntılandırmaz;
     ama tarihsel bağlam, bunun Meryem’in iffetini hedef alan bir suçlama olduğunu gösterir.
@@ -4053,17 +4076,20 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Çünkü Meryem’i karalamak,
     “Ol” dediğinde olan kudreti inkâr etmektir.
 
-    3. İftiranın Ahlaki ve Toplumsal Yıkımı
+    3. İftiranın Ahlaki ve Toplumsal Yıkım Gücü
 
+    İftira, hakikati ispatlama yükümlülüğünü (dört şahit) yerine getirmeden, 
+    bir ruhu kirletme çabasıdır. Kur'an, şahidi olmayan iddiayı 'zulüm' olarak adlandırır. 
+    Çünkü kanıtsız suçlama, adaletin değil, hasret ve nefretin dilidir.
+    
     Kur’an, iftirayı sadece bir “yalan” olarak değil,
     toplumsal düzeni bozan en ağır suçlardan biri olarak görür.
 
     Bir kadını iffetsizlikle suçlayan,
-    → Dört adil şahit getirmedikçe,
-    → Kendisi cezalandırılır : Nur 4
+    → Dört adil şahit getirmedikçe, kendisi cezalandırılır : Nur 4
 
     Çünkü iftira, sadece bir kişiyi değil,
-    bir toplumun güvenini, şeref duygusunu, vicdan terazisini yıkar.
+    bir toplumun güvenini, şeref duygusunu, vicdan terazisini yıkar/yaralar.
 
     Kadının onuru, toplumun onurudur.
     O korunduğunda, insanlık korunur.
@@ -4081,7 +4107,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu yüzden o iftira, sadece bir yalan değil —
     bir küfür biçimidir.
 
-    Sonuç (Akılla Anlaşılabilir Gerçek)
+    Sonuç (Akıl Mizanında Bakarsak)
 
     Bir kadını haksız yere karalamak,
     yalnızca ona değil,
@@ -4096,6 +4122,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kim bu saygıyı yitirirse —
     diliyle iman etse bile, kalbi inkâr içindedir.
+
+    İman, sadece gökteki Tanrı'yı kabul etmek değil; yerdeki insanın onuruna da saygı duymaktır.
+    Meryem’e atılan iftira, Tanrı’yı sevdiğini iddia edip, O’nun yarattığı en temiz nefesi boğmaya çalışmaktır.
+
+    Şu unutulmamalı:
+    Bir kadının namusuna uzanan dil, aslında hakikatin kalbine saplanan bir hançerdir.
+    Adaleti dilde değil, iffete duyulan saygıda aramayanın imanı; temelsiz bir bina gibi çökmeye mahkûmdur.
 
 
 
