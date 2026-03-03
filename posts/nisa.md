@@ -4132,7 +4132,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
 
-157. **Böbürlenerek: “Biz, Allah’ın Resulü Meryem oğlu İsa Mesih’i öldürdük; fakat onu ne öldürdüler, ne de astılar; ancak kendilerine öyle gösterildi ve bu konuda ayrılığa düşenler kesin bir bilgi olmadan, tam bir şüphe içindeler, ancak yalnızca varsayım takip ederler/zannederler, çünkü onu kesinlikle öldürmediler:-**
+157. **Böbürlenerek: “Biz, Allah’ın Resulü Meryem oğlu İsa Mesih’i öldürdük; fakat onu ne öldürdüler, ne de astılar; ancak kendilerine öyle gösterildi ve bu konuda ayrılığa düşenler kesin bir bilgi olmadan, tam bir şüphe içindeler, ancak yalnızca varsayım/zann takip ederler/zannederler, çünkü onu kesinlikle öldürmediler:-**
 
 
     İşte bakın! Allah dedi ki: “Ey İsa, seni kendime yükselteceğim ve seni küfredenlerin batıllarından/iftiralarından temize çıkaracağım; sana uyanları, kıyamet gününe kadar inkar edenlerden üstün kılacağım.”: Sonra hepiniz bana döneceksiniz ve anlaşmazlığa düştüğünüz konularda aranızda ben hükmedeceğim. : Al'i İmran 55
@@ -4147,9 +4147,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve bu söz, bir tarih anlatısı değildir yalnız;
     imanın özüne, insanın iddiasına, hakikatin perdesine dair bir ders taşır.
 
-    1. “Biz Onu Öldürdük” Diyenlerin Kibri
+    1. “Biz Onu Öldürdük” Diyenlerin Kibri, Cinayetin Psikolojisi
 
-    İnsanoğlu, bazen kendi gücüne sarhoş olur.
+    Onlar sadece bir bedeni hedef almadılar; Tanrı’nın iradesini mağlup ettiklerini sandılar. 
+    'Biz öldürdük' derken, aslında 'Biz galip geldik, Biz hakikati susturduk' diyorlardı. 
+    Oysa trajedi şuydu: Kendi kurdukları tuzağın içinde, kendi zanlarına hapsoldular.
+    
+    İnsanoğlu, bazen kendi gücüyle sarhoş olur.
     Kendini Tanrı’nın yerine koyar, kaderi elinde sanır.
     Bir elçiyi susturduğunda, gerçeği susturduğunu zanneder.
 
@@ -4158,13 +4162,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Yani, elçinin canı sizin elinizde değildi.
     Ne nefesini kesebildiniz,
-    ne kaderini değiştirebildiniz.
+    ne de yazgıyı değiştirebildiniz.
     Çünkü Allah, dilediğini dilediğinden korur.
 
     Bu, kibirin en büyük çöküşüdür:
     İnsanın, kendi kudretinin sınırına tosladığı andır.
 
-    2. “Yalnızca Öyle Gösterildi” – Görünenle Gerçeğin Ayrıldığı Yer
+    2. “Yalnızca Öyle Gösterildi” (Şubbihe Lehum) – Görünenle Gerçeğin Ayrıldığı Yer
 
     İşte burada, hakikatle görünüş arasındaki perde aralanır.
     İnsanlar birini gördüler, İsa sandılar,
@@ -4182,7 +4186,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Gerçek, Allah’ın ilmindedir —
     insan ise çoğu zaman zannın tutsağıdır.
 
-    3. “Zan Peşinde Koşarlar” – Bilginin Susup Varsayımın Konuştuğu Yer
+    Dünya bazen koca bir illüzyondur. Göz, bir çarmıh ve bir ölüm görür; ama hakikat, bir yükseliş ve bir kurtuluştur. 
+    Allah, zalimlerin planını kendi görsellikleri içinde boğmuştur. 
+    Onlar öldürdüklerini sandıkları şeyin mahkûmu olurken, İsa Peygamber bizzat Allah’ın katına, tertemiz bir makama ulaştırılmıştır.
+
+    3. “Zan Peşinde Koşarlar” – Bilginin Sessiz Kaldığı, Varsayımın Konuştuğu Yer
 
     O günden bugüne, insanlar bu meselede tartıştılar.
     Kimisi “öldü” dedi,
@@ -4199,6 +4207,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Ve zan, ne kadar büyürse büyüsün,
     hakikatin yerine geçmez.
 
+    Zan, bilginin taklididir ama ruhu yoktur. İnsan, gerçeğin ağırlığını taşıyamadığında, kendi zihninin ürettiği hayallere (varsayımlara) sığınır. 
+    Ayet bize şunu ihtar eder: Kesin bilgi (yakîn) yoksa, iddia sadece bir gürültüdür. Hakikat, kalabalıkların tartışmasıyla değil, Allah’ın beyanıyla netleşir.
+    
     4. Elçiler, Allah’ın Koruması Altındadır
 
     Hiçbir peygamber, görevini tamamlamadan ölmez.
@@ -4207,7 +4218,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Hz. İsa da öyle oldu:
     Göğe yükseltildi — bir kurtuluş, bir onay, bir ilahi dokunuş.
-    Bu, ne haçın kurtarışı,
+    Bu, ne hacın kurtarışı,
     ne kefaretin gerekliliğidir.
 
     Kur’an der ki:
@@ -4215,22 +4226,32 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → “Her nefis, kazandığıyla karşılık bulur.”
 
     Yani, Allah adaleti kimsenin omzuna yanlış yüklemez.
-    Her insan kendi sınavının sahibidir.
+    Her insan kendi sınavına tabidir.
 
     5. İman, Görünüşe Değil, "Söze" Dayanır
 
     İnsan, gördüğüne inanmak ister.
-    Oysa bazen göz, en büyük yanılgıdır.
+    Oysa bazen göz yanıltır.
     Gerçek iman, gözle değil —
     Allah’ın sözüyle kurulur.
 
     Kur’an, bize şunu öğretir:
-    → Hakikat, insanın tahminiyle değil, Allah’ın kelamıyla ölçülür.
+    → Hakikat, insanın tahminiyle/zannıyla değil, Allah’ın kelamıyla ölçülür.
     → Zan, bilgi değildir.
     → Şüphe, iman değildir.
 
-    Sonuç (Akılla Anlaşılabilir Gerçek)
+    Sonuç (Akıl Mizanında Bakarsak)
 
+    Bu ayet bir "ölüm ilanı" değil, bir "yaşam ve onur" beyanıdır.
+    İnsanoğluna haddi bildirilir: "Sen, Allah'ın 'Hayy' (Diri) kıldığını öldüremezsin."
+
+    Hz. İsa’nın haçtan kurtarılması, sadece bir kişinin kurtuluşu değil; iyiliğin, doğruluğun ve ilahi kelamın asla mağlup edilemeyeceğinin evrensel mührüdür.
+
+    Unutma:
+    Gördüğün her "ölüm", bir son değildir.
+    Ve duyduğun her "zan", hakikat değildir.
+    Gerçek, sadece Allah'ın dediğidir; gerisi insanın kendi zihninde kurduğu bir yalandır.
+    
     Bu ayet, insanın Allah’a meydan okuyamayacağını hatırlatır.
     Bir elçiyi öldürmek isteyen, aslında Allah’ın kudretine saldırır —
     ama kudret, elini uzatıp onu korur.
@@ -4265,14 +4286,14 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Hakkı bastırmak isteyenlerin hezimetine karşı,
     ilahi korumanın, adaletin ve kudretin ilanıdır.
 
-    1. “Yükseltti” – Rafa‘ahu: Sözün İçinde İki Ufuk
+    1. “Yükseltti” – Rafa‘ahu: Söz`ün İçinde İki Ufuk
 
     Arapça’da “rafa‘a” kelimesi, iki yönlü bir anlam taşır:
     Bir yandan yukarı kaldırmak, diğer yandan yüceltmek.
 
     Kur’an’da bu kelime, bazen bir kulun gönlünün, bazen de mertebesinin yüceltilmesi anlamında geçer.
     “Ve seni yükselttik.” (İnşirah, 94:4) — burada yükselmek,
-    bir göğe çıkmak değil;
+    göğe çıkmak değil;
     bir onura, bir ilahi kabul’e ulaşmaktır.
 
     Ama “rafa‘ahu ilayhi” — “onu Kendisine yükseltti” denildiğinde,
@@ -4282,7 +4303,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Yani bu yükseliş, hem bir koruma hem bir yüceltmedir.
     Ne ölümün eline teslimiyet, ne alçaltılış;
-    bilakis, Allah’ın katında bir diriliş, bir onurlandırılıştır.
+    bilakis, Allah’ın katında bir onurlandırılıştır.
 
     2. “Öldü mü, Ölmeden mi Yükseltildi?”
 
@@ -4302,6 +4323,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu, bir kaçış değil, bir ilahi çağrıdır.
     Dünya kapılarını kapatırken, gök kapıları açılmıştır ona.
 
+    Ayetteki "ilayhi" (O'na/Katına) ifadesini, fiziksel bir gökyüzü tasvirinden ziyade bir emniyet alanı olarak vurgulayabiliriz:
+
+    Allah onu 'Kendine' yükseltti. Bu, mekanlar üstü bir sığınıştır. Zalimlerin kılıcının ulaşamadığı, iftiraların sesinin yetişemediği, sadece Hakk'ın rızasının hüküm sürdüğü o mutlak emniyet iklimine alınıştır. 
+    İsa Peygamber, dünyanın dar ve karanlık dehlizlerinden, Allah'ın sonsuz rahmet genişliğine hicret etmiştir.
+
     3. İsa’nın Yükseltilişi: Tarih Değil, Hakikat
 
     Kur’an, burada tarih yazmaz;
@@ -4312,9 +4338,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnsanın zulmü alçaltamaz.
 
     Yahudiler onu suçlu göstermek istediler;
-    Roma, onu bir haçın gölgesinde susturmak istedi.
+    Roma, onu bir hacın gölgesinde susturmak istedi.
     Ama Allah, o gölgeden bir nur çıkardı.
     Yani İsa, çarmıhın değil, kudretin tanığı oldu.
+
+    O, Azîz'dir; hiçbir güç O'nun planını bozamaz, İsa'yı O'nun elinden çekip alamaz. O, Hakîm'dir; bu yükseltiş bir kaçış değil, varoluşun en ince hikmetiyle örülmüş bir adalet tecellisidir.
+
+    Allah emanetini geri alırken kimseye sormaz. 
+    'Beni aldığında' (teveffî) ifadesi, bir bitiş değil, bir aslına rücu ediş hikayesidir. 
+    Düşmanları onu 'yok etmek' isterken, Allah onu 'tamamlamış' ve tertemiz bir şekilde huzuruna kabul etmiştir. 
+    Bu, ölümün soğukluğu değil, bir buluşmanın hararetidir.
 
     Bu, sadece bir peygamberin kurtuluşu değil —
     her çağda hakikati savunan herkesin umududur:
@@ -4334,7 +4367,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     hikmetle işleyen bir adaletin sonucudur.
     Çünkü hiçbir zulüm, ilahi plana galip gelemez.
 
-    Sonuç (Akılla Anlaşılabilir Gerçek)
+    Sonuç (Akıl Mizanında Bakarsak)
 
     Bu ayet, iki büyük hakikati taşır:
 
@@ -4348,6 +4381,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     kibrin çöküşü,
     hakikatin kudretiyle zulmün sönüşüdür.
 
+    Bu ayet bize şunu fısıldar:
+    Dünyanın yargısı (çarmıh), Allah’ın hükmü (yükseliş) yanında bir hiçtir.
+    Hz. İsa’nın yükseltilişi; bedenin yerçekiminden kurtulmasından ziyade, ruhun zulmün ağırlığından kurtarılmasıdır. Allah, seçtiği kulu alçaltılmaya terk etmemiştir.
+
     İsa’nın yükselişi,
     sadece geçmişte yaşanmış bir olay değil;
     her dönemde inananlara verilen bir vaattir:
@@ -4355,11 +4392,15 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → Hakkı savunan, alçaltılamaz.
     → Zulmeden kazandığını sanır, ama Allah son sözü söyler.
 
+    İnsanlar seni aşağı çekmeye, itibarını lekelemeye, sesini boğmaya çalışabilirler.
+    Ama sen Hakk’a sadık kaldıkça, Allah seni kendi katında, kimsenin ulaşamayacağı o yüce makama çoktan yükseltmiştir.
+
     Ve o söz, bir kez daha yankılanır:
     “Onlar ‘öldürdük’ dediler, ama Ben ‘yükselttim’”
 
     İşte iman,
     o iki cümle arasındaki farkı anlayabilenlerin nasibidir.
+    "Yükseltilmek" sadece ona has bir mucize değil, Hakk'a tutunan her ruhun yaşayacağı bir manevi süreç.
 
 
 159. **Ve Kitap Ehli’nden hiç kimse yoktur ki, ölmeden önce ona iman etmesin; Kıyamet günü de onların aleyhine şahit olacaktır.**
@@ -4372,27 +4413,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu ayet, İsa (a.s.) ile Ehl-i Kitap (Yahudiler ve Hristiyanlar) arasındaki ilişkiyi son bir kez daha ele alır ve imanın evrensel bir gerekliliğini vurgular. Ancak buradaki “ölümünden önce” ifadesindeki zamirin kime ait olduğu, Kur’an’ın kendisinde açıkça belirtilmemiştir — bu da akılla değerlendirme alanını açar.
 
-    İki Olası Anlam (Kur’an’a Sadık Kalınarak)
+    “Her birinin (Ehl-i Kitap’tan herkesin) kendi ölümünden önce” – Perdenin Kalktığı An
 
-    1. “Onun (İsa’nın) ölümünden önce”
+    İnsan için iki ölüm vardır: Biri biyolojik son, diğeri ise inat ve kibrin ölümü. Ayet bize fısıldar ki; hakikat o kadar sarsıcıdır ki, en katı kalp bile son nefesinde, perdeler kalktığında 'O, Allah'ın elçisiydi' demek zorunda kalacaktır. Ancak önemli olan, gözle görülen zorunlu iman değil, gayba duyulan gönüllü teslimiyettir.
 
-    Bu yorumda, İsa henüz dünya hayatında değildir;
-    → Allah onu yükseltmiştir (Nisâ, 158),
-    → Ve Kıyamet öncesi bir zamanda tekrar yeryüzüne inecektir.
-
-    O gün, Ehl-i Kitap’ın tamamı ona inanacaktır —
-    çünkü o, yalnızca bir peygamber değil,
-    Allah’ın kelamıyla gelen, mucizelerle desteklenen bir elçidir.
-
-    Bu inanç artık bir tercih değil, apaçık bir gerçek haline gelir.
-    Çünkü o dönemde hak apaçık olacak, İnanmamak, akla aykırı olacaktır.
-
-    2. “Her birinin (Ehl-i Kitap’tan herkesin) kendi ölümünden önce”
-
-    Bu yorumda, ayet bireysel sorumluluğu vurgular:
-    → Her Yahudi veya Hristiyan, kendi ölüm anına kadar
-    İsa’nın Allah’ın elçisi olduğunu kabul etmekle yükümlüdür.
-
+    Ayet bireysel sorumluluğu vurgular:
+    
     “Layu’minanna” (mutlaka iman edeceklerdir) ifadesi,
     bir zorlamayı değil,
     hakikatin apaçıklığı karşısında
@@ -4401,8 +4427,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu, bir inanç dayatması değil,
     hakikatin öyle belirgin olacağı anlamına gelir ki,
     aklı yerinde olan hiç kimse, ona inanmadan ölemez.
-
-    Hangisi Daha Kur’ani?
 
     Kur’an, her peygambere inanmayı imanın şartı sayar:
 
@@ -4414,18 +4438,25 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kur’an ayrıca, Kıyamet Günü’nde İsa’nın şahitlik edeceğini de açıkça söyler:
 
+    "Şahitlik" – Zamanı Aşan Bir Adalet Terazisi
+
+    Kıyamet günü İsa (as) şahitlik ederken; ne Yahudilerin onu 'sahte elçi' ilan etmesini, ne de Hristiyanların onu 'Tanrı'nın oğlu' yaparak ilahlaştırmasını kabul edecektir. 
+    O, Allah'ın kulu ve elçisi olma hakikatiyle her iki aşırılığın da karşısında duracaktır. Onun şahitliği, tahrif edilmiş inançların karşısında saf tevhidin zaferidir.
+
     “Kıyamet günü o, onların üzerine şahit olacaktır.”
 
     Bu, İsa’nın yalnızca tarihsel bir figür değil,
     ilâhî adaletin tanığı olduğunu gösterir.
 
-    Akılla Çıkarılacak Ders
+    Akılla Çıkarılacak Ders: "Ertelenen İdrak"
 
-    Ne yorum benimsenirse benimsensin, ayet bize şunu öğretir:
+    Ayet bize şunu öğretir:
 
     İsa, Allah’ın elçisidir — onu reddetmek, Allah’ın iradesini reddetmektir.
 
     Ehl-i Kitap, onu tanımalıydı; çünkü önceki kitaplarda gelişi müjdelenmişti (Ahkaf 46:10; Saf 61:6).
+
+    İsrailoğullarından bir tanığın tasdiki, imanın bir 'taklit' değil, önceki vahiylerle kurulan bir 'süreklilik' olduğunu kanıtlar. İsa’yı kabul etmek, kendi kitabının özüne sadık kalmaktır. Onu reddetmek ise, aslında kendi köklerini inkar etmektir.
 
     Kıyamet Günü’nde her topluluk, kendi elçisinden sorgulanacaktır.
 
@@ -4434,10 +4465,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Gerçek iman, son nefese kadar ertelenemez.
     Çünkü ölüm, gerçeğin apaçık olduğu anın başlangıcıdır.
 
-    Sonuç
+    Sonuç (Akıl Mizanında Bakarsak):
 
     Bu ayet, tarihsel bir tahmin değil,
     imanın evrensel ve kaçınılmaz doğasına dair bir ilandır.
+
+    Bu ayet, İsa (as) üzerinden tüm insanlığa bir "vakit daralıyor" uyarısıdır.
+
+    Kitap Ehli için: Kendi metinlerinde müjdelenen hakikate sırt çevirmenin son pişmanlığıdır.
+
+    İmanın, elçiler arasında ayırım yapmadan, ilahi zincirin her halkasına saygı duyarak tamamlanacağı gerçeğidir.
 
     İsa’ya inanmak:
 
@@ -4445,12 +4482,15 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ehl-i Kitap için ise bir aklî ve vicdanî borçtur.
 
+    Gözler kapanmadan kalbi açmak;
+    Ölmeden önce, Ölmeyecek olan Hakikate teslim olmaktır iman.
+
     Ve Kıyamet Günü’nde,
     her sözün hesabı sorulacak,
     her elçi, kendi kavmine şahitlik edecektir.
 
     Böylece İsa’nın şahitliği, hem tarihin hem de ahiretin adalet terazisinde yerini alır.
-    Allah’ın adaleti, herkesin kendi rehberiyle ölçerek yerine getirecektir. 
+    Allah adaletini, herkesi kendi rehberiyle ölçerek yerine getirecektir. 
 
 
 160. **Yahudilerin zulmünden dolayı, kendilerine helâl kılınan bazı iyi ve sağlıklı yiyecekleri onlara haram kıldık,- birçok insanı Allah yolundan alıkoydukları için;-**
@@ -4461,10 +4501,14 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Bu ayet, Allah’ın bir topluluğa yönelik hükmünün yalnızca gıda ya da temizlikle değil, ahlaki düzenle, toplumsal sorumlulukla ve adalet bilinciyle ilgili olduğunu gösterir.
 
-    1. Ceza mı, Yoksa Sonuç mu?
+    1. "Ceza mı, Yoksa Sonuç mu?" – Sebep-Sonuç İlişkisi
 
     Kur’an burada “haram kılma”yı bir öfke ürünü değil, bir sonuç olarak anlatır.
     Bu yasak, Allah’ın hışmının değil, insanın kendi fiilinin yansımasıdır.
+
+    Allah’ın koyduğu yasak, keyfi bir mahrumiyet değil; evrendeki denge yasasının (mizan) bir gereğidir. 
+    Zulüm, sistemin kimyasını bozar. Bir toplumda adaletsizlik arttığında, sadece ruhlar değil, sofralar da kirlenir. 
+    Yahudilere bazı temiz rızıkların haram kılınması, aslında içlerindeki kirliliğin dış dünyadaki bir yansımasıdır.
 
     Onlar,
     → Helal kılınmış nimetleri elleriyle kirlettiler,
@@ -4491,7 +4535,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Sorumlulukla gelen bir bağıştır.
     O bağ koparsa, nimet de uçar gider.
 
-    3. En Büyük Günah: İnsanları Allah’ın Yolundan Alıkoymak
+    3. En Büyük Günah: "Allah Yolundan Alıkoymak" – Işığa Engel Olmak
 
     Ayetin kalbi buradadır:
 
@@ -4505,6 +4549,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kur’an der ki:
 
     Bunun içindir ki: Biz İsrailoğullarına şöyle yazdık: Kim bir cinayete veya yeryüzünde bozgunculuk çıkarmaya karşılık olmaksızın bir cana kıyarsa, sanki bütün insanları öldürmüş gibi olur: Kim bir canı kurtarırsa, bütün insanların hayatını kurtarmış gibi olur. Sonra onlara peygamberlerimiz apaçık delillerle geldiği halde, sonrasında bile onlardan birçoğu yeryüzünde haddi aşmaya devam ettiler. : Maide 32
+
+    Allah yolundan alıkoymak; insanın fıtratındaki iyiliğe, adalete ve hakikate giden damarları tıkamaktır. 
+    Kendi çıkarları için dini bir bariyer olarak kullananlar, aslında insanlığın ortak manevi mirasını yağmalamış olurlar. 
+    Bu yüzden cezaları, en temel ihtiyaçları olan 'tayyib' (temiz) gıdalardan mahrum kalmaktır.
 
     Ve kim bir kalbi hidayete götürürse,
     bütün insanlığı diriltmiş olur.
@@ -4520,13 +4568,27 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → “Biz seçilmişiz” zannını yıkmak,
     → Nimeti, nimetin sahibini unutanlara hatırlatmak içindir.
 
-    Sonuç: Akılla Anlaşılabilir Gerçek
+    Helal olanın haram kılınması, bir ***'yoksunluk terapisi'***dir. 
+    Sahip olduğu gücü başkasını ezmek için kullanan bir topluma, en basit rızıklar üzerinden 'muhtaçlık' hatırlatılır. 
+    Tırnağından yağına kadar her detaydaki bu kısıtlama, insanın doğa ve yaratıcı karşısındaki kibrini budamaya yönelik ilahi bir müdahaledir.
+
+    Sonuç: Akıl Mizanında Bakarsak
 
     Bu ayet bize şunu söyler:
 
     Nimet, bir imtihandır.
     Ve kim o nimeti zulme alet ederse,
     nimet ondan geri alınır.
+
+    Bu ayet bize, rızık ile vicdan arasındaki gizli bağı anlatır.
+
+    Zulüm varsa: En temiz yiyecek bile ruhu beslemez, bereketi kaçar.
+    Engel varsa: Başkasının yolunu kapatan, kendi rızkının kapısını da daraltır.
+
+    Şunu unutmamalı:
+    İnsanlık tarihi boyunca yasaklar, Tanrı’nın bir şeyi sevmediği için değil; insanın kendini sevme biçimindeki bozukluğu (kibri) tedavi etmek için gelmiştir.
+    Bugün rızkımızda bir darlık, tadımızda bir eksiklik varsa; soframızdaki yiyeceklere değil, sokağımızdaki adalete bakmalıyız.
+    Çünkü Allah, kalbi kirli olanın ekmeğini temiz kılmaz.
 
     Kim başkalarını Allah’ın yolundan alıkoyarsa,
     kendi rahmet yolunu da tıkar.
@@ -4567,19 +4629,19 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
     İnsanlık yeryüzünde doğrulukla ayakta dursun diye, Allah peygamberlerini birer birer gönderdi. Her biri aynı hakikati dillendirdi: “Allah’tan başka ilah yoktur. O’na boyun eğin.” İşte bu, bütün peygamberlerin dilinden dökülen ilk söz, son söz, tek söz oldu. Çünkü hakikat bir taneydi, eğilip bükülmezdi. Ne zaman, nerede, kime geldiyse, özü aynı kaldı: Tevhid ve teslimiyet. Adı da belliydi: İslam.
 
-    Ama zaman değişti, halklar değişti, dertler başka türlü aktı toprağa. Allah da her kavme, kendi haline uygun yasa verdi. Musa’ya başka, İsa’ya başka. Şeriatlar farklılaştı, ama inanç değişmedi. Hiçbiri diğerinden üstün değildi. Hepsi bir zincirin halkasıydı. Hepsi bir bütünün parçasıydı. Kur’an bunu açıkça söyler: “Her biriniz için bir yol, bir yöntem koyduk.” Çünkü insanın yolu değişir, ama Allah’ın ışığı değişmez.
+    Ama zaman değişti, halklar değişti, dertler başka türlü aktı toprağa. Allah da her kavme, kendi haline uygun yasa verdi. Musa’ya başka, İsa’ya başka. Şeriatlar(yol ve yöntemler) farklılaştı, ama inanç değişmedi. Hiçbiri diğerinden üstün değildi. Hepsi bir zincirin halkasıydı. Hepsi bir bütünün parçasıydı. Kur’an bunu açıkça söyler: “Her biriniz için bir yol, bir yöntem koyduk.” Çünkü insanın yolu değişir, ama Allah’ın ışığı değişmez.
 
-    Sonra geldi Muhammed. Artık hakikat tamamlandı. Eksik ne varsa kapandı. Ne unutulmuşsa hatırlandı. O, önceki bütün peygamberlerin mührü oldu. Onların söylediklerini doğruladı, ama halkın içine düşürüldüğü karmaşayı da bitirdi. Kur’an ile gelen yasa, artık bir daha değişmeyecek olan yasaydı. Allah dedi ki: “Bugün size dininizi tamamladım.” Bundan sonrası, Allah’ın son sözüydü. Ne eksilir, ne artar.
+    Sonra geldi Muhammed. Artık hakikat tamamlandı. Eksik ne varsa kapandı. Ne unutulmuşsa hatırlandı. O, önceki bütün peygamberlerin mührü oldu. Onların söylediklerini doğruladı, ama halkın içine düşürüldüğü karmaşayı da bitirdi. Kur’an ile gelen yasa, artık bir daha değişmeyecek olan yasaydı. Allah dedi ki: “Bugün size dininizi tamamladım.” Bundan sonrası, Allah’ın son sözüydü. Ne eksilir, ne artar. İnsanlık büyüdükçe, Allah ona daha kapsamlı yasalar verdi. Nihayetinde Kur’an ile insanlık akli ve ruhi rüştüne erdi. Artık elbise değişmeyecek, çünkü hakikat tamamlandı.
 
     İşte bu yüzden, İslam bir halkın değil, insanlığın dinidir. Arap’a da gelir, Acem’e de. Zenginin de payına düşer, yoksulun da. Çünkü bu din, ne bir kavmin geleneğidir, ne de bir bölgenin öyküsü. Bu din, Allah’a teslim olan herkesindir. Yeryüzünde kim nefes alıyorsa, bu söz onadır: “İslam’dan başka din arayan, asla kabul görmez.”
 
     Ama bu yeni din, eskilerini silmedi, unutturmadı. Bilakis, onları doğruladı. Adem’den İsa’ya kadar gelen bütün elçilere, hepsinin getirdiği kitaba iman etti. Mümin dediğin, yalnız Muhammed’e değil, Musa’ya da inanır, İbrahim’e de. Aralarında ayrım yapmaz. Çünkü hakikatin parçalarıdır hepsi.
 
-    İslam’ın dili evrenseldir. Kur’an Arapça inmiştir ama söyledikleri tüm halkların dilinde yankı bulur. Çünkü konuştuğu vicdandır, adalettir, akıldır. Onun için Kur’an, yalnız bir inanç kitabı değildir; bir hukuk kitabıdır, bir adalet pusulasıdır, bir insanlık mektubudur.
+    İslam’ın dili evrenseldir. Kur’an Arapça inmiştir ama söyledikleri tüm insanların dilinde yankı bulur. Çünkü konuştuğu vicdandır, adalettir, akıldır. Onun için Kur’an, yalnız bir inanç kitabı değildir; bir hukuk kitabıdır, bir adalet pusulasıdır, bir insanlık kılavuzudur.
 
-    Ve şimdi, bu dinin yasası son yasadır. Öncekiler, kendi zamanlarının hükmüyle gelmişti. Ama çağlar değişti, halklar iç içe geçti, dünya büyüdü. Allah da bu büyüyen dünyaya göre yeni bir söz söyledi: Kur’an. Öncekiler zamanla bozuldu, unutuldu. Bu yüzden son söz söylendi ve o söz mühürlendi.
+    Ve şimdi, bu dinin yasası son yasadır. Öncekiler, kendi zamanlarının hükmüyle gelmişti. Ama çağlar değişti, halklar iç içe geçti, dünya büyüdü. Allah da bu büyüyen dünyaya göre yeni bir söz söyledi: Kur’an. Öncekiler zamanla bozuldu, tahrif edildi, unutuldu. Bu yüzden son söz söylendi ve o söz mühürlendi.
 
-    Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümlerine tutunur, işte o kişi İslam halkasının son halkasına katılmış olur. Ve kim ki birini inkâr eder, zinciri kırar. Bu zincir, insanı karanlıktan aydınlığa çeken zincirdir. Her halkaya tutunan, hakikatin yolcusu olur.
+    Kim ki Allah’a inanır, peygamberlerine saygı duyar, Kur’an’ın hükümlerine tutunur, işte o kişi İslam zincirinin son halkasına katılmış olur. Ve kim ki birini inkâr eder, zinciri kırar. Bu zincir, insanı karanlıktan aydınlığa çeken zincirdir. bu ipe/zincire tutunan, hakikatin yolcusu olur. Kim bu zincirin herhangi bir halkasına sırt dönerse, aslında kendi varoluş köklerine sırt dönmüş olur. Çünkü peygamberler, birbirinin rakibi değil; birbirinin şahidi ve tamamlayıcısıdır.
 
 
 164. **Elçilerden bazılarını sana daha önce anlatmıştık; Diğerlerinden bahsetmedik;- ve Allah Musa ile doğrudan konuştu;-**
@@ -4779,8 +4841,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → Allah’ın gücüne ve bilgisine göre,
     → İsyankârların cezasının kaçınılmaz ve emin bir şekilde gerçekleşeceği anlamındadır.
 
-    Kolay…
+    Kolay… 
     Ama Allah’a kolay. Çünkü O, adaletin kendisidir.
+    Allah için bu kolaydır; çünkü adalet O'nun için bir yük değil, varlığın tabiatıdır. Güneşin doğması nasıl kolaysa, yerçekimi nasıl zahmetsizse; kötülüğün kendi karşılığını bulması da öyle doğaldır. Allah, ceza vermek için 'çaba' sarf etmez; sadece hakikatin önündeki engelleri kaldırır ve insan, kendi ördüğü karanlığın içine düşer.
     İsyankâr, cezadan kaçabileceğini sanabilir;
     Oysa Allah için, onu adaletle cezalandırmak, bir işin en kolayıdır. 
 
@@ -4799,6 +4862,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     sonra da o ateşin dumanında kaybolur.
     O uzaklık, o kopuş…
     Allah’tan kopmanın sonsuz soğukluğu işte budur.
+
+    Cehennem, Allah'ın insan için hazırladığı bir zindan değil; insanın Allah'tan kaçarken içine sığındığı kibir sığınağının ebedi adıdır. İnsan orada Allah'tan değil, kendi vicdanının yansımasından kaçamaz. Ateş, dışarıdan gelmez; 'Allah'ın tutuşturulmuş ateşi, kalplerin üzerine tırmanır' (Hümeze, 6-7). Yani insan, dünyada neyi beslediyse, ahirette onun içinde uyanır.
 
     Ve Allah der ki:
     “Ben kullarımın tövbe etmesini isterim.
@@ -4819,25 +4884,38 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İster bir karınca gölgesinde, ister bir firavunun sarayında.
 
     Kaçış yoktur.
+    İnsan, mazeretler dokuyarak sadece kendini ve başkalarını kandırabilir. Oysa Allah’a göre hüküm vermek kolaydır; çünkü O, sadece eylemi değil, eylemin arkasındaki gizli niyeti de bir 'açık kitap' gibi okur. Adalet terazisi için delil toplama zahmeti yoktur; zira her şey O'nun huzurunda zaten ayan beyandır.
     Gerçek, Allah’ın bildiğidir.
-    Sonuç, O’nun adaletindedir.
+    Sonuç, O’nun adaletindedir. Yolun sonunda Cehennem olması, Allah'ın merhametsizliği değil; insanın merhameti bilerek ve isteyerek reddetmesinin doğal sonucudur.
 
     Ve Kur’an çağırır:
     İmanın yoluna gel.
     Kibirle değil.
-    Alçakgönüllülükle, samimiyetle, tevazu ile gel.
-    Yoksa o uçurum —
-    insanın kendi inadıyla kazdığı o uçurum —
-    seni yutar.
+    Alçakgönüllülükle, samimiyetle, tevazu ile gel. Gökyüzü hala açık, tövbe kapısı hala aralıkken;
+    Kendi karanlığından çıkıp, O'nun kolaylaştırdığı selamet yoluna girmeli insan.
+
+    Yoksa o çukur —
+    insanın kendi inadıyla kazdığı o çukur —
+    onu yutar.
 
 
 170. **Ey İnsanlık! Resul size Allah katından hak olarak geldi. Ona iman edin/inanın: Bu sizin için daha hayırlıdır. Ama eğer inkar ederseniz, bilin ki göklerde ve yerde olan her şey Allah’ındır. Allah, her şeyi bilendir, hüküm ve hikmet sahibidir.**
 
-    Kur’an’da apaçık söylenmiş: Allah, kimseyi zorla inkârcı yapmaz, kimseyi nankörlüğe mahkûm etmez. İnsan kendi eliyle kendi yolunu seçer. Kendi gönlüyle hakikate sırt döner, kendi aklıyla inadı seçer, kendi kalbiyle gerçeğe duvar örer. Allah da onun bu inadına, bu körlüğüne mühür vurur. Ama ilk adımı atan, daima insandır.
+    Kur’an’da apaçık söylenmiş: Allah, kimseyi zorla inkârcı yapmaz, kimseyi nankörlüğe mahkûm etmez. İnsan kendi seçimiyle kendi yolunu seçer. Kendi gönlüyle hakikate sırt döner, kendi aklıyla inadı seçer, kendi kalbiyle gerçeğe duvar örer. Allah da onun bu inadına, bu körlüğüne mühür vurur. Ama ilk adımı atan, daima insandır.
 
-    Kimseye zulmedilmez bu düzende. Kimse, doğduğu gün kaderine/yazgısına inkâr yazılmış değildir. Ne varsa, insanın iradesinde var. Allah, insanın elinden özgürlüğünü almamış, onu kendi yolculuğunun yolcusu yapmıştır. Ne hak, zorla sevdirilir insana, ne de sapkınlık dayatılır. Herkes kendi aklıyla seçer, ya nura çıkar ya karanlığa gömülür.
+    Kimseye zulmedilmez bu düzende. Doğduğu gün kimsenin yazgısına inkâr yazılmış değildir. Ne varsa, insanın iradesinde var. Allah, insanın elinden özgürlüğünü almamış, onu kendi yolculuğunun mimarı yapmıştır. Allah, insanı bir kukla gibi iplere bağlamamış; onu kendi yolculuğunun mimarı kılmıştır. Proje (Hak) bellidir, malzeme (Akıl ve Vicdan) elindedir. İnsan bu malzemeyle ya kendine bir 'cennet yurdu' inşa eder ya da kendi karanlığının 'zindanını' örer. Allah’ın mühürlemesi, sadece bu mimari tercihin altına atılan ilahi bir imzadır.
+    
+    Ne hak, zorla sevdirilir insana, ne de sapkınlık dayatılır. Herkes kendi aklıyla seçer, ya nura çıkar ya karanlığa gömülür.
 
     Aksi ne olurdu biliyor musun? Aksi, Allah’a iftira etmek olurdu. Onca ayeti yok saymak olurdu. İnsan aklını hiçe saymak, vicdanı susturmak olurdu. Ve işte o zaman, insan kendini hakikatten iyice koparır, düşer de bir daha doğrulamaz olurdu.
+
+    Sonuç (Akıl Mizanında Bakarsak):
+
+    Bu ayet, insana "haddini" ve "kadrini" (değerini) aynı anda hatırlatır.
+
+    Haddini hatırla: Gökler ve yer O’nundur; senin inkârın sadece seni küçültür.
+
+    Kadrini hatırla: Öylesine değerlisin ki, Allah sana seçme özgürlüğü vermiş ve önüne 'en hayırlı olanı' koymuştur.
 
 
 
@@ -4869,7 +4947,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     sevginin yolundan sapar, putlaştırır onu.
     İşte insan da bazen dininde böyle olur.
     Sevdiğini, kutsal saydığını, aklının üstüne koyar.
-    Sonra o sevgi, hakikatin önünü örter.
+    Sonra o sevgi, hakikatin önünü/üstünü örter.
 
     Yahudiler kendi kanlarını üstün tuttular.
     Kibirle baktılar öteki insanlara.
@@ -4883,8 +4961,14 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Meryem’i kutsadılar,
     sonra da dua ederken bir annenin önünde diz çöker oldular.
     Ve “Üç’tür Tanrı!” dediler.
-    Oysa gökyüzünde bir tek Güneş var,
-    ve bütün ışık ondan gelir.
+
+    La ilahe illallah...
+    
+    Lâ: "Hayır" demektir. Nefsin putlarına, toplumun dayattığı yanlışlara, adaletsizliğe ve cehaletin karanlığına hayır!
+
+    İlâhe: Tapınılan, peşinden gidilen, hayatın merkezi yapılan hiçbir güç...
+
+    İllallah: Ancak Allah vardır. Adaletin, merhametin ve mutlak hakikatin tek kaynağı O'dur.
 
     Üçleme dedikleri şey —
     aklın değil, tutkuların doğurduğu bir inançtır.
@@ -4904,8 +4988,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kur’an’ın dili açıktır,
     sade, berrak bir su gibi.
-    Ne felsefenin karanlığı var içinde,
-    ne de gnostik masalların sisleri.
+    
     İnsana akılla, kalple, vicdanla hitap eder.
     Der ki:
     Allah birdir.
