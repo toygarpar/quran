@@ -4995,7 +4995,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     O’nun benzeri yoktur.
     Yerde ve gökte ne varsa, O’nundur.
     Ve insanın sığınacağı tek yer —
-    O’dur.
+    O’dur. 
+    Allah'tan başka ilah tanımayan bir ruh, dünyadaki hiçbir güce köle olmaz.
 
     Ve ey Müslüman!
     Sen de gaflete düşme.
@@ -5061,9 +5062,10 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     aslında küçülür;
     Allah’ın önünde eğilmeyen,
     karanlığa eğilir.
-    Ve gün gelir —
-    herkes, her şey,
-    kendi yaptığının önüne dikilir.
+
+    İsa’nın kalbi bir insan kalbiydi. Çırpınışın, korkunun, duanın ne olduğunu bilirdi.
+
+    Ve gün gelir — herkes, her şey, kendi tercihlerinin yalın hakikatiyle yüzleşir. O gün, insanın ördüğü bütün maskeler düşer ve ruh, kendi eylemlerinin aynasına çarpar.
     O gün,
     yalnızca Allah’ın sözü kalır,
     ve o söz,
@@ -5085,6 +5087,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     O delil, Kur’an’dır —
     sözün en temiz, en derin, en diri hâli.
 
+    Bu burhan, sadece bir iddia değil; aklın karşısında dize geldiği, itirazın nefesinin kesildiği sarsılmaz bir kanıttır. Bu delil, insanın 'Nereden geldim, nereye gidiyorum?' sorusuna verilen en berrak cevaptır. O, zihindeki şüphe sisini dağıtan keskin bir kılıç gibidir.
+
     Bu delil,
     → Gizli bir ilham değil,
     → Sadece seçkinlere özel bir bilgi değil,
@@ -5099,20 +5103,22 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → Yolu aydınlatır,
     → Adaleti, merhameti, tevhidi ve ahlakı ortaya koyar.
 
+    Işık sadece eşyayı göstermez, eşyanın hakikatini de gösterir. Bu nur; adaleti zulümden, iffeti yozlaşmadan, tevhidi şirkten ayıran ilahi bir farkındalıktır. 
+    Nur, Kur'an'ın kalbe dokunan, insanı karanlık dehlizlerden çekip çıkaran şifasıdır.
+
     Ey insanlık!
     Artık size hem delil geldi,
     hem ışık…
     İkisini birden göremeyen,
     kendi gözünü karartmış olur.
-    Çünkü o nur,
+    İnsan, karanlıkta yolunu bulamaz.
+    Toplumlar, adaletsizlik, putperestlik, zulüm ve cehalet karanlığında boğulur.
+    
+    O nur,
     her gönülde bir kapı aralamak içindir.
     Ve o kapıdan giren,
     karanlıktan kurtulur.
 
-    İnsan, karanlıkta yolunu bulamaz.
-    Toplumlar, adaletsizlik, putperestlik, zulüm ve cehalet karanlığında boğulur.
-    İşte o karanlığa, Allah apaçık bir nur göndermiştir:
-    → O nur, Kur’an’dır —
     Adaleti emreder,
     Zulümü yasaklar,
     İffeti korur,
@@ -5125,7 +5131,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     → Sınırlı bir gruba değil,
     → Bütün insanlığa yöneliktir.
 
+    Akıl Mizanında Bakarsak:
+    İnsan, delilsiz kaldığında şüphede boğulur; nursuz kaldığında ise yoldan sapar. Allah, Kur'an ile hem zihni ikna etmiş hem de ruhun önünü aydınlatmıştır.
 
+    Artık mazeret kalmamıştır. Delil ortada, Nur karşımızdadır. Bu ışığa rağmen karanlıkta kalan, dışarıda güneş yok diye değil, kendi gözlerini sımsıkı kapattığı içindir. 
+    Çünkü bu nur, sadece dışarıyı değil, insanın içindeki o en mahrem odayı, vicdanı aydınlatmak için inmiştir.
 
 
 175. **Artık Allah’a inanıp O’na sımsıkı sarılanlar var ya, Allah onları katından bir rahmet ve lütfa/merhamete sokacak ve onları kendisine varan dosdoğru yola iletecektir.**
@@ -5137,11 +5147,19 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     bir lütufla sarar,
     ve sonunda kendi huzuruna, dosdoğru bir yola iletir.
 
+    Allah’a inanmak bir başlangıç, O’na sımsıkı sarılmak ise bir sadakat yolculuğudur. 
+    Bu sarılış; fırtınalı bir denizde pusulayı bırakmamak, karanlıkta ipin ucunu kaçırmamaktır. 
+    İnsan Allah’a tutunduğunda, aslında kendi dağılan parçalarını bir araya getirir. 
+    Çünkü O’na sarılmak, geçici olandan ebedi olana sığınmaktır.
+
     İman edenin yolu, bir harita değil, bir yöneliştir.
     Her adımda biraz daha yaklaşır,
     her sarsıntıda biraz daha tutunur.
-    Ve sonunda, o tutunmanın kendisi olur —
-    çünkü iman, Allah’a varmanın ilk hâlidir.
+    Allah onlara iki kapı açar: 
+    Önce Rahmet, yani insanın hatalarını örten, onu teselli eden şefkat; 
+    sonra Lütuf, yani emeğinin çok ötesinde verilen ilahi ikram. 
+    Rahmet insanı ayakta tutar, lütuf ise onu kanatlandırır. 
+    Bu çifte kuşatma, kulun Allah katındaki 'özel misafirliği'nin nişanesidir.
 
     O’nun merhameti,
     göklerin üstünden değil, kalplerin içinden çağlar.
@@ -5149,10 +5167,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     O da onu Kendine bağlar —
     bir nur halkası gibi, kesintisiz, sarsılmaz.
 
+    Dosdoğru yol (Sırât-ı Müstakîm), sadece bir çizgi değil; zihnin karmaşasından, nefsin labirentlerinden ve zanların gürültüsünden kurtaran bir duruluktur. 
+    Bu yolun sonu Allah’a varır; ama aslında bu yol, insanın kendi hakikatine, yani fıtratına dönüş yoludur.
+
     Ve o yolun sonunda,
     insan kendi aslına döner.
     Çünkü Allah’a giden yol,
     zaten insanın içinden, iradesinden, bireysel sorumluluğundan geçer.
+
+    Kim O’na bağlanırsa, O da onu Kendine bağlar. Bu bağ, ne ölümle kopar ne de zamanla eskir. Bu, insanın kendi özgürlüğüyle seçtiği en onurlu aidiyettir.
+
 
 176. **Senden hukuki bir karar istiyorlar. De ki: Allah, nesep ve zürriyete mirasçı bırakmayanlar hakkında işte böyle emrediyor. Çocuğu olmayan bir kız kardeş bırakarak ölen erkek ise mirasın yarısı onundur. Ölen kadın, çocuğu olmayan bir kadın ise mirasını erkek kardeşi alır. Eğer iki kız kardeş varsa, Mirasın üçte ikisi aralarında onlarındır: Eğer erkek ve kız kardeşler varsa, onlar da paylaşırlar; erkek, dişinin iki katı paya sahiptir. Yanılmayasınız/Sapmayasınız/Yanlış yapmayasınız diye Allah size şeriatını/kanununu işte böyle açıklıyor. Ve Allah, her şeyi bilendir.**
 
@@ -5167,12 +5191,35 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Eğer kardeşler hem erkek hem de kızsa,
     erkek, kadının payının iki katını alır.
 
+    Bu paylaşım, birinin diğerinden üstünlüğü değil; toplumsal yükün ve sorumluluğun adaletle dağıtılmasıdır. 
+    Allah, her bir nefse taşıyabileceği kadar yük, o yük nispetinde de hak vermiştir. 
+    Kimse hakkından fazlasına göz dikmesin, kimse payından azına razı edilmesin diye...
+
+    Allah’ın koyduğu bu paylar, yalnızca rakamlardan ibaret değildir; bir ailenin ayakta kalması için örülmüş ilahi bir denge mimarisidir. 
+    'Kelâle' (babasız ve çocuksuz ölme) durumunda bile, kan bağına dayalı vefanın nasıl korunacağını gösterir. Bu paylaşım, ölenin ardından kalanların birbirine tutunması için bırakılmış bir vasiyettir.
+
     Böylece Allah,
     hakkı eğip bükmeyesiniz,
     yoldan şaşırmayasınız diye hükmünü apaçık bildirmiştir.
 
+    İnsan, menfaat söz konusu olduğunda en yakınından bile hakkı kaçırmaya meyillidir. 
+    Allah, 'Sapmayasınız' diyerek insanın bu zaafına set çeker. 
+    Bu hükümler, güçlünün zayıfı ezmediği, her ferdin hakkının Allah’ın koruması altına alındığı bir adalet pusulasıdır. 
+    Zira Allah, hükmünü sadece güce göre değil, hakikate göre verir.
+
     O’dur her şeyi bilen,
     her varlığın seçimini adaletle ölçen.
+
+    Akıl Mizanında Bakarsak:
+    Allah bu hükümleri; hakkı eğip bükmeyesiniz, ihtirasın karanlığında yolunuzu şaşırmayasınız diye açıklar. Miras, ölenin malı değil, hayatta kalanların imtihanıdır. Paylar arasındaki fark, birinin diğerinden daha değerli olmasından değil; ilahi adaletin toplumsal görevler arasındaki kurduğu o kusursuz dengedendir.
+
+    Surenin sonu, başladığı yerle birleşir: Adalet. 
+    O, her şeyi hakkıyla bilendir (Alîm). Kimin neyi, ne kadar hak ettiğini ve hangi hükmün insanlık için en hayırlı olduğunu ancak O bilir.
+
+    Son Söz:
+    Sure biterken kalbimizde şu yankı kalır:
+    Kanun Allah'ın, mülk Allah'ın, adalet Allah'ın vaadidir.
+    Bize düşen, bu mizanı bozmamaktır.
 
 
 
