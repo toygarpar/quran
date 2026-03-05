@@ -685,7 +685,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ve kibir…
     Cimriliğin kardeşidir.
-    İnsan kendini büyük gördüğünde, kalbi kurur. O zaman hem vermez hem söylenir: “Bunlar hak etmez, ben çok çalıştım.” Hâlbuki Allah sana, çalıştığın için değil, rahmetiyle vermiştir. Unutma bunu.
+    İnsan kendini büyük gördüğünde, kalbi kurur. O zaman hem vermez hem söylenir: “Bunlar hak etmez, ben çok çalıştım.” Hâlbuki emek senin vazifen, o emeği rahmetiyle bir nimete dönüştürmek ise Allah’ın takdiridir. Unutma bunu.
 
     Kimi insanlar başkasının yediği ekmeğe bile göz diker. Kendisi doyar ama komşusu aç kalsa bile içi rahat eder. Çünkü o, paylaşmanın insanı insan ettiğini bilmez. Çünkü onun kalbi taşlaşmış, gözü körleşmiştir.
 
@@ -695,7 +695,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Burada insanı küçük gören, orada yerin dibine geçer.
 
     Çünkü Allah, kim ne sakladıysa bilir. Kim hangi nimeti gizlediyse, kim neyi paylaşmadıysa, onun da hesabını sorar.
-
 
 
     a. Cimrilik Sadece Para Eksikliği Değildir
