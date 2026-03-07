@@ -1628,7 +1628,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kim itaat ederse, seni yüceltmiş olmaz—kendi vicdanını yüceltir.
     Kim itaat ederse, sana bir iyilik yapmış olmaz—kendi sorumluluğunu yerine getirir.
-    Kim isyan ederse, seni değil, kendi kaderini boğar.
+    Kim isyan ederse, seni değil, kendi yazgısını boğar.
     Kim yüz çevirirse, sana değil, Allah’a sırt dönmüş olur.
 
     Sen yalnızca bir habercisin/elçisin.
