@@ -541,30 +541,343 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Allah, bize kendi kelamıyla seslenir; vahiylerle, melekler aracılığıyla ve yarattığı kainatla konuşur. Doğa’nın her zerresi, O’nun yüceliğini terennüm eder. İnsan, aklını dürüstçe kullanır ve vicdanına kulak verirse, aynı şahitliği kendi kalbinin derinliklerinde bulur.  
       
     Göklerin ve yerin her köşesi, yıldızlardan esen rüzgarlara kadar, O’nun birliğine, yüce varlığına ve engin hikmetine işaret eder. İnsan yeter ki bakmayı bilsin, duyduğu sesleri anlamayı istesin; o zaman kainatın susmayan şarkısı tek bir gerçeği dile getirir: Allah’tan başka yoktur tapılacak. O, her şeyin üzerinde, her şeyi bilen ve her şeyi hikmetiyle yöneten tek varlıktır.  
+
+    Sorun fiziksel bakış değil, zihinsel algıdır.
+
+    "Birçoğu cehennemlik olacak yarattığımız cinler ve insanlardır: Onların kalpleri vardır ki onunla idrak etmezler, gözleri vardır ki onunla görmezler ve kulakları vardır ki onunla işitmezler. Onlar hayvanlar gibidir, hatta daha da sapıktırlar: Çünkü onlar uyarılardan gafildirler." : Araf 179
+
+    "Yedi gök, yer ve bunların içindekiler O’nu tesbih ederler. Hiçbir şey yoktur ki O’nu hamd ile tesbih etmesin; Yine de O’nun yüceliğini nasıl ilan ettiklerini anlamıyorsunuz! Şüphesiz O, halimdir, çok bağışlayıcıdır!" : Isra 44
+
+    Tevhid ve Şahitlik
+
+    “Allah, kendisinden başka ilah olmadığına şahitlik etti. Melekler ve ilim sahipleri de adaleti ayakta tutarak buna şahitlik ederler. O’ndan başka ilah yoktur; O mutlak güç sahibidir ve hüküm sahibidir.”
+    (Âl-i İmrân 3:18)
+
+    Bu ayet, tevhid inancını yalnızca bir inanç bildirisi olarak sunmaz. Onu şahitliğe dayalı bir gerçek olarak ifade eder.
+
+    Önce Allah’ın kendi beyanı zikredilir:
+    “Allah, kendisinden başka ilah olmadığına şahitlik etti.”
+
+    Bu ifade vahyin temelini oluşturur. Kur’an, Allah’ın birliğini doğrudan ilahi kelamın beyanı olarak ortaya koyar.
+
+    Ardından iki farklı şahit daha zikredilir:
+    melekler ve ilim sahipleri.
+
+    Meleklerin şahitliği, görünmeyen âlemin tanıklığını temsil eder. Onlar Allah’ın emriyle işleyen kozmik düzenin parçasıdır.
+
+    İlim sahiplerinin şahitliği ise insan aklının ve araştırmasının tanıklığıdır. Kur’an burada özellikle “bilenleri” zikreder. Bu önemli bir vurgudur. Çünkü Kur’an’a göre bilgi, hakikate ulaşmanın temel yollarından biridir.
+
+    Bu nedenle başka bir ayette şöyle sorulur:
+
+    “Hiç bilenlerle bilmeyenler bir olur mu?”
+    (Zümer 39:9)
+
+    Buradaki mesaj açıktır: Hakikat bilgisizliğin değil, bilginin alanında ortaya çıkar.
+
+    Ayetin ortasında geçen “adaletle ayakta durmak” ifadesi de dikkat çekicidir. 
+
+     "Ey iman edenler! Allah için adaleti ayakta tutan, şahitlik eden kimseler olun." (Nisa 4:135)
+    
+    Bu ifade şahitliğin tarafsız ve dürüst bir duruşla yapılması gerektiğini anlatır. Yani tevhid yalnızca duygusal bir kabul değil, delillere dayalı bir değerlendirme sonucudur.
+
+    Kur’an insanı bu nedenle evrene bakmaya çağırır. Çünkü yaratılmış olan her şey bir işaret taşır.
+
+    Başka bir ayette şöyle denir:
+
+    “Ve onlar göklerde ve yerde nice âyetler var ki yanlarından geçip gidiyorlar ve yine de onlardan yüz çeviriyorlar!”
+    (Yusuf 12:105)
+
+    Yani evren zaten işaretlerle doludur; mesele insanın onları fark edip etmemesidir.
+
+    Bu yüzden Kur’an’ın yaklaşımı basittir:
+    İnsan aklını kullanır, gördüğü düzeni düşünür ve önyargısız bir şekilde değerlendirirse, varlığın ardındaki birliği fark eder.
+
+    Sonuç
+
+    Epistemolojik Model:
+    Kaynak: Allah'ın Kendi Beyanı (Vahiy).
+    Doğrulama 1: Melekler (Gayb Aleminin Tanıkları).
+    Doğrulama 2: İlim Sahipleri (İnsan Aklının Tanıkları).
+    Metod: Adalet (Önyargısız, kanıta dayalı analiz).
+    Sonuç: Tevhid (La ilahe illallah).
+
+    Âl-i İmrân 3:18 ayeti tevhidi üç farklı tanıklıkla ortaya koyar:
+
+    Allah’ın vahyi,
+
+    Meleklerin tanıklığı,
+
+    Ve ilim sahiplerinin bilgisi.
+
+    Bu üç tanıklık aynı gerçeği işaret eder:
+
+    Allah’tan başka ilah yoktur.
+
+    Kur’an’ın çağrısı da budur:
+    İnsan, hakikati kör bir taklitle değil, bilgi, adalet ve düşünceyle kavramalıdır. Kuran, kendi doğruluğunu akıl ve bilgiye havale ediyor. Bu, dogmatizmin değil, rasyonel imanın temelidir.
     
 19. **Allah katında din, O’nun iradesine teslimiyettir. Kitap Ehli de, kendilerine ilim geldikten sonra, ancak birbirlerini kıskanarak ondan ayrıldılar. Kim Allah’ın âyetlerini inkar ederse, Allah hesabı çabuk görür./Allah katında din, İslam’dır; O’na teslimiyettir. Kitap ehli, kendilerine ilim geldikten sonra, ancak birbirlerine karşı duydukları kıskançlık yüzünden ayrılığa düştüler. Kim Allah’ın ayetlerini inkar ederse, şüphesiz Allah hesabı çabuk görendir.**  
       
     Allah katında din, İslam’dır; yani O’nun iradesine teslim olmak. Ancak Kitap Ehli, bu hakikati bildikten sonra sırf birbirlerine olan kıskançlıklarından, çekememezliklerinden ve inatlarından dolayı bölündüler. Allah’ın ayetlerini inkar edenlere gelince, bilsinler ki Allah’ın hesabı hızlıdır, adaleti şaşmaz.  
       
-    Bu ayrılıklar, insanın içine düşen kıskançlıktan, bencillikten, inatla kendi bildiğini okuma tutkusundan kaynaklanır. Kimileri sırf aksilik olsun diye, sırf karşı çıkmış olmak için direnir, hakikate yüz çevirir. Ama unutulmamalıdır ki, bu inat ve isyan, insanı ancak kendi sonuna sürükler. Allah’ın koyduğu düzeni bozmak isteyen, sonunda o düzenin karşısında titrer. Allah, her şeyi görür, her hesabı tastamam yapar.  
+    Bu ayrılıklar, insanın içine düşen kıskançlıktan, bencillikten, inatla kendi bildiğini okuma tutkusundan kaynaklanır. Kimileri sırf aksilik olsun diye, sırf karşı çıkmış olmak için direnir, hakikate yüz çevirir. Ama unutulmamalıdır ki, bu inat ve isyan, insanı ancak kendi sonuna sürükler. Allah’ın koyduğu düzeni bozmak isteyen, sonunda o düzenin karşısında titrer. Allah, her şeyi görür, her hesabı tastamam yapar. 
+
+    Bu ayet din kavramını açık bir şekilde tanımlar:
+    Allah katında din, İslam’dır.
+
+    Buradaki “İslam” kelimesi bir topluluk adı olmaktan önce bir duruşu ifade eder. Kelime anlamı teslimiyettir. Yani insanın kendisini Allah’ın iradesine ve koyduğu düzene teslim etmesi demektir.
+
+    Kur’an’a göre bütün peygamberlerin getirdiği mesajın özü budur. Nuh, İbrahim, Musa, İsa ve diğer peygamberler de insanları aynı teslimiyete çağırmışlardır. Bu yüzden Kur’an’da peygamberlerin hepsi aynı çizgide görülür.  (Al-i İmran 3:67, 3:52)
+
+    "Deyin ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya ve İsa’ya verilene ve bütün peygamberlere Rablerinden verilene inandık: Biz onlardan hiçbirini diğerinden ayırt etmeyiz ve Allah’a İslam’da secde ederiz.”" : Bakara 136
+
+    "Ve O’nun yolunda/davasında, ihlasla ve disiplinle, gerektiği gibi cihad edin. O sizi seçti ve size dinde hiçbir zorluk yüklemedi. O babanız/atanız İbrahim’in kültüdür. Hem daha önce hem de bu vahiyde sizi Müslümanlar olarak isimlendiren O’dur; Peygamber size şahit olsun, siz de insanlara şahit olasınız! O halde salatı düzenli ikame edin, zekatı verin ve Allah’a sımsıkı sarılın. O sizin Koruyucunuzdur – O en iyi koruyan ve en iyi yardım edendir!" : Hac 78
+
+    Ayetin ikinci kısmı ise önemli bir tarihsel tespit yapar.
+    Kitap Ehli, kendilerine ilim geldikten sonra ayrılığa düştüler.
+
+    Burada dikkat edilmesi gereken nokta şudur: Ayrılığın nedeni bilgisizlik değildir. Kur’an’a göre sorun, bilgi geldikten sonra ortaya çıkan kıskançlık ve çekişmedir. İnsanlar çoğu zaman hakikati anlamadıkları için değil, kendi konumlarını ve çıkarlarını korumak istedikleri için ayrılığa düşerler.
+
+    Bu nedenle din alanındaki bölünmeler çoğu zaman fikir farklılığından değil, rekabet, üstünlük iddiası ve ego gibi insani sebeplerden doğar.
+
+    Kur’an’ın başka bir ayeti de bu gerçeği vurgular:
+
+    “İnsanoğlu tek bir ümmet idi ve Allah, müjdeler ve uyarıcılar ile elçiler gönderdi; İnsanlar arasında anlaşmazlığa düştükleri şeylerde hüküm vermek için onlarla birlikte Kitab’ı hak ile indirdi; fakat Kitap ehli, kendilerine apaçık âyetler geldikten sonra, kendi aralarında bencillikle başkaldırırak/asilik ederek ihtilafa düştüler. Allah, kendi lütfundan müminleri, ayrılığa düştükleri şeylerde adalete/gerçeğe/hakka yöneltti. Çünkü Allah, dilediğini dosdoğru bir yola iletir.”
+    : Bakara 213
+
+    Ayetin son kısmında ise bir uyarı yer alır:
+
+    “Kim Allah’ın ayetlerini inkâr ederse, Allah hesabı çabuk görendir.”
+
+    Buradaki “hesabın çabuk olması”, acele bir ceza anlamına gelmez. Kur’an’ın dilinde bu ifade, ilahi adaletin kesin ve kaçınılmaz olduğunu anlatır. İnsan yaptığı hiçbir şeyin karşılıksız kalmayacağını bilmelidir.
+
+    Sonuç
+
+    Tanım: Din = Hakikate ve Yaratıcı'nın Yasalarına Teslimiyet (İslam).
+    Tarihçe: Tüm peygamberler bu teslimiyeti öğretti (Ortak Payda).
+    Sorun: İnsan ego'su (Kıskançlık/Baghy) -> Bilgiyi çarpıtma -> Mezhepleşme/Ayrılık.
+    Sonuç: Yasanın İhlali -> Kaçınılmaz Hesap (Sünnetullah).
+
+    Âl-i İmrân 3:19 üç temel gerçeği ortaya koyar:
+
+    Din, Allah’ın iradesine teslim olmaktır.
+
+    Dini ayrılıklar çoğu zaman bilgiden değil, insanın egosundan doğar.
+
+    İnsan yaptığı tercihlerden mutlaka sorumlu tutulacaktır.
+
+    Kur’an’ın çağrısı açıktır:
+    İnsan hakikati bildiği halde onu kıskançlık ve çekişmelerle gölgelememeli; gerçeğe teslim olmayı seçmelidir. 
       
     
 20. **Eğer seninle tartışırlarsa/çekişirlerse, de ki: “Ben bütün varlığımı Allah’a teslim ettim, bana uyanlar da öyle.” Ve Kitap Ehli’ne ve ümmi olanlara de ki: “Siz de teslim oluyor musunuz?” Eğer dönerlerse/teslim oldularsa doğru yoldadırlar, eğer yüz çevirirlerse sana düşen, tebliğ etmektir. Ve Allah katında hepsi O’nun kullarıdır.**  
       
-    Eğer seninle tartışmaya kalkarlarsa, de ki: “Ben bütün varlığımla Allah’a teslim oldum; bana uyanlar da O’na teslim oldu.” Ve sonra Kitap Ehli’ne ve bilmeyenlere sor: “Siz de teslim oldunuz mu?” Eğer teslim olurlarsa doğru yolu bulmuşlardır. Yok, eğer yüz çevirirlerse senin görevin sadece mesajı iletmektir. Gerisini Allah’a bırak, çünkü O’nun katında bütün kullar eşit şekilde hesap verir.  
+    İnsanlığın Ortak Değeri
+
+    Allah katında bütün insanlar O’nun kullarıdır. Kur’an bu gerçeği açık bir şekilde dile getirir:
+
+    “Ey insanlık! Biz sizi bir erkek ve bir dişi bir çiftten yarattık ve birbirinizi hor görmeyesiniz, birbirinizi tanıyasınız diye sizi milletlere ve kabilelere ayırdık. Muhakkak ki Allah katında en üstün olanınız, takvaca en üstün olanınızdır. Allah, her şeyi bilendir ve her şeyden haberdardır.”
+    : Hucurât 13
+
+    Bu ayet insanlık için temel bir ilke koyar. Soy, kabile, din geçmişi ya da toplumsal statü insanın değerini belirlemez. Kur’an’a göre üstünlük ölçüsü yalnızca takvadır. İnsanların değeri, Allah’a karşı sorumluluk bilinciyle ölçülür.
+
+    Bu ilke, Kur’an’ın insanlık tasavvurunun temelidir. Her insan Allah’ın kuludur ve O’nun huzurunda eşittir. Bu yüzden peygamberlerin çağrısı belirli bir kavme ya da sınıfa değil, bütün insanlığa yöneliktir.
+
+    Tebliğin Temel Çerçevesi
+
+    Kur’an bu çağrının nasıl yapılacağını da açıklar. Âl-i İmrân suresinde Peygamber’e verilen talimat bunun açık bir örneğidir.
+
+    Arapçada “yüz” anlamına gelen vech kelimesi, insanın bütün varlığını ve yönelişini temsil eder. Bu yüzden ayette geçen ifade yalnızca sözlü bir bağlılığı değil, insanın tüm varlığıyla yönelişini anlatır.
+
+    Ayetin mantıksal akışı bu çerçevede kuruludur:
+
+    1 — Kişisel duruş
+    “Ben yüzümü Allah’a teslim ettim.”
+
+    2 — Topluluk boyutu
+    “Bana uyanlar da teslim oldu.”
+
+    3 — Evrensel çağrı
+    “Kitap Ehli ve ümmiler, siz de teslim oluyor musunuz?”
+
+    4 — Sonuç ve sınır
+    “Eğer yüz çevirirlerse sana düşen yalnızca tebliğdir.”
+
+    Bu son cümle Kur’an’ın tebliğ anlayışını belirleyen en önemli ilkelerden biridir.
+
+    “Eğer yüz çevirirlerse sana düşen yalnızca tebliğdir.”
+
+    Aynı mesaj Kur’an’ın başka ayetlerinde de tekrar edilir:
+
+    “Peygambere düşen yalnızca tebliğdir.”
+    (Maide 5:99)
+
+    “Biz seni onların üzerine bekçi yapmadık.”
+    (Şura 42:48)
+
+    “Hatırlat; sen ancak hatırlatıcısın.”
+    (Gâşiye 88:21-22)
+
+    Bu ayetler açık bir sınır koyar: Peygamberin görevi insanları zorla ikna etmek değildir. Ona düşen yalnızca mesajı iletmektir.
+
+    Kitap Ehli ve Ümmiler
+
+    Kur’an’ın hitabı yalnızca tek bir topluma yönelmez. Çağrı hem Kitap Ehline hem de ümmilere yapılır.
+
+    Kitap Ehli, insanlık tarihindeki vahiy geleneğinden haberdar olan topluluklardır. Onlara yapılan çağrı aslında yeni bir din getirmekten çok, unutulan hakikati yeniden hatırlatmaktır. Çünkü Kur’an’a göre İslam’ın özü, bütün peygamberlerin getirdiği tek dinin devamıdır.
+
+    Öte yandan çağrı yalnızca onlara değil, aynı zamanda vahiy geleneğinden habersiz olan topluluklara da yönelir. Kur’an’da geçen “ümmi” kelimesi bu durumu ifade eder.
+
+    Bu kelime birkaç anlam katmanı taşır:
+
+    Kendisine vahiy gelmemiş toplum
+
+    Kitap sahibi olmayan topluluk
+
+    Kur’an bunu şöyle anlatır:
+
+    “O, ümmîlere âyetlerini onlara okusun, onları arındırsın ve daha önce apaçık bir sapıklık içindeyken onlara kitabı ve hikmeti öğretsin diye içlerinden bir elçi gönderendir.”
+    : Cuma 2
+
+    Bu yüzden peygamberin çağrısı iki farklı kesime yönelmiştir:
+    vahiy geleneğini bilenlere hatırlatma, bilmeyenlere ise öğretme.
+
+    Birçok insan bu çağrıya karşılık vermiş ve iman etmiştir. Fakat bazıları da yüz çevirmiş, hatta inananlara zulmetmiştir. Kur’an bu durumu insanın kendi tercihi olarak değerlendirir.
       
-    Kitap Ehli, insanlık tarihindeki dini geçmişten az çok haberdardır. Onlara yapılan çağrı, kolayca anlaşılır bir hakikati taşır, çünkü İslam’ın özü, zaten tek bir dinin yeniden dirilişidir. Fakat bu çağrı sadece Kitap Ehli’ne değil, aynı zamanda cahil, bilgisizlik içinde olan müşrik Araplara da yapılmıştır. Onlar, içlerinden birinin aldığı ilahi vahyi ve getirdiği yeni bilgiyi görüp örnek almaya davet edilir. Birçokları bu davete icabet etti, iman etti. Ancak Allah’ın rahmetine sırtını dönenler ve inananlara zulmedenler bilmelidir ki, Allah kendi dostlarının yanındadır.  
-      
-    Bak, bu anlatının içinde nasıl ince bir örgü var. Doğumun gizemi, Hz. İsa’nın hikayesine götüren bir ipucu verir. Kitap Ehli’nin dini, İslam’ın aynı kaynaktan geldiğini anlatan açıklamalarla birleştirilir. Ardından, Kitap Ehli’nin zamanla dinlerini bir tarafa çekip, kendi aralarında bölündüğü hatırlatılır. Ve nihayet, İmran ailesinin kutsal soyundan gelen Hz. İsa’nın hikayesine ulaşırız. Onu Yahudilerin bir kısmı nasıl reddettiyse, Hz. Muhammed’i de hem Yahudilerin hem de Hristiyanların bir kısmı aynı şekilde reddetti. Ama bilinir ki, hakikatin ışığını reddeden, kendi karanlığında kaybolur; oysa Allah’ın nuru, hiçbir engelle sönmez.  
+    Teslimiyet Çağrısı
+
+    Kur’an, Âl-i İmrân suresinde din meselesini açık bir çerçeve içinde ele alır. Bu çerçevenin merkezinde teslimiyet vardır. Ayetlerde önce hakikatin tanıklığı ortaya konur, ardından bu hakikate karşı insanın nasıl bir tutum alması gerektiği anlatılır.
+
+    Kur’an’a göre Allah katında din İslam’dır. Buradaki “İslam”, yalnızca bir topluluğun adı değil, bir yönelişi ifade eder. Kelimenin anlamı teslim olmaktır. İnsan, varlığını ve iradesini Allah’ın koyduğu düzene yöneltir; O’nun hakikatini kabul eder.
+
+    Kur’an, peygamberlerin getirdiği mesajın özünü de böyle açıklar. İbrahim de, Musa da, İsa da insanları aynı hakikate çağırmıştır: Allah’a teslim olmaya. Bu yüzden Kur’an’da peygamberler arasında bir ayrım yapılmaz; hepsi aynı zincirin halkaları olarak görülür.
+
+    Ancak tarih boyunca insanlar bu çağrıya aynı şekilde karşılık vermemiştir. Kur’an, özellikle Kitap Ehli hakkında önemli bir tespit yapar: Kendilerine bilgi geldikten sonra aralarında ayrılığa düşmüşlerdir. Bu ayrılığın sebebi bilgisizlik değildir. Kur’an’a göre bunun arkasında kıskançlık, çekişme ve üstünlük iddiası vardır.
+
+    İnsan çoğu zaman hakikati bilmediği için değil, kendi konumunu ve çıkarını korumak istediği için ondan uzaklaşır. Dinin etrafında ortaya çıkan bölünmelerin önemli bir kısmı da bu yüzden doğar.
+
+    Bu noktada Kur’an, Peygamber’e nasıl bir yol izlemesi gerektiğini de öğretir. Eğer insanlar onunla tartışmaya girerse, Peygamber’in söylemesi gereken söz açıktır:
+
+    “Ben yüzümü Allah’a teslim ettim; bana uyanlar da öyle yaptı.”
+
+    Buradaki “yüzümü teslim ettim” ifadesi, insanın bütün varlığını Allah’a yöneltmesi anlamına gelir. Bu söz aynı zamanda bir davettir. Peygamber yalnızca kendi duruşunu ortaya koymakla kalmaz; karşısındaki insanlara da sorar:
+
+    “Siz de Allah’a teslim oluyor musunuz?”
+
+    Bu soru hem Kitap Ehline hem de ümmilere, yani kendilerine kitap verilmemiş topluluklara yöneliktir. Böylece çağrı yalnızca belirli bir gruba değil, bütün insanlara yapılmış olur.
+
+    Kur’an burada önemli bir sınır da koyar. Eğer insanlar bu çağrıya yüz çevirirse, Peygamber’in görevi bitmiş sayılır. Çünkü ona düşen yalnızca tebliğ etmektir. İnsanların iman edip etmemesi zorla sağlanacak bir şey değildir. 
+    "Dinde zorlama yoktur." : Bakara 256
+
+    Kur’an’ın birçok yerinde aynı ilke tekrarlanır: Peygamber bir zorlayıcı değildir. O yalnızca mesajı ileten ve hatırlatan kişidir.
+    "Artık sen onlar üzerinde bir gözetleyici (bekçi) değilsin." : En'am 107
+
+    Bu yaklaşım, insanın özgürlüğünü de ortaya koyar. Her insan hakikati kabul etme ya da ondan uzaklaşma konusunda kendi tercihini yapar. Fakat Kur’an aynı zamanda bir uyarıda bulunur: Allah’ın ayetlerini bile bile inkâr eden kişi, yaptığı tercihin sonucuyla mutlaka karşılaşacaktır.
+
+    Sonuç olarak bu ayetler üç temel gerçeği hatırlatır. Din, Allah’a teslim olmaktır. İnsanlar çoğu zaman hakikatten bilgisizlik yüzünden değil, kıskançlık ve çekişme yüzünden uzaklaşırlar. Ve her insan yaptığı tercihin hesabını vermekle yükümlüdür.
+
+    Kur’an’ın çağrısı bu yüzden nettir: İnsan, hakikati öğrendikten sonra onu kendi hırslarının ve rekabetinin gölgesinde bırakmamalıdır. Gerçek yol, Allah’a yönelmek ve O’nun çağrısına teslim olmaktır.
+
+    “De ki: “Hak, Rabbinizdendir.” Dileyen inansın, dileyen inkar etsin: Zalimler için, dumanı ve alevi çadırın duvarları ve çatısı gibi olan bir ateş hazırladık, onları saracak: Yardım dilerlerse erimiş bakır gibi yüzlerini haşlayan su verilecek, ne korkunç bir içecek! Yaslanmak için ne kadar rahatsız edici bir divan!” : Kehf 29
+    
+    Sonuç olarak Kur’an’ın çağrısı açıktır. Din, Allah’a teslim olmaktır. İnsanlar çoğu zaman hakikatten bilgisizlik yüzünden değil, kıskançlık ve çekişme yüzünden uzaklaşırlar. Ve her insan yaptığı tercihin hesabını vermekle yükümlüdür.
+
+     Son hüküm ise insana değil, Allah’a aittir.
       
     
 21. **Allah’ın âyetlerini inkâr edenlere ve hakka karşı gelenlere, peygamberleri ve insanlara adaleti öğretenleri öldürenlere gelince, onlara elemli bir azabı müjdele.**  
       
     Hakkın anlamı derindir, birçok renge bürünür: (1) Bir şey üzerinde hak sahibi olmak; (2) Doğru ve dürüst bir yaşam sürmek, eğrinin karşısında dimdik durmak; (3) Hakikat, yani mutlak gerçek; (4) Adalet, yani her şeye layık olduğu değeri vermek. Burada bu anlamların hepsi birden dile gelir.  
       
-    Tarihe dönüp bakarsan, peygamberlerin kanının nasıl akıtıldığını görürsün. İlk kan, Âdem’in oğullarından Habil’in kanıydı, kardeşi tarafından toprağa düşen. Sonra Barachias’ın oğlu Zekeriya, mabedin duvarları arasında katledildi. Yahya Peygamber de vardı, tertemiz, iffetli ve doğru sözlü; o da adaletin yolunda can verdi. Hapsedildi, başı kesildi, sonra o baş, dans eden bir kadına sunuldu.  
-      
-    Bu hikayeler, insanın nasıl kendi içinde çatıştığını, hakikati reddedip kendi karanlık yollarını seçtiğini gösterir. Ama Allah’ın adaleti asla şaşmaz. O, mazlumun hakkını, zalimin cezasını geciktirmeden verir. İnkâr edenler bilsin ki, dökülen her damla kanın hesabı tek tek sorulacak, hak yerini bulacaktır.  
+    Hakikate Karşı Şiddet
+
+    Bu ayet zulmün en ağır biçimlerini bir arada zikreder. Burada yalnızca tek bir suçtan söz edilmez; üç katmanlı bir kötülük anlatılır.
+
+    Düşünsel Suç: Allah'ın ayetlerini inkar etmek (Hakikati reddetmek).
+    Fiziksel Suç: Peygamberleri öldürmek (Rehberleri susturmak).
+    Toplumsal Suç: "İnsanlara adaleti öğretenleri" (Yüksel bi'l-qist) öldürmek.
+
+    Birincisi hakikatin reddidir. Allah’ın ayetlerini inkâr etmek, insanın kendisine gösterilen gerçeği bile bile geri çevirmesidir. Bu yalnızca bir düşünce meselesi değildir; aynı zamanda insanın vicdanıyla yaptığı bir hesaplaşmadır.
+
+    İkincisi rehberlerin susturulmasıdır. Peygamberleri öldürmek, hakikati taşıyan sesi ortadan kaldırmaya çalışmaktır. Tarih boyunca hakikat çağrısı yapanların karşısında çoğu zaman zorbalık yükselmiştir.
+
+    Üçüncüsü ise toplumsal adaletin bastırılmasıdır. Ayette geçen “insanlara adaleti emredenleri öldürenler” ifadesi dikkat çekicidir. Burada yalnızca peygamberler değil, toplum içinde adalet için ayağa kalkan herkes kastedilir. Bu, adalet mücadelesi veren insanların ilahi değerini gösterir.
+
+    "İçinizden, hayra çağıran, iyiliği emreden ve kötülükten men eden bir topluluk bulunsun." (Al-i İmran 3:104). Bu ayet, "adaleti öğretenler" kimdir sorusunun cevabıdır.
+
+    Ayetin sonunda geçen ifade ilk bakışta bir tezat gibi görünür:
+
+    “Onlara elemli azabı müjdele.”
+
+    “Müjde” kelimesi normalde hayırlı bir haber için kullanılır. Fakat burada kelimenin amacı farklıdır. Azabın kesinliğini vurgular. Yani bu bir ihtimal değil, kesin bir sonuçtur.
+
+    Hakkın Anlamı
+
+    Bu ayeti anlamak için Kur’an’da sıkça geçen “hak” kavramını da düşünmek gerekir. Hak kelimesi Arapçada geniş bir anlam alanına sahiptir.
+
+    Bir yönüyle hak sahibi olmayı ifade eder. İnsanların birbirleri üzerindeki meşru haklarını anlatır.
+
+    Bir başka yönüyle doğru ve dürüst bir yaşamı ifade eder. Eğriliğin karşısında dimdik durmayı anlatır.
+
+    Aynı zamanda hakikat, yani mutlak gerçek anlamına gelir.
+
+    Ve nihayet adaleti ifade eder; her şeye layık olduğu değeri vermek demektir.
+
+    Kur’an bu anlamların hepsini birbirine bağlar. Hakikati reddetmek çoğu zaman adaletsizliğe, adaletsizlik ise zulme dönüşür.
+
+    Tarihin Tekrarlanan Hikâyesi
+
+    İnsanlık tarihi bu gerçeğin sayısız örneğiyle doludur. Hakikati dile getirenler çoğu zaman güç sahiplerinin hedefi olmuştur.
+
+    Kur’an, peygamberlerin bir kısmının kavimleri tarafından öldürüldüğünü açıkça söyler. Bu suç, başka ayetlerde de hatırlatılır:
+
+    “Ve hatırlayın söyle demiştiniz: “Ey Musa, biz tek bir yiyeceğe her zaman tahammül edemeyiz; öyleyse Rabbine dua et bizim için yerin bitirdiklerinden, baharatlarından, salatalıklarından, sarımsaklarından, mercimeğinden ve soğanlarından çıkarsın. ” Musa Dedi ki: “İyiyi kötüyle mi değiştireceksiniz? Herhangi bir yerleşime gidin, istediğinizi bulacaksınız!” Aşağılanma ve sefalet içindeydiler; Allah’ın gazabını üzerlerine çektiler. Bunun nedeni, Allah’ın âyetlerini/işaretlerini/ilkelerini inkar etmeye ve peygamberlerini haksız yere öldürmeye devam ettiler. Çünkü isyan ettiler ve aşırıya gittiler.”
+    : Bakara 61
+
+    Bu ifade yalnızca geçmişte yaşanan bir olayı anlatmaz. Aynı zamanda insanın karanlık yönüne işaret eder. İnsan bazen hakikati anlamadığı için değil, onu kabul etmek istemediği için reddeder.
+
+    Kur’an ve Tarih Ayrımı
+
+    Burada önemli bir metodolojik nokta vardır. Kur’an peygamberlerin bazılarına yapılan zulmü genel olarak anlatır, ancak birçok tarihsel detayı özellikle vermez.
+
+    Örneğin Hz. Zekeriya veya Hz. Yahya hakkında İslam, Yahudi ve Hristiyan kaynaklarında çeşitli anlatılar bulunur. Bu rivayetler tarihsel geleneklerde yer alır. Fakat Kur’an bu olayların ayrıntılarını anlatmaz.(Meryem 19:13, 19:31) 
+
+    Kur’an’ı yorumlarken bu ayrımı korumak gerekir. Kur’an’ın kesin beyanı ile tarihsel rivayet aynı şey değildir.
+
+    İlahi Adalet ve Mühlet
+
+    Ayetin verdiği mesajlardan biri de ilahi adaletin kaçınılmaz olduğudur. Ancak bu adaletin zamanı insanın düşündüğü gibi hemen gerçekleşmeyebilir.
+
+    Kur’an, Allah’ın zalimlere bazen mühlet verdiğini açıkça söyler:
+
+    “İnkâr edenler, kendilerine mühlet vermemizi sakın hayırlı sanmasınlar.”
+    (Âl-i İmrân 3:178)
+
+    Bu mühlet bir ihmal değil, bir imtihandır. Dünya hayatında zulüm bazen geçici olarak güç kazanabilir. Fakat bu durum ilahi adaletin ortadan kalktığı anlamına gelmez. Müminun 23:45'te genel bir ifade vardır: "Onlardan önce nice nesilleri helak ettik.
+
+    Kesin hesap ahirette görülecektir.
+
+    İnsan Hayatının Değeri
+
+    Kur’an’ın başka bir ayeti bu gerçeği evrensel bir ilke hâline getirir:
+
+    “Kim bir canı haksız yere öldürürse bütün insanlığı öldürmüş gibi olur.”
+    (Maide 5:32)
+    Bu, suçun ağırlığını evrensel boyutta tanımlar.
+
+    Bu ilke insan hayatının dokunulmazlığını ortaya koyar. Hakikati susturmak için dökülen her kan, insanlığın vicdanında ağır bir suç olarak kalır.
+
+    Sonuç
+
+    Âl-i İmrân 3:21 ayeti insanlığa güçlü bir uyarı yapar. Hakikati reddetmek, rehberleri susturmak ve adalet için ayağa kalkanları yok etmeye çalışmak zulmün en ağır biçimleridir.
+
+    Kur’an’a göre adalet yalnızca peygamberlerin görevi değildir. Toplum içinde adaleti savunan herkes bu ilahi çağrının parçasıdır.
+
+    Zalimlere bazen mühlet verilebilir. Fakat bu durum adaletin ortadan kalktığı anlamına gelmez.
+
+    Son hüküm mutlaka verilecektir.
+
+    Ve o hüküm, insanın değil Allah’ın hükmü olacaktır.
       
     
 22. **Onlar, dünyada da ahirette de yaptıkları hiçbir işe yaramayacak ve kendilerine yardım edecek kimse bulamayacak kimselerdir.**  
@@ -576,12 +889,90 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 23. **Kendilerine Kitap’tan bir nasip verilenleri görmedin mi? Onlar, aralarındaki anlaşmazlığı gidermek için Allah’ın Kitabına çağrılırlar da içlerinden bir grup, hakemliği reddeder/döneklik ederek ondan yüz çevirir.**  
       
-    Asırlar boyunca Allah’ın vahyi “Kitap” şeklinde bir bütün olarak düşünülebilir. Musa’nın Tevrat’ı, İsa’nın İncili, bu büyük Kitap’ın sayfalarıydı. Sonra Kur’an geldi, vahyi tamamladı; Allah’ın Kitabı böylece eksiksiz ve mükemmel bir şekle kavuştu.  
-      
     Kitap Ehli’nin görevi, Allah’ın mesajını canlı bir nefes gibi taşıyan Muhammed’i ilk karşılayanlar olmak olmalıydı. Bazıları bu çağrıya kulak verdi, ancak diğerleri kibir bataklığına saplandı. Aklın ve sağduyunun sesine uzak, kendi hayallerinde yarattıkları bozulmuş metinlere ve doktrinlere tutundular. Ne yazık ki, bu hayali dünya onları hakikatten kopardı.  
       
     “Kendilerine Kitap’tan bir pay verilenleri görmedin mi? Onlar, sapıklıkta ticaret yaparlar ve sizin doğru yolu şaşırmanızı isterler.” : Nisa 44  
       
+    Bu ayet insanlık tarihindeki önemli bir gerçeğe işaret eder. İnsanlar çoğu zaman hakikatin ne olduğunu bilmedikleri için değil, onu kabul etmek istemedikleri için ondan uzaklaşırlar.
+
+    Ayetin anlattığı durum basittir: Ortada bir anlaşmazlık vardır. Çözüm için tarafsız bir ölçüye başvurulması gerekir. Kur’an bu ölçüyü Allah’ın Kitabı olarak gösterir. Bu, tıpkı herkesin kabul etmesi gereken tarafsız bir mahkemeye başvurmak gibidir.
+
+    Fakat ayet ilginç bir noktaya dikkat çeker. Hakem olarak Allah’ın Kitabı çağrıldığında, bazıları bu çağrıyı kabul etmez. Yüz çevirirler.
+
+    Neden?
+
+    Kur’an bu sorunun cevabını başka ayetlerde açıklar. Çünkü hüküm kendi çıkarlarına uygun değildir. İnsan bazen doğruyu bildiği hâlde onu reddeder. Bunun sebebi çoğu zaman bilgisizlik değil, nefis ve çıkar çatışmasıdır.
+
+    Vahyin Sürekliliği
+
+    Kur’an kendisini insanlık tarihinden kopuk bir metin olarak sunmaz. Aksine vahyin uzun bir zincirin devamı olduğunu anlatır.
+
+    Musa’ya verilen Tevrat, İsa’ya verilen İncil ve diğer peygamberlere indirilen vahiyler bu zincirin halkalarıdır. Kur’an ise bu vahyin son halkasıdır.
+
+    Kur’an kendi konumunu şöyle açıklar:
+
+    “Sana da kendinden önceki kitapları doğrulayan ve onları denetleyen Kitabı indirdik.”
+    (Maide 5:48)
+
+    Burada kullanılan “muhaymin” kelimesi önemlidir. Bu kelime yalnızca tamamlamak anlamına gelmez; aynı zamanda koruyup gözetmek ve ölçü olmak anlamını da taşır. Kur’an, önceki vahiylerin hakikatini doğrular, fakat zaman içinde ortaya çıkan bozulmaları da düzeltir.
+
+    Bu yüzden Allah’ın Kitabı’na çağrılmak, yalnızca yeni bir metne çağrılmak değil; vahyin özüne, yani hakikatin kendisine çağrılmaktır.
+
+    Yüz Çevirmenin Sebebi
+
+    Ayetin dikkat çekici yönlerinden biri, bütün Kitap Ehli’ni suçlamamasıdır. Metinde özellikle “içlerinden bir grup” ifadesi kullanılır.
+
+    Bu ayrıntı önemlidir. Kur’an genelleme yapmaz. Çünkü tarih boyunca vahyin çağrısını kabul eden insanlar da olmuştur.
+
+    Kur’an bunu başka bir ayette açıkça söyler:
+
+    “Kitap Ehlinin hepsi bir değildir. İçlerinde dosdoğru bir topluluk vardır.”
+    (Âl-i İmrân 3:113)
+
+    Fakat bazıları için durum farklıdır. Hakikati bilmelerine rağmen ondan uzaklaşırlar. Bunun sebebi çoğu zaman kibir, statü kaygısı veya çıkar korkusudur.
+
+    Kur’an bu durumu başka bir ayette şöyle anlatır:
+
+    “Onların sapıklığı satın aldıklarını görmedin mi? Onlar sizin de doğru yoldan sapmanızı isterler.”
+    (Nisa 4:44)
+
+    Burada kullanılan ifade dikkat çekicidir. Sapıklık sanki bir ticaret gibi anlatılır. Yani insan hakikati bırakıp karşılığında dünyevi bir kazanç elde etmeye çalışır.
+
+    Hakikatin Eğilip Bükülmesi
+
+    Kur’an, dini bilginin nasıl bozulabileceğine de dikkat çeker. Bazı insanlar metinleri açıkça reddetmez; fakat onları eğip bükerek kendi görüşlerine uydururlar.
+
+    Kur’an bunu şöyle anlatır:
+
+    “Onlardan bir grup, kitabı okurken dillerini eğip bükerler ki siz onu kitaptan sanasınız.”
+    (Âl-i İmrân 3:78)
+
+    Bu durum insanın hakikatle kurduğu ilişkinin ne kadar kırılgan olduğunu gösterir. Bilgi tek başına insanı kurtarmaz. Bilgi, ancak dürüstlük ve tevazu ile birleştiğinde insanı hakikate götürür.
+
+    Bilginin İmtihanı
+
+    Bu ayet aynı zamanda önemli bir uyarı içerir. İnsan sadece bilgisizlikle değil, bilgiyle de sınanır.
+
+    Kendisine vahiy gelmiş bir topluluk, hakikati daha kolay tanıyabilir. Fakat aynı bilgi, eğer kibirle birleşirse insanı daha büyük bir inkâra da sürükleyebilir.
+
+    Bu yüzden Kur’an’ın eleştirisi yalnızca bilgisizliğe değil, bilgiyi kötüye kullanmaya yöneliktir.
+
+    Sonuç
+
+    Âl-i İmrân 3:23 ayeti insanlık için önemli bir gerçeği ortaya koyar. İnsanlar çoğu zaman hakikati bilmedikleri için değil, onu kabul etmek istemedikleri için reddederler.
+
+    Ortada bir anlaşmazlık olduğunda çözüm açıktır: Allah’ın koyduğu ölçüye başvurmak. Fakat bu ölçü bazen insanların çıkarlarına ters düşer.
+
+    İşte o zaman insan iki yoldan birini seçer.
+
+    Ya hakikati kabul eder ve ona teslim olur,
+    ya da yüz çevirir ve kendi arzularının peşinden gider.
+
+    "Aralarında hükmetmesi için Allah’a ve elçisine çağrıldıkları zaman, bir bak ki onlardan bir kısmı gelmekten çekiniyor/gelmeyi kabul etmiyor/daveti geri çeviriyor." : Nur 48
+
+    Bu "hayali dünya", genellikle kurumsal çıkarlar, statü kaygısı veya liderlik pozisyonunu kaybetme korkusudur. Kuran, dini reddetmelerinin arkasındaki sosyo-ekonomik motivasyonu iyi okur.
+
+    Kur’an’ın uyarısı açıktır: Hakikat insanın önünde durur. Ondan uzaklaşmak ise insanın kendi tercihidir.  
     
 24. **Bu, onların: “Ateş bize sayılı günlerden başka asla dokunmayacaktır” demelerinden dolayıdır: Çünkü uydurmaları / uydurdukları iftiralar onları kendi dinleri konusunda aldatmaktadır.**  
       
@@ -596,16 +987,185 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
       
     Bu sözlerin içinde, derin anlamıyla yankılanan bir cümle var: “Bütün iyilikler senin elindedir.” Peki, iyiliği ölçüp biçebileceğimiz bir terazi var mı? Elbette, bu Allah’ın Planı ve İradesi’dir. İnsan, bu plan ve iradeye teslim olduğunda ve İslam’ın ışığıyla aydınlandığında, en yüce iyiliği görebilir. Tarih boyunca bu en yüksek iyilik nedir diye sayısız tartışma yapılmış; ama bir Müslüman için cevap açıktır: Bu, Allah’ın Plan ve İradesi’dir. İnsan bu plan ve iradeyi öğrenmek, anlamak ve yaşamak için çabalamalıdır. Bir kez o plana ve iradenin koruyucu kalesine sığındığında ise kendini güvende bulur. Artık kötülüğün doğası onu sarsamaz; çünkü Allah’ın gölgesi altındadır.  
+
+    Allah'ın iradesini bilmek için pasif bekleyiş değil, aktif araştırma ve çaba gerekir. Kuran, "çalışanın kazanacağını" (Necm 53:39) söyler. Teslimiyet, eylemi bırakmak değil; eylemi Allah'ın yasalarına uygun hale getirmektir.
+
+    Bu ayet insanın güç ve iktidar hakkında kurduğu bütün yanlış tasavvurları sarsar. Çünkü insan çoğu zaman gücü kendi başarısının ürünü sanır. Oysa Kur’an gücün kaynağını açıkça gösterir: mülkün gerçek sahibi Allah’tır.
+
+    Burada geçen “mülk” kelimesi yalnızca servet veya toprak anlamına gelmez. İktidar, otorite, yetenek, fırsat ve toplum üzerinde etkili olma gücü de bu kavramın içindedir. İnsanların ellerinde tuttukları bütün güç biçimleri aslında emanet olarak verilmiştir.
+
+    Bu yüzden ayet iki temel gerçeği birlikte söyler: Allah dilediğine güç verir ve dilediğinden onu geri alır.
+
+    Fakat bu ifade keyfî bir tasarrufu anlatmaz. Kur’an’ın bütününde Allah’ın tasarrufu hikmet ve adalet ile ilişkilidir. Daha önce aynı surede Allah’ın “adaletle şahitlik eden” olduğu belirtilir (Âl-i İmrân 3:18). Bu nedenle mülkün verilmesi de alınması da ilahi hikmetin parçasıdır.
+
+    İzzet ve Zillet
+
+    Ayetin devamında iki kavram daha yer alır: izzet ve zillet.
+
+    İzzet, insanın değer kazanması, güçlü ve saygın hâle gelmesidir. Zillet ise insanın küçülmesi ve güçsüz hâle düşmesidir.
+
+    Kur’an’a göre gerçek izzet yalnızca Allah’ın elindedir:
+
+    “İzzet Allah’a, Resulüne ve müminlere aittir.”
+    (Münafikun 63:8)
+
+    Bu ayet insanın gerçek değerinin nereden geldiğini gösterir. İzzet servetten, makamdan veya kalabalıklardan gelmez. İzzetin kaynağı Allah’a bağlılıktır. Tüm iyiliklerin kaynağı Allah'tır; aracılar değil.
+
+    Hayrın Kaynağı
+
+    Ayetin en derin cümlelerinden biri şudur:
+
+    “Bütün hayır senin elindedir.”
+
+    Bu ifade insanın hayatı nasıl yorumlayacağını belirler. Çünkü insan çoğu zaman iyiliği de kötülüğü de doğrudan gördüğü sebeplere bağlar. Kur’an ise insanı sebeplerin ötesindeki kaynağa yöneltir.
+
+    Bütün hayrın kaynağı Allah’tır.
+
+    Bu, dünyada yaşanan her olayın insan tarafından mutlaka iyi olarak algılanacağı anlamına gelmez. Kur’an başka bir ayette şöyle der:
+
+    "Başınıza her ne musibet gelirse, kendi ellerinizle yaptıklarınızdandır ve O birçoğunu bağışlar." : Sura 30
+
+    “Size gelen iyilik Allah’tandır; başınıza gelen kötülük ise kendi yaptıklarınızdandır.”
+    (Nisa 4:79)
+
+    Yani iyiliğin kaynağı Allah’tır; fakat insanın yaptığı hatalar ve zulümler dünyada kötülüğün ortaya çıkmasına sebep olur.
+
+    Gücün İmtihanı
+
+    Kur’an gücü bir ayrıcalık olarak değil, bir imtihan olarak görür. İnsan güce sahip olduğunda iki farklı yoldan birine girebilir.
+
+    Ya gücü emanet bilip adalet için kullanır,
+    ya da onu kendi kudreti sanarak kibirlenir.
+
+    "Mağduriyetin/İncinmenin cezası, derece bakımından eşit/benzer/denk bir incinmedir / Bir kötülüğün cezası, ona eşit derecede bir kötülüktür : Ancak kim affeder ve uzlaşırsa/arayı düzeltirse, onun mükâfatı Allah’tandır. Çünkü Allah, zalimleri sevmez." : Sura 40
+
+    Kur’an bu tehlikeyi başka bir yerde şöyle anlatır:
+
+    “Allah, kendisine verilen servet yüzünden şımaranları sevmez.”
+    (Kasas 28:76)
+
+    Tarih boyunca birçok toplum gücün sarhoşluğuna kapılmış ve sonunda o güç ellerinden alınmıştır.
+
+    Değişim Yasası
+
+    Kur’an güç ve iktidarın değişimini açıklayan bir ilke de ortaya koyar:
+
+    “Bir toplum kendilerinde olanı değiştirmedikçe Allah onların durumunu değiştirmez.”
+    (Ra’d 13:11)
+
+    Bu ayet önemli bir denge kurar. Çünkü mülkün Allah tarafından verilmesi insanın hiçbir rolü olmadığı anlamına gelmez. İnsanların davranışları, adaleti veya zulmü tercih etmeleri, toplumların kaderini etkiler.
+
+    Bu nedenle Kur’an’ın öğrettiği teslimiyet pasif bir bekleyiş değildir. Aksine insanın Allah’ın koyduğu yasaları anlayarak ona göre hareket etmesidir.
+
+    Teslimiyet ve Güven
+
+    Mümin için bu ayetin verdiği en büyük güven şudur: Gücün gerçek sahibi insan değil Allah’tır. Bu bilinç, insanı hem kibirden korur hem de korkudan kurtarır.
+
+    Çünkü gücü elinde tutanlar mutlak değildir. Onlar da Allah’ın verdiği geçici bir emaneti taşırlar.
+
+    Bu yüzden mümin zulüm karşısında yılmaz. Gücün kaynağını bilen insan, gücü geçici olarak elinde tutanlardan korkmaz.
+
+    Sonuç
+
+    Âl-i İmrân 3:26 insanın güç ve iktidar hakkındaki düşüncesini kökten değiştirir.
+
+    Mülkün gerçek sahibi Allah’tır. İnsanların elindeki güç ise geçici bir emanettir. Bu emanet bazen verilir, bazen geri alınır.
+
+    İzzet ve zillet de aynı şekilde Allah’ın elindedir. Fakat bu durum insanın sorumluluğunu ortadan kaldırmaz. İnsan adaletle yaşarsa yükselir; zulüm ve kibir ise onu düşürür.
+
+    Kur’an’ın çağrısı açıktır:
+    Gücü kendinden bilme, onu emanet bil. Güç bir emanettir; liyakatle taşınır, küfranla elden alınır.
+    Kaynağı unutma.
+
+    Çünkü bütün hayır Allah’ın elindedir.
       
       
     
 27. **“Geceyi gündüze, gündüzü de geceye katıyorsun; Ölüden diriyi çıkarırsın, diriden ölüyü çıkarırsın; Dilediğine de hesapsız rızık verirsin.”**  
       
-    Bu sözler, hem basit hem derin bir hakikati taşıyor. Her yirmi dört saatte gece gündüze, gündüz geceye karışır. Aralarında keskin bir sınır yoktur. Mevsimler döner; yaz gündönümünde gece kısalır, kış gündönümünde gündüz. Ama bu döngülerin ötesinde, gece ve gündüz yalnızca ışık ve karanlık değildir. Onlar aynı zamanda bilgiyle cehaleti, mutlulukla acıyı, ruhsal aydınlanmayla körlüğü anlatır. Allah’ın Planı, bu dünyada olduğu gibi insanın iç dünyasında da işler. Ve O’nun eliyle her şey yerli yerindedir, her şey iyidir.  
-      
-    Ölü ve diri… Bu kavramları yalnızca fiziksel olarak düşünmek yetmez. Ölüm, bedenin çöküşü olabileceği gibi, aklın kararması, duyguların donması, ruhun unutkanlığıdır. Yaşam ise bunların dirilişi, yeniden filizlenmesidir. Bir insanın, bir toplumun, hatta bir ulusun hayatında ölüm ve diriliş devinip durur. Ama yaşamın sırrını kim tam anlamıyla çözebilir? İnanç burada yol gösterir. O sırrı, Allah’ın İradesi’ne ve Planı’na teslimiyetle anlamaya çalışırız.  
-      
-    Her şey bu İrade’nin ve Plan’ın bir parçasıdır. Tek Ebedi Gerçeklik Allah’tır. Diğer her şey O’ndan gelir ve O’na döner. İnsan aklı, “az ya da çok” hesaplarına düşmesin diye, Allah’ın lütfunun sınırsız olduğu hatırlatılır. Çünkü O’nun cömertliği hesapsızdır, lütfu ölçüsüzdür.  
+    Her şey bu İrade’nin ve Plan’ın bir parçasıdır. Tek Ebedi Gerçeklik Allah’tır. Diğer her şey O’ndan gelir ve O’na döner. İnsan aklı, “az ya da çok” hesaplarına düşmesin diye, Allah’ın lütfunun sınırsız olduğu hatırlatılır. Çünkü O’nun cömertliği hesapsızdır, lütfu ölçüsüzdür.
+
+    Bu ayet evrendeki büyük dönüşüm düzenini hatırlatır. İnsan çoğu zaman dünyayı durağan bir yer gibi görür; oysa Kur’an bize varlığın sürekli bir değişim içinde olduğunu gösterir.
+
+    Gece ile gündüz bunun en açık örneğidir. Her yirmi dört saatte karanlık ışığa, ışık karanlığa karışır. Aralarında keskin bir sınır yoktur; biri yavaşça diğerinin içine geçer. Gündüz biterken gece başlar, gece biterken gündüz doğar. Mevsimler de aynı döngünün bir parçasıdır. Yaz gündönümünde gündüz uzar, kış gündönümünde gece.
+
+    Kur’an bu doğal olayı yalnızca bir astronomi gerçeği olarak anlatmaz. Gece ve gündüz aynı zamanda insan hayatının sembolleridir. Işık ile karanlık, bilgi ile cehalet, umut ile umutsuzluk arasında sürekli bir geçiş vardır. İnsan bazen aydınlığa yaklaşır, bazen karanlığa düşer. Toplumlar da aynı döngüyü yaşar. Yükseliş ve gerileme, diriliş ve çöküş insanlık tarihinin ayrılmaz parçasıdır.
+
+    Ölüm ve Diriliş
+
+    Ayetin ikinci kısmı bu dönüşümü daha da derinleştirir:
+
+    “Ölüden diriyi çıkarırsın, diriden ölüyü çıkarırsın.”
+
+    Bu söz ilk bakışta doğanın biyolojik düzenini anlatır. Toprağa atılan bir tohum ölüyü andırır; fakat içinden canlı bir bitki çıkar. Bitki kurur, toprağa karışır ve yeniden hayatın parçası olur. Yaşam ve ölüm birbirinden kopuk iki gerçek değildir; aynı döngünün parçalarıdır.
+
+    Fakat Kur’an’ın dili burada yalnızca biyolojiyi anlatmaz. Ölüm bazen kalbin katılaşması, aklın kararması, insanın hakikati unutmasıdır. Diriliş ise bunun tersidir: insanın yeniden fark etmesi, anlaması ve uyanmasıdır.
+
+    Bu yüzden Kur’an başka bir yerde insanlara şöyle seslenir:
+
+    “Ey iman edenler! Sizi, size hayat verecek şeylere çağırdığı zaman, Allah’a ve Resûlü’ne icabet edin. Bilin ki, Allah kişi ile kalbi arasına girer ve O’nda toplanacaksınız.”
+    (Enfâl 8:24)
+
+    Buradaki “hayat”, yalnızca fiziksel yaşam değildir; kalbin ve aklın dirilişidir.
+
+    Bir insanın hayatında da, bir toplumun tarihinde de bu tür dirilişler ve çöküşler yaşanır. Bir zamanlar güçlü olan toplumlar zayıflar; unutulmuş halklar yeniden ayağa kalkar. Kur’an insanlık tarihini de bu dönüşüm yasasının parçası olarak görür.
+
+    Rızkın Kaynağı
+
+    "Başına gelen Hayırlısı neyse ey insan!,
+    Allah’tandır. Ama sana ne kötülük olursa olsun, kendi
+    nefsindendir. Biz seni insanlara öğüt vermek için bir elçi
+    olarak gönderdik. Ve şahit olarak Allah yeter." : Nisa 79
+
+    Ayetin son kısmı bu kozmik düzeni başka bir hakikate bağlar:
+
+    “Dilediğine hesapsız rızık verirsin.”
+
+    Buradaki “hesapsız” ifadesi insanın rızkının sınırsız olduğu anlamına gelmez. Kur’an başka bir ayette şöyle der:
+
+    “Allah, dilediğine verdiği rızkı genişletir veya kısarak verir. Dünyâ hayatını sevenler, dünya hayatına sevinir: Fakat dünya hayatı, ahirette pek az rahatlık sağlar.”
+    (Ra’d 13:26)
+
+    Yani insanın hayatında rızık bazen genişler, bazen daralır. Bu da bir imtihanın parçasıdır. Fakat ayetteki “hesapsızlık”, Allah’ın hazinesinin sınırsızlığını anlatır. İnsanların payı sınırlı olabilir; fakat rızkın kaynağı sınırsızdır, insanın sorumluğu ise şükür ve adaletli dağıtımdır.
+
+    Bu hatırlatma insanı iki hatadan korur. Birincisi, rızkı yalnızca kendi çabasının ürünü sanmak. İkincisi ise rızkı insanlardan veya sistemlerden beklemek. Kur’an’a göre rızkın nihai kaynağı Allah’tır.
+
+    Değişimin Yasası
+
+    Bu ayet, gece ile gündüzün dönüşümünden başlayarak hayatın bütün alanlarını kapsayan bir gerçeği gösterir: değişim evrenin temel yasalarından biridir.
+
+    Fakat Kur’an insanı bu değişimin pasif bir seyircisi olarak görmez. İnsan da bu düzenin içinde sorumlu bir varlıktır. Bu nedenle Kur’an şöyle der:
+
+    “Böyle bir kişinin önünde ve arkasında peş peşe sıralanmış melekler vardır: Allah’ın emriyle onu korurlar. ***Muhakkak ki bir kavim kendi içlerindekini değiştirmedikçe, Allah onların durumunu asla değiştirmez.*** Fakat Allah bir kavme azap diledi mi artık onu geri çevirmek mümkün değildir ve onlar O’ndan başka bir koruyucu da bulamazlar.”
+    : Ra’d 11
+
+    Yani toplumların yükselişi veya çöküşü yalnızca dış şartların sonucu değildir. İnsanların tercihleri, adaleti veya zulmü seçmeleri de bu değişimin parçasıdır.
+
+    Tek Ebedi Gerçeklik
+
+    Kur’an’ın bu ayetlerde hatırlattığı son gerçek ise şudur: Evrendeki bütün bu dönüşümlerin arkasında tek bir kaynak vardır.
+
+    Gece ve gündüz değişir.
+
+    "O, gökleri ve yeri gerçek ölçülerde yarattı: Geceyi Gündüze, Gündüzü de Geceye bindiriyor: Güneşi ve ayı kendi kanununa tabi kılmıştır: Her biri belirlenmiş bir süreye kadar bir yol izler. O, Kadir-i Mutlak’tır, defalarca affeden değil midir?" : Zümer 5
+
+    Canlılar doğar ve ölür.
+
+    "O hâlde ey insan! Allah’ın rahmetinin âyetlerini düşün! – O, yeryüzünü ölümünden sonra nasıl diriltiyor: şüphesiz o, ölüleri de diriltecektir/ vefat etmiş insanlara hayat verecektir: çünkü O, her şeye kadirdir." : Rum 50
+
+    Toplumlar yükselir ve düşer.
+
+    "İnsanların kendi elleriyle kazandıklarından dolayı karada ve denizde bozgunculuk çıktı ki Allah onlara yaptıklarının bir kısmını tattırsın: ve belki böylece Kötülükten/fenalıktan dönerler." : Rum 41
+
+    Rızık bazen artar, bazen azalır.
+
+    Fakat bu değişimlerin ortasında değişmeyen tek gerçek vardır: Allah.
+
+    Her şey O’ndan gelir ve sonunda O’na döner.
+
+    Bu yüzden Kur’an insanı sürekli şu bilince çağırır: dünyanın değişken yüzüne değil, varlığın değişmeyen kaynağına yönelmek. Çünkü insan ancak o zaman hayatın karmaşası içinde gerçek dengeyi bulabilir.  
+
+    Kuran, insanı hesap yapmaya (tefekkür) ve adaletli dağıtıma (infak) çağırır. "Hesapsız" olmak, Allah'ın sıfatıdır; insanın görevi hesap vermektir.
       
       
     
