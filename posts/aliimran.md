@@ -1172,11 +1172,42 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 28. **Müminler, müminleri bırakıp da kâfirleri dost ve yardımcı edinmesinler: Kim böyle yaparsa artık Allah’tan hiçbir yardım yoktur. Kendinizi onlardan korumanız için bir önlem dışında. Ama Allah, Kendisini zikretmeniz için sizi uyarıyor; çünkü nihai hedef Allah’adır.**  
       
       
-    Müminler, müminler yerine kâfirleri dost ya da yardımcı edinmesinler. Bunu yapan biri, Allah’tan hiçbir yardım beklemesin. Ancak, kendinizi koruma ihtiyacı duyduğunuz zamanlar başka. Allah sizi uyarır ki her şeyin sonu, her yolun varışı O’na çıkar.  
-      
-    Eğer iman hayatımızın direği ise, kurduğumuz bağlar, dostluklar ve ortaklıklar da bu direğin etrafında şekillenir. İnançta birleşen yürekler bir arada daha sağlam durur. “Kötü arkadaşlıklar iyi huyları bozar” derler; bu yüzden kötü bir dostluk, inancı da zayıflatır, kökünden sarsar. Gündelik işlerimizde, yardımı önce inancımızı paylaşanlardan aramalıyız. Toplumumuzun birliğini ve gücünü böyle koruyabilir, böyle büyütebiliriz.  
-      
-    Ama olur ya, şartlar bizi inancımıza yabancı olanların yardımını aramaya mecbur bırakırsa, bu durumda tedbir elden bırakılmamalıdır. Ne olursa olsun, kardeşliğimizi zayıflatmamalıyız. Aksine, her fırsatta onu daha da güçlendirmeye çalışmalıyız. Çünkü inanç/güven, yalnızca bireyin değil, bir toplumun da ruhunu ayakta tutan en güçlü bağdır.  
+    Bu ayet, müminlerin ilişkilerini nasıl kurmaları gerektiğine dair bir ilke ortaya koyar. Burada geçen “velî” kelimesi sıradan bir tanışıklık ya da günlük arkadaşlık anlamında değildir. Daha çok güven, sadakat ve dayanışma içeren güçlü bir bağlılığı ifade eder. Bu nedenle ayet, müminlerin kendi topluluklarını bırakıp güven ve bağlılık ilişkisini başka güçlerin üzerine kurmamalarını öğütler.
+
+    Bu ilkenin temelinde toplumsal dayanışma düşüncesi vardır. Bir toplum, ortak bir inanç ve değer etrafında birleştiğinde daha sağlam durur. İnsanların en çok güvendikleri kişiler, aynı temel inancı ve aynı ahlaki ilkeleri paylaştıkları kimseler olur. Bu yüzden müminlerin öncelikle birbirleriyle dayanışma içinde olmaları istenir.
+
+    Fakat ayet mutlak bir kapanmayı emretmez. Aynı ayetin içinde önemli bir istisna da yer alır: “Kendinizi korumanız için bir önlem dışında.” Bu ifade, zorunlu durumlarda insanın kendini koruma hakkını kabul eder. Bazen şartlar insanı farklı insanlarla iş yapmaya, onlardan yardım istemeye veya onlarla ilişki kurmaya mecbur bırakabilir. Böyle durumlarda tedbirli davranmak ve zarar görmemek için gerekli önlemleri almak meşru kabul edilir.
+
+    Kur’an’ın başka ayetleri de bu konuyu dengeler. Örneğin şöyle denir:
+
+    “Allah, sizinle din uğrunda savaşmayan ve sizi yurtlarınızdan çıkarmayanlara iyilik ve adaletle davranmanızı yasaklamaz: çünkü Allah, adaletli olanları sever.
+    Allah, yalnızca, sizinle din uğrunda savaşan, sizi yurtlarınızdan çıkaran ve başkalarının da sizi çıkarmasına yardım edenlerle dostluk ve himaye için onlara yönelmenizi yasaklar. Yanlış yapanlar bu durumda onlara yönelenlerdir." : Mümtehine 8-9
+
+    Kuran, müminlerin güvenlik ve sadakat ittifaklarını kendi aralarında kurmasını ister; ancak ticaret, komşuluk ve insani yardım konularında evrenseldir.
+
+    Bu ayet, müminlerin diğer insanlarla ilişkilerinde adalet ve iyiliği sürdürmeleri gerektiğini açıkça ortaya koyar. Yani Kur’an insanları tamamen birbirinden koparan bir anlayış getirmez. Ticaret, komşuluk, yardım ve günlük ilişkiler insanlık temelinde devam edebilir.
+
+    De ki: “Ey nefisleri aleyhine haddi aşan kullarım! Allah’ın rahmetinden ümidinizi kesmeyin. Allah bütün günahları bağışlar. Çünkü O, çok bağışlayandır, çok merhamet edendir.” : Zümer 53
+
+    Bu nedenle ayetin amacı insanları toplumdan soyutlamak değildir. Asıl amaç, müminlerin kendi kimliklerini ve dayanışmalarını zayıflatmamalarıdır. Kur’an’a göre bir toplumun gücü yalnız maddi imkânlarından değil, üyeleri arasındaki güven bağından gelir.
+
+    Bu noktada ayetin son kısmı önemli bir hatırlatma yapar: “Allah sizi uyarıyor; çünkü dönüş yalnız O’nadır.” İnsanların kurdukları bütün ilişkiler, yaptıkları bütün tercihler sonunda Allah’ın huzurunda değerlendirilecektir. Bu yüzden ilişkiler yalnız çıkar hesabıyla değil, Allah bilinciyle kurulmalıdır.
+
+    Sonuç olarak bu ayet üç temel ilke ortaya koyar. Müminler arasında güçlü bir dayanışma kurulmalıdır. 
+    
+    "Mü’minler ancak bir kardeşliktir: Öyleyse, çekişen iki kardeşinizin arasını barış yaparak ve uzlaştırarak düzeltin. Allah’tan korkun ki rahmete eresiniz." : Hucurat 10
+    
+    Düşmanlık içinde olan güçlerle güven ilişkisi kurmaktan kaçınılmalıdır. Fakat düşmanlık bulunmayan insanlarla adalet ve iyilik ilişkisi devam edebilir.
+
+    "Bugün size temiz ve güzel olan her şey helal kılındı. Kitap Ehli’nin yemeği size helâl, sizin yemeğiniz de onlara helâldir. Yalnızca iffetli mümin kadınlar değil, aynı zamanda sizden önce indirilmiş Kitap Ehli’nden iffetli kadınlar da, mehirlerini verdiğiniz ve iffeti arzuladığınız, fuhuş ve gizli entrikalar olmadığı takdirde size helâldir. Eğer İnsan/herhangi biri imanı reddederse, yaptığı iş boşa gider/meyvesizdir ve ahirette bütün manevî güzellikleri yitirenlerin saflarından olur." : Maide 5
+
+    Kur’an’ın istediği denge budur:
+
+    Kendi kimliğini koruyan bir toplumsal dayanışma ve aynı zamanda bütün insanlara karşı adaletli bir tutum. Kuran'ın "şahit ümmet" (2:143) tanımı, izolasyon değil, örnek olma sorumluluğudur.
+
+    "İşte böylece, sizden, uluslar üzerinde şahit, elçi de sizin üzerinizde şahit olabilmesi için adil bir şekilde dengelenmiş bir ümmet yarattık; ve alışık olduğunuz kıbleyi , sadece Resûlü’nü takip edenlerden ökçeleri üzerinden gerisin geriye İnancından dönenleri imtihan etmek için tayin ettik. Gerçekten de o, Allah’ın hidayete erdirdikleri kişiler müstesna, büyük bir değişiklikti. Ve Allah, imanınızı asla boşa çıkarmaz. Çünkü Allah, bütün insanlara karşı çok şefkatlidir, çok merhametlidir." : Bakara 143
+
+    Bu ayet, siyasi ve güvenlik ittifakları hakkında bir prensiptir; insani ilişkiler ve ticaret hakkında bir yasak değildir. Akıl mizanı, bu ayrımı net yapmayı gerektirir.
       
       
     
@@ -1197,26 +1228,56 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 34. **Birbirinden nesiller olan: Allah her şeyi işitir ve bilir.**  
       
-    Yahudi, Hristiyan ve Müslüman peygamberler, kelimenin tam anlamıyla tek bir ailenin fertleridir. Ancak bu yalnızca başlangıçtır. Hakikatin ışığında yol alan tüm Tanrı adamları, ruhun derinliklerinde bir ve aynı ailenin parçasıdır. Çünkü onları birleştiren, insanları ayrıştıran çizgilerden çok daha güçlü bir bağdır.  
-      
-    Eğer Allah’ı seviyor ve O’na itaat ediyorsanız, O’nun Elçisini seviyor ve sözlerine uyuyorsanız, işte o zaman sizin sevginiz, sadakatiniz ve sabrınız gerçek inancın aynası olur. İnanç, yalnızca sözcüklerin değil, yüreğin ve eylemin sınavıdır. Sevgi ve itaat, bu sınavın hem başlangıcı hem sonucudur.  
-      
-    Tüm Tanrı adamlarının bir arada oluşturduğu bu manevi aile, insanlığın özüdür. Ve her sevgi dolu itaat, bu büyük ailenin ruhuna bir harf daha ekler; onu daha güçlü, daha kalıcı kılar. Çünkü inanç, sınırları aşan, engelleri yıkan bir çağrıdır; yürekten yüreğe uzanan bir köprüdür.  
+    Bu ayetler peygamberlik tarihinin rastgele ortaya çıkan kopuk olaylardan oluşmadığını gösterir. Kur’an’a göre insanlık tarihi boyunca gönderilen peygamberler tek bir hakikatin taşıyıcılarıdır. Farklı zamanlarda yaşamış olsalar da hepsi aynı temel mesajı temsil eder: Allah’a yönelmek ve O’nun rehberliğine uymak.
+
+    "Nuh’a emrettiği dinin aynısını – Sana vahyettiklerimizi – ve İbrahim’e, Musa’ya ve İsa’ya vasiyet ettiğimizi sizin için de sabit kıldı: Yani, dinde dosdoğru olun ve onda ayrılığa düşmeyin: Allah’tan başkasına tapanlara, senin çağırdığın yol çetindir. Allah, dilediğini kendine seçer ve kendisine yöneleni doğru yola iletir." : Şura 13
+
+    Ayetlerde dört önemli isim veya soy zikredilir. Âdem insanlığın başlangıcını temsil eder. Nuh, insanlığın büyük bir kırılma döneminden sonra yeniden toparlanışını simgeler. İbrahim ise tevhid inancının tarih içindeki en güçlü temsilcilerinden biridir ve onun soyundan birçok peygamber gelmiştir. İmran ailesi ise Meryem ve İsa’yı içine alan kutsal bir soy olarak anılır.
+
+    Bu silsile, peygamberlerin birbirinden kopuk kişiler olmadığını gösterir. Kur’an onların “birbirinden gelen nesiller” olduğunu söyler. Bu ifade hem biyolojik hem de manevi bir devamlılığı anlatır. Peygamberler aynı görevin farklı dönemlerdeki taşıyıcılarıdır.
+
+    "Allah, meleklerden ve insanlardan elçiler seçer, çünkü Allah her şeyi işiten ve görendir." : Hac 75
+
+    Bu nedenle Yahudilik, Hristiyanlık ve İslam geleneğinde yer alan peygamberler aslında tek bir kökün dallarıdır. Tarih içinde ortaya çıkan ayrılıklar insan topluluklarının yorumlarından doğmuştur. Kur’an ise bu peygamberlerin hepsini aynı hakikat zincirinin parçaları olarak görür.
+
+    Burada geçen “üstün kılma” ifadesi ayrıcalıklı bir soy anlayışı anlamına gelmez. Bu üstünlük, taşıdıkları sorumluluk ve görevle ilgilidir. Peygamberler insanlara rehberlik etmek için seçilmiş kimselerdir. Bu seçim, Kur’an’ın başka bir yerinde de ifade edildiği gibi Allah’ın hikmetine dayalıdır.
+
+    Bu üstünlük, sorumluluk ve misyon üstünlüğüdür; ayrıcalık ve statü değil. Kuran'da asıl üstünlük takva iledir (Hucurat 49:13). Peygamberlerin üstünlüğü, taşıdıkları yüktür.
+
+    "Ey insanlık! Biz sizi bir erkek ve bir dişi bir çiftten yarattık ve birbirinizi hor görmeyesiniz, birbirinizi tanıyasınız diye sizi milletlere ve kabilelere ayırdık. Muhakkak ki Allah katında en üstün olanınız, takvaca en üstün olanınızdır. Allah, her şeyi bilendir ve her şeyden haberdardır." : Hucurat 13
+
+    Peygamberlerin oluşturduğu bu tarihsel çizgi, aynı zamanda inananlara da bir yön gösterir. İnanç yalnızca bir söz veya kimlik değildir. Kur’an’a göre gerçek bağlılık sevgi, sadakat ve itaatle ortaya çıkar. Allah’a bağlılık iddiası, O’nun gönderdiği elçilerin yolunu takip etmekle anlam kazanır.
+
+    Bu yüzden iman yalnızca düşünsel bir kabul değil, aynı zamanda bir yaşam biçimidir. İnsan inancını sözleriyle değil, davranışlarıyla da ortaya koyar. Peygamberlerin örnekliği bu noktada önem kazanır; çünkü onların hayatı inancın pratik biçimini gösterir.
+
+    Sonuç olarak bu ayetler insanlık tarihine farklı bir bakış sunar. Kur’an’a göre peygamberler birbirinden kopuk figürler değildir. Hepsi aynı hakikatin farklı zamanlardaki temsilcileridir. Onları birleştiren şey soy bağından daha güçlü olan ortak görevdir: insanları Allah’a yöneltmek.
+
+    Bu nedenle peygamberler tarihine bakmak, yalnızca geçmişi öğrenmek değildir. Aynı zamanda insanın kendisini hangi manevi mirasın parçası olarak gördüğünü anlamasıdır. Kur’an’ın çağrısı, bu mirası tanımak ve onu bilinçli şekilde sürdürmektir. Bu ayetler, peygamberler tarihinin dağınık hikayeler değil, tek bir hakikat serüveni olduğunu ilan eder. Mümin, bu zincirin bilinçli bir halkası olmaya davetlidir.
       
     
 35. **Bakın! İmranlı bir kadın dedi ki: “Rabbim, karnımdakini Senin özel hizmetine adadım. O halde benden bunu kabul et: Çünkü sen her şeyi işiten ve bilensin.”**  
       
-    İsa’nın hikayesine başlarken, bu büyük bir hikayenin önsözü gibi, önce Meryem’in doğumuna ve Vaftizci Yahya’nın, yani Zekeriya’nın oğlunun hikayesine dokunuruz. Yahya’nın annesi Elizabeth, Meryem’in kuzeniydi. Luka kitabı bize (Luka 1:36) onların kan bağıyla akraba olduğunu anlatır. Ama bu bağ, yalnızca kanla sınırlı değildi; onların yaşamları ve ruhsal yolları da birbirine paralel, birbirine dokunurdu. Yahya ve İsa, kan bağıyla kuzen, ruh bağıyla kardeştiler.  
-      
-    Elizabeth, Musa’nın kardeşi Harun’un soyundan gelen bir rahip ailesindendi. Luka’da (Luka 1:5) bunun izi sürülür. Kocası Zekeriya da bir rahipti, bu kutsal görev onun kanına işlemişti. Meryem de muhtemelen bir rahip ailesindendi. Gelenekler, bize Meryem’in annesi Hannah’nın (ya da Batı’da bilinen adıyla Anne’nin) babasının İmran olduğunu söyler. İşte burada zamanın derinliğinden gelen bu büyük aile, İmran’ın adıyla şekillenir. Hannah, hem İmran’ın soyundan gelen bir kadın hem de İmran’ın eşiydi. Bu yüzden “İmran’ın bir kadını” ifadesi iki anlamda yankılanır.  
-      
-    İlahi yolların, ruhların ve kaderlerin iç içe geçtiği hayat hikayesi…  
-      
-    Tüm dünyevi işlerden sıyrılmış, yüreğini ve hayatını Allah’a adayarak yaşamışlardı. Dualarında, gecelerini gündüzlerini bir oğul için yakarmışlardı. Oğulları, onların yaşlılık günlerine bir teselli, Allah’ın hizmetinde bir özel adanmış olacaktı. Ancak Allah’ın planı, onların hayal ettiklerinden çok daha büyük, çok daha derindi. Allah, onlara bir kız verdi.  
-      
-    Ama o kız, sıradan bir çocuk değildi. O, kadınlar arasında seçilmiş, Allah’ın nuruyla ışıklanmış bir yolcuydu. Yazgısı, İsa Peygamberin annesi olmaktı. O kız, Meryem’di. Allah’ın lütfuyla bezenmiş, her adımında kutsiyet taşıyan bir yaşamın başlangıcıydı.  
-      
-    İnsan, dualarını eder, niyazlarını sunar, ama Allah’ın iradesi, her şeyin üstündedir. Ve Meryem’in doğumu, dualardan doğmuş bir mucizeydi; ama o mucize, tüm insanlık için yeni bir çağın kapısını aralayan bir ışıktı.  
+    Bu ayet Meryem kıssasının başlangıcıdır. Kur’an burada önce bir annenin duasını anlatır. İmran’ın eşi henüz doğmamış olan çocuğunu Allah’a adadığını söyler. Bu adak, çocuğun hayatını Allah’a kulluk ve hizmet yolunda yetiştirme niyetidir.
+
+    Ayetin merkezinde bir annenin samimi niyeti vardır. O, karnındaki çocuğun yalnızca kendisine ait olmadığını bilir. Onu Allah’a emanet eder ve duasını şöyle tamamlar: “Benden kabul et.” Bu söz, insanın niyetini ortaya koyduktan sonra sonucu Allah’ın bilgisine bırakmasının ifadesidir.
+
+    O dönemde mabette hizmet edenlerin çoğu erkeklerdi. Bu yüzden İmran’ın eşi de muhtemelen doğacak çocuğun erkek olacağını düşünüyordu. Fakat Kur’an’ın anlatısı burada önemli bir dönüşe hazırlanır. Allah, insanın beklentisinden farklı bir sonuç yaratacaktır.
+
+    İmran’ın eşi bir kız çocuğu doğurur. Bu kız Meryem’dir.
+
+    Kur’an’ın anlatmak istediği nokta tam da burada ortaya çıkar. İnsan bazen kendi beklentisine göre bir gelecek tasarlar; fakat Allah’ın takdiri daha geniş bir hikmete dayanır. İmran’ın eşi çocuğunu Allah’ın hizmetine adamak istemişti. Allah bu niyeti kabul etti, fakat bu hizmeti beklenenden çok daha büyük bir biçimde gerçekleştirdi.
+
+    Çünkü Meryem sıradan bir çocuk olmayacaktır. Kur’an daha sonra onun Allah tarafından seçildiğini ve özel bir şekilde yetiştirildiğini bildirir. Onun hayatı, insanlık tarihinin önemli bir dönemine tanıklık edecektir. Meryem, İsa peygamberin annesi olacaktır.
+
+    Bu yüzden Meryem’in doğumu yalnızca bir aile hikâyesi değildir. Aynı zamanda ilahi planın nasıl işlediğini gösteren bir örnektir. İnsan niyet eder, dua eder ve elinden geleni yapar. Fakat olayların nihai yönü Allah’ın hikmetiyle şekillenir.
+
+    Tarihsel ve geleneksel anlatılarda Meryem’in ailesi hakkında çeşitli bilgiler bulunur. Hristiyan metinleri ve bazı eski rivayetler, Meryem’in annesinin adının Hannah veya Anne olduğunu söyler. Ayrıca Yahya peygamberin annesi Elizabeth ile akrabalık bağından söz edilir. Bu bilgiler tarihsel arka plan açısından ilgi çekici olsa da Kur’an kıssasının merkezinde yer almaz. Kur’an’ın vurgusu isimler ve ayrıntılar değil, niyet ve teslimiyettir.
+
+    Bu kıssanın ana mesajı şudur: İnsan Allah’a yöneldiğinde ve niyetini samimiyetle ortaya koyduğunda, Allah o niyeti karşılıksız bırakmaz. Bazen sonuç insanın beklediği şekilde gerçekleşmez; fakat ilahi hikmet çoğu zaman insanın tasavvurundan daha geniştir.
+
+    İmran’ın eşinin duası bunun açık bir örneğidir. O, doğacak çocuğunu Allah’a hizmet için adadı. Allah da bu adağı kabul etti ve Meryem’i insanlık tarihinde özel bir yere sahip olacak şekilde yetiştirdi.
+
+    Böylece Kur’an, Meryem kıssasına bir annenin duasıyla başlar. Bu dua, insan iradesi ile ilahi takdir arasındaki ilişkinin sade ama güçlü bir örneğidir.
       
     
 36. **Onu doğurduğunda şunları söyledi: “Ey Rabbim! İşte bak, ben bir kız çocuğu doğurdum!” -Allah onun ne doğurduğunu daha iyi biliyordu- “Erkek kadın gibi hikmet sahibi değildir./Erkek dişi benzeri/fıtratında değildir. Adını Meryem koydum ve onu ve soyunu, Reddedilen/Kovulan/Kovulmuş Şeytan’dan Senin korumana emanet ediyorum.”**  
