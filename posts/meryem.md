@@ -127,7 +127,7 @@ Tek yapabildiği, sıradan bir çocuk olmadığını bildiği çocuğu işaret e
 
 İsa ve Yahya anlatılarında bazı farklılıklar olmakla birlikte bir paralellik vardır. Hem paralellikler hem de varyasyonlar ilginçtir.
 
-31. **“Nerede olursam olayım, beni mübarek kıldı ve yaşadığım müddetçe bana namazı/duayı/ibadeti ve zekatı emretti.**
+31. **“Nerede olursam olayım, beni mübarek kıldı ve yaşadığım müddetçe bana salatı/duayı/ibadeti ve zekatı emretti.**
 
 İsa daha en başından Allah’ın kulu olduğunu ilan ederek, kendisinin Allah veya Allah’ın oğlu olduğu şeklindeki yanlış algıyı çürütüyor.
 

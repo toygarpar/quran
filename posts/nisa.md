@@ -32,6 +32,20 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ve işte bu noktada, kadınlar, yetimler ve aile ilişkileri üzerine yapılacak olan beyanlar başlar.
 
+    Burada ayetin dikkat çekici bir kelimesi vardır: “vel-erhâm”. Ayette "Vettekullâhe... ve'l-erhâm" (Allah'tan sakının... ve rahimler) ifadesi geçer. Arapça gramerinde "erham" kelimesi, önceki "Vetteku" (korkun/sakının) emrinin nesnesi olarak kabul edilebileceği gibi, bazı dilbilimcilere göre de "Allah" lafzına atfedilerek "Allah'a ve (O'nun bağladığı) rahimlere saygı duyun" şeklinde de çevrilebilir.
+
+    Arapça metinde geçen bu kelime “rahimler”, yani insanı dünyaya getiren annelik bağını ifade eder. Aynı kelime Arapçada akrabalık bağlarının da temelini anlatır; çünkü bütün soy bağları nihayetinde rahimden doğan hayatla başlar. Bu yüzden bazı çeviriler ayeti yalnızca “akrabalık bağlarını gözetin” diye aktarırken, bazı müfessirler ve çevirmenler —örneğin Yusuf Ali ve Salsabil mealinde tarafim— anlamı daha açık kılmak için bunu “sizi doğuran rahimlere saygı duyun” şeklinde ifade etmiştir.*
+
+    Bu nüans Kur’an’ın insanlık tasavvurunda önemli bir yere işaret eder. İnsan yalnızca birey olarak yaratılmış bir varlık değildir; rahimler aracılığıyla birbirine bağlanan bir insanlık ailesinin parçasıdır. Her insan, annesinin rahminden dünyaya gelir ve bu gerçek, insanlık onurunun en temel hatırlatmalarından biridir. Bu nedenle ayette Allah’a saygı ile rahimlere saygı aynı cümlede anılır. Yani insanın hem Yaratanına karşı sorumluluğu vardır hem de kendisini dünyaya getiren ve soy bağını sürdüren annelik bağlarına karşı bir saygı borcu vardır.
+
+    Bu bakımdan “vel-erhâm” ifadesi yalnızca biyolojik bir gerçeği değil, aynı zamanda ahlaki bir ilkeyi de ortaya koyar: İnsan, kendisini var eden rahmi küçümseyemez; anneliği ve akrabalık bağlarını değersiz göremez. Kur’an’ın insanlık anlayışında rahim, hayatın başlangıcı ve merhametin kaynağıdır. Bu yüzden Kur’an insanlara yalnız Allah’tan sakınmalarını değil, aynı zamanda rahim bağlarını korumalarını da emreder. Çünkü insanlık, aynı özden yaratılmış ve rahimler aracılığıyla çoğalmış tek bir büyük ailedir.
+
+    *Not:
+    "Akıl mizanı" ile yola çıkmak, "Ben her şeyi bilirim" iddiası değil; "Elimdeki en değerli araçla (aklımla) hakikati arıyorum, ama sınırlıyım; mutlak doğruyu bilen yalnızca O'dur" bilincidir.
+    "De ki: Ruh, Rabbimin emrindendir. Size ilimden ancak az bir şey verilmiştir." (İsra 17:85)
+    "Rabbimiz! Unutursak veya hataya düşersek bizi sorumlu tutma..." (Bakara 2:286)
+    De ki: Ey kendi nefisleri aleyhine haddi aşan kullarım! Allah'ın rahmetinden ümidinizi kesmeyin. Şüphesiz Allah bütün günahları bağışlar..." (Zümer 39:53)
+
 
 
 2. **Yetimlere, yaşlarına eriştikleri zaman mallarını geri verin ve sizin değersiz şeylerinizi onların iyileriyle değiştirmeyin; ve onların mallarını kendi mallarınıza karıştırarak yemeyin. Çünkü bu gerçekten büyük bir günahtır.**

@@ -1282,17 +1282,94 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 36. **Onu doğurduğunda şunları söyledi: “Ey Rabbim! İşte bak, ben bir kız çocuğu doğurdum!” -Allah onun ne doğurduğunu daha iyi biliyordu- “Erkek kadın gibi hikmet sahibi değildir./Erkek dişi benzeri/fıtratında değildir. Adını Meryem koydum ve onu ve soyunu, Reddedilen/Kovulan/Kovulmuş Şeytan’dan Senin korumana emanet ediyorum.”**  
       
-    Erkek, kadın gibi hikmet sahibi değildir. Ya da erkek kadın benzeri değildir. Bence burada bu doğan kız çocuğunun eşsizliğine değiniliyor. Meallerde erkek kız gibi değildir denip geçiliyor veya korunmaya muhtaç olduğundan veya mabed için hizmet veremeyeceğine dair çeviri yapılıyor. Allah’ın affına sığınarak benim çevirim bu kızın eşsizliğine, hatta kadının hikmeti üzerinedir. Sizi doğuran rahimlere saygı duyun! Erkek kız gibi değildir diye çevirip geçenler bence bunu iyi idrak etmeliler.  
+    Erkek, kadın gibi hikmet sahibi değildir. Ya da erkek kadın benzeri değildir. Bence burada bu doğan kız çocuğunun eşsizliğine değiniliyor. Meallerde erkek kız gibi değildir denip geçiliyor veya korunmaya muhtaç olduğundan veya mabed için hizmet veremeyeceğine dair çeviri yapılıyor. Allah’ın affına sığınarak benim çevirim bu kızın eşsizliğine, hatta kadının hikmeti üzerinedir. Sizi doğuran rahimlere saygı duyun!(Nisa 1) Erkek kız gibi değildir diye çevirip geçenler bence bunu iyi idrak etmeliler.  
       
-    Meryem’in annesi, bir erkek çocuk bekliyordu. Fakat kız çocuğu olduğunu öğrendiğinde hayal kırıklığına uğramadı. Hayır, asla. Çünkü onun inancı tamdı, sağlamdı. Allah’ın Planı’nın kendi isteklerinden, kendi hayallerinden çok daha büyük olduğunu biliyordu. Meryem, sıradan bir kız değildi. Onun ne olduğunu, neyi temsil ettiğini yalnızca Allah biliyordu.  
-      
-    Musa’nın yasasına göre, bir kız çocuğu Tapınak’ta hizmet edemezdi. Ama Meryem, başka bir Plan için seçilmişti. O, mucize bir çocuktu, tıpkı oğlu İsa’nın da mucize olacağı gibi. Annesi, onu ve soyunu kötülükten, şeytandan koruması için Allah’a emanet etti. Bu isteğiyle huzur buldu, içi rahattı.  
-      
-    Ve o, kızı Meryem’le gurur duyuyordu. Onun gözlerinde, yüreğinde, bu kızın taşıdığı yazgının ağırlığı vardı. Bir annenin, evladına duyduğu o derin, o tarifsiz sevgiyle birlikte…
+    Bu ayet, insan beklentisi ile ilahi hikmet arasındaki farkı gösteren önemli bir sahnedir. İmran’ın eşi çocuğunu Allah’a adamıştı. Mabette hizmet edenlerin çoğu erkek olduğu için, doğacak çocuğun erkek olacağını düşünmüş olması doğaldı. Fakat çocuk doğduğunda bir kızdı.
+
+    O an söylediği söz Kur’an’da şöyle aktarılır: “Erkek kadın gibi değildir.”
+
+    Bu ifade çoğu mealde yalnızca biyolojik bir karşılaştırma gibi aktarılır. Ancak ayetin bütününe bakıldığında daha derin bir anlam ortaya çıkar. Çünkü hemen ardından Kur’an şu cümleyi ekler: “Allah onun ne doğurduğunu daha iyi biliyordu.”
+
+    Bu ilahi ara cümle, insanın sınırlı bakışı ile Allah’ın bilgisi arasındaki farkı gösterir. Anne o anda kız çocuğu doğurduğunu söylüyordu; fakat Allah bu çocuğun kim olacağını, insanlık tarihinde nasıl bir rol üstleneceğini zaten biliyordu.
+
+    Bu kız çocuğu Meryem idi.
+
+    Kur’an daha sonra onun hakkında açık bir hüküm verir:
+
+    “Allah seni seçti, seni arındırdı ve seni bütün kadınlara üstün kıldı.”
+    (Âl-i İmrân 3:42)
+
+    Bu yüzden ayetin anlamı yalnızca “erkek kız gibi değildir” şeklinde basit bir karşılaştırma değildir. Hikâyenin sonucuna bakıldığında, Allah’ın seçiminin insanın alışılmış beklentilerini aşabildiği görülür. İnsan hizmet için erkek çocuk bekleyebilir; fakat Allah bir kız çocuğunu seçip onu insanlık tarihinde eşsiz bir konuma yerleştirebilir.
+
+    Meryem bunun en güçlü örneğidir.
+
+    Annesi bu gerçeği o anda tam olarak bilmese de, bir şeyi biliyordu: çocuğu Allah’ın emanetiydi. Bu yüzden onu ve soyunu şeytandan koruması için Allah’a sığındı. Bu dua Kur’an’da özellikle vurgulanır. Çünkü bir annenin evladı için yaptığı bu teslimiyet duası, Meryem kıssasının temelini oluşturur.
+
+    Burada Kur’an’ın insanlığa hatırlattığı daha geniş bir ilke de vardır. Kur’an başka bir ayette insanlara şöyle seslenir:
+
+    “Ey insanlık! Sizi tek bir nefisten/candan yaratan,
+    eşini aynı özden/benzer nitelikte yaratan ve onlardan tohumlar
+    gibi sayısız erkek ve kadın saçan Rabbinize saygı
+    gösterin/hürmet gösterin; – Aracılığıyla birbirinizin
+    haklarını talep ettiğiniz/karşılıklı haklarınızı talep
+    ettiğiniz Allah’a hürmet gösterin/saygı duyun/Allah’tan
+    korkun ve sizi doğuran rahimlere hürmet gösterin/saygı duyun:
+    çünkü Allah sizi gözetliyor.”
+    : Nisâ 1
+
+       
+    Ayetin Arapça metninde “vel-erhâm” kelimesi yer alır. “Erhâm” kelimesi rahimler, yani insanı dünyaya getiren annelik bağını ifade eder. Bu kelime aynı zamanda akrabalık bağlarının temelini anlatır. Yusuf Ali gibi bazı çevirilerde ve benim mealimde bu ifade doğrudan “sizi doğuran rahimlere saygı duyun” şeklinde yorumlanmıştır.
+
+    Bu vurgu önemli bir gerçeği hatırlatır: insanlık tek bir kökten yaratılmıştır ve bu kökün dünyaya gelmesi annelerin rahmi aracılığıyla gerçekleşir. Kur’an’ın dilinde rahim kelimesi yalnız biyolojik bir organ değildir; aynı zamanda merhamet, bağ ve hayatın devamı anlamına gelir.
+
+    Bu nedenle Kur’an’ın bakışında kadın aşağı bir konumda değildir. Aksine insanlığın varlığı ve devamı onun üzerinden gerçekleşir. Meryem kıssasının Kur’an’da bu kadar güçlü biçimde anlatılması da tesadüf değildir.
+
+    Bugün bazı toplumlarda kadınların değersiz görülmesi; onlara baskı kurulması, şiddet uygulanması veya ikinci plana itilmesi, Kur’an’ın ortaya koyduğu bu dengeyle uyuşmaz. Kur’an’ın mesajı açıktır: üstünlük cinsiyette değil, takvada ve teslimiyettedir.
+
+    Meryem bunun en açık örneklerinden biridir. O ne bir kralın kızıydı ne de siyasi bir güce sahipti. Fakat Allah onu seçti ve insanlık tarihinin en önemli şahsiyetlerinden biri haline getirdi.
+
+    Bu yüzden Meryem’in doğumu yalnızca bir ailenin hikâyesi değildir. Aynı zamanda insanın beklentilerinin ötesinde işleyen ilahi hikmetin bir örneğidir.
+
+    Bir anne çocuğunu Allah’a adadı.
+    Allah o adağı kabul etti.
+    Ve o kız çocuğu, insanlık tarihinin en büyük kıssalarından birinin merkezine yerleşti.
 
 37. **Rabbi onu lütfuyla kabul etti: Onu saflık ve güzellik içinde büyüttü: Zekeriya’nın himayesine verildi. Onu görmek için Onun odasına her girdiğinde, onu rızıklandırılmış buldu. “Ey Meryem! Bunlar sana nereden geliyor?” O: “Allah’tandır. Çünkü Allah, dilediğini hesapsız rızıklandırır.”**  
       
-    Meryem, Allah’ın koruyucu kanatları altında serpildi. Onun rızkı, hem bedenini doyuran nimetler hem de ruhunu besleyen manevi gıdalar, hep Allah’tan geldi. Öyle bir büyüme ki, görenler hayran kalırdı. İşte bu büyüme, bu yücelik, “saflık ve güzellik” ile anlatılabilirdi. Meryem, tertemiz bir çiçek gibi açtı, Allah’ın lütfuyla.  
+    Kur’an burada Meryem’in büyümesini iki güçlü ifadeyle anlatır. İlki “Rabbi onu güzel bir kabul ile kabul etti” sözüdür. Bu, annesinin duasının karşılıksız kalmadığını gösterir. İmran’ın eşi çocuğunu Allah’a adamıştı; Allah da bu adağı kabul etmiş ve Meryem’i kendi lütfuyla koruma altına almıştır.
+
+    İkinci ifade ise daha derin bir benzetme taşır: “Onu güzel bir bitki gibi yetiştirdi.” Bu söz, Meryem’in büyümesini zorlanmış bir eğitim değil, fıtratına uygun, kök salan ve doğal biçimde gelişen bir olgunlaşma olarak tasvir eder. Bir bitki nasıl toprağın içinde yavaş yavaş kök salar, güneşle güçlenir ve sonunda çiçek açarsa, Meryem de Allah’ın gözetimi altında böyle büyümüştür. Onun gelişimi yalnız bedensel değil, aynı zamanda ruhsal ve ahlaki bir olgunlaşmadır.
+
+    "Ve iffetini koruyan İmran kızı Meryem’i; ve bedenine ruhumuzdan üfledik; Rabbinin sözlerinin ve âyetlerinin hakikatını tasdik etti ve sadık/samimi salih kullarından biri oldu." : Tahrim 12
+
+    Kur’an daha sonra Meryem’in hayatındaki önemli bir ismi zikreder: Zekeriya. Allah onu Meryem’in koruyucusu ve rehberi kılmıştır. Zekeriya’nın bir peygamber olduğu düşünülürse, Meryem’in eğitiminin ehil ve güvenilir bir rehberin himayesinde gerçekleştiği anlaşılır. Bu, ilahi planın yalnızca mucizelerle değil, doğru rehberlikle de yürüdüğünü gösterir.
+
+    "Ve Zekeriya ve Yahya ve İsa ve İlyas: hepsi salihlerdendir:" Enam 85
+
+    Ayetin en dikkat çekici kısmı ise Zekeriya’nın Meryem’i ziyaret ettiğinde gördüğü durumdur. Ne zaman onun ibadet ettiği odaya girse, yanında bir rızık bulurdu. Bu rızık sıradan bir şey değildi; beklenmedik zamanlarda ortaya çıkan bir nimetti. Zekeriya buna şaşırır ve sorar: “Ey Meryem! Bu sana nereden geliyor?”
+
+    Meryem’in cevabı kısa ve nettir: “Allah’tandır. Allah dilediğini hesapsız rızıklandırır.”
+
+    "Allah, dilediğine verdiği rızkı genişletir veya kısarak verir. Dünyâ hayatını sevenler, dünya hayatına sevinir: Fakat dünya hayatı, ahirette pek az rahatlık sağlar." : Rad 26
+
+    "Daha önce Sebe’ için memleketlerinde bir ayet vardı – sağda ve solda iki cennet. “Rabbinizin verdiği rızıklardan yiyin ve O’na şükredin: Adil ve Memnuniyet dolu bir beldeye ve bağışlayan bir Rab’be!" : Sebe 15
+
+    Bu cevap, Meryem’in yetişmesindeki en önemli bilinci gösterir. O, aldığı nimeti kendisine veya insanlara bağlamaz. Kaynağın yalnızca Allah olduğunu bilir. Böylece Kur’an, Meryem’in büyümesini sadece bir mucize hikâyesi olarak değil, aynı zamanda tevhid bilinciyle şekillenmiş bir hayat olarak anlatır.
+
+    "Ama Rabbinin adını an ve kendini O’na bütün kalbinle ada.
+    O Doğunun da Batının da Rabbidir. O’ndan başka ilah yoktur. Öyleyse O’nu kendine vekil edin." : Müzemmil 8-9
+
+    Bu kıssa aynı zamanda rızık kavramının da yalnızca maddi yiyeceklerden ibaret olmadığını hatırlatır. Kur’an’da rızık; bilgi, huzur, iman ve manevi destek gibi insanın ruhunu besleyen nimetleri de kapsar. Meryem’in yanında bulunan rızık, hem bedeni besleyen nimetleri hem de Allah’ın ona verdiği manevi desteği simgeler.
+
+    Böylece Kur’an, Meryem’in büyümesini üç temel unsurla anlatır:
+    Allah’ın kabulü, doğru rehberlik ve ilahi rızık. Bu üçü birleştiğinde, insanın nasıl olgunlaştığını ve nasıl seçkin bir karaktere ulaştığını gösteren bir örnek ortaya çıkar. 
+
+    İlahi Terbiye Modeli:
+    Kabul: Dua ve adak, ilahi kabul ile sonuçlanır (Hasenen Kablehâ).
+    Yöntem: Doğal, aşamalı ve fıtrata uygun büyüme (Nebaten Hasenen).
+    Rehber: Ehil ve güvenilir bir veli (Zekeriya - Peygamber).
+    Destek: Görünür ve görünmez rızık kaynakları (Keramet).
+    Bilinç: Kaynağı Allah olarak tanıma (Tevhid).
       
       
     
@@ -1301,11 +1378,50 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İsa’nın annesi Meryem’in, İsa’nın öncüsü Vaftizci Yahya’nın ve İsrail’in reddettiği İsrail peygamberi İsa’nın doğumları, işte bu sırayla gerçekleşti. Bu sırayla anlatıldı. Hepsi birbirine bağlıydı, birbirinin devamıydı. Zekeriya, sıradan bir oğul için dua etmedi. O ve karısı, artık ebeveynlik çağını geçmişlerdi. Ama Meryem’in büyüyüşünü, o tertemiz halini görünce, Allah’a yöneldi. Bir çocuk istedi, ama öyle alelade bir çocuk değil. “Senden, tertemiz bir nesil niyaz ederim,” dedi. Belki de aklında evlat edinmek vardı. Meryem’i evlat edinmek mi istiyordu? Kim bilir…  
       
     Derken, şaşkınlığına bakın ki, özel bir işaretle/ayetle, kendisine bedenen bir oğul verildi. İşte o an, her şey değişti. Zekeriya’nın duası, Allah’ın hikmetiyle birleşti ve her şey, birbirine kenetlendi. Allah’ın Plan ve Takdiri işliyordu.  
+
+    "Dua ederek: “Rabbim! Gerçekten kemiklerim zayıf ve başımdaki saçlar ağarıyor: Ama sana dua ettiğimde asla bahtsız değilim, ey Rabbim!
+    “Artık benden sonra akrabalarımın ve arkadaşlarımın yapacaklarından korkuyorum: fakat karım da kısır; öyleyse bana kendi katından bir vâris ver,-" : Meryem 4-5
+
+    Zekeriya bu duayı boşlukta etmedi. Onu bu duaya götüren bir sahne vardı. Meryem’in ibadet ettiği o odaya her girdiğinde, yanında beklenmedik bir rızık buluyordu. Zamanı değilken gelen meyveler, açıklaması kolay olmayan nimetler… Zekeriya bunu gördü ve düşündü.
+
+    Eğer Allah, Meryem’i böyle koruyup rızıklandırıyorsa; insanın hesaplarına sığmayan şeyleri de yaratabiliyorsa, o halde yaşlılık da, kısırlık da O’nun kudretinin önünde engel değildir.
+
+    İşte o anda Zekeriya Rabbine yöneldi.
+
+    Bu dua sıradan bir çocuk isteği değildi. Çünkü Zekeriya ve eşi artık yaşlanmıştı. Kur’an başka bir yerde onun durumunu şöyle anlatır: kemikleri zayıflamış, saçları ağarmıştı. Üstelik eşi de kısırdı. Yani insan hesabına göre çocuk sahibi olmak artık mümkün görünmüyordu.
+
+    Fakat Zekeriya’nın duası yalnızca bir evlat özlemi değildi. O “temiz bir nesil” istedi. Bu ifade, yalnızca biyolojik bir çocuk değil, aynı zamanda doğru yolu sürdürecek bir mirasçı anlamına gelir. Zekeriya’nın kaygısı, kendisinden sonra gelecek neslin Allah’ın yolunu taşıyıp taşımayacağıydı. Bu yüzden duası hem kişisel hem de manevi bir sorumluluğun ifadesiydi.
+
+    Kur’an bu duanın karşılıksız kalmadığını anlatır. Allah, Zekeriya’ya beklemediği bir şekilde cevap verir. Yaşlılık ve kısırlık gibi insanın kesin sandığı engeller, ilahi irade karşısında anlamını yitirir. Ve Zekeriya’ya bir oğul müjdelenir: Yahya. 
+
+    Duası kabul olundu/cevaplandı: “Ey Zekeriya! Biz sana bir oğul müjdeliyoruz. Onun adı Yahya olacak; daha önce bu isimle hiç kimseye ayrıcalık tanımadık.”  : Meryem 7
+
+    Bu ayet, çocuğun eşsizliğini (tayyib oluşunu) vurgular.
+
+    Kur’an ayrıca bu çocuğun özel bir konum taşıdığını belirtir. Ona verilen isim daha önce kimseye verilmemiştir. Bu da onun sıradan bir çocuk olmadığını gösterir.
+
+    Böylece Meryem’in hayatında görülen ilahi lütuf, Zekeriya’nın duasına bir umut kapısı açar. Meryem’in yanında gördüğü rızık, onun için bir işaret olur. Bu işaret, bir duaya dönüşür. O dua ise yeni bir mucizenin başlangıcı olur.
+
+    Böylece Kur’an’da olaylar birbirinden kopuk değildir. Meryem’in büyümesi, Zekeriya’nın duasına ilham verir. Zekeriya’nın duası Yahya’nın doğumuna kapı açar. Yahya’nın doğumu ise daha büyük bir olayın habercisidir: İsa’nın gelişi.
+
+    Her biri diğerine bağlıdır. Her biri aynı hikmet zincirinin halkasıdır.
       
     
 39. **O mihrapta dikilmiş salat ederken melekler ona seslendiler: “Allah sana, Allah’tan gelen bir Söz’ün gerçeğine şahitlik eden, asil, iffetli ve salihlerden bir peygamber olan Yahya’yı müjdeliyor.”**  
       
-    “Allah’tan bir Söz”, mistik Hristiyanlığın İsa için kullandığı sıfat olan “Allah’ın Sözü” değil. Aşağıdaki 3:59’da belirtildiği gibi, İsa bir mucizeyle, Allah’ın “Ol” sözüyle yaratıldı ve oldu.  
+    Mihrapta durmuştu Zekeriya. Salat halindeydi; aklı ve kalbi tek bir noktaya yönelmişti. İşte tam o sırada meleklerin sesi geldi. Ona, Allah’ın Yahya’yı müjdelediğini söylediler. Bu çocuk sıradan bir evlat olmayacaktı. Allah’tan gelen bir kelimeyi tasdik edecek, sözü dinlenen biri olacak, nefsine hakim olacak ve salihlerden bir peygamber olarak yaşayacaktı.
+
+    Buradaki “Allah’tan bir söz” ifadesi çoğu zaman yanlış anlaşılır. Hristiyan geleneğinde İsa için kullanılan “Tanrı’nın Sözü” anlayışıyla aynı şey değildir. Kur’an’ın söylediği daha açıktır: İsa, Allah’ın “Ol” emriyle yaratılmış bir mucizedir. Yani “Allah’tan bir Söz”, onun ilahi bir varlık olduğu anlamına gelmez; yaratılışının sebebini ifade eder. Nitekim Al-i İmran 3:59’da İsa’nın durumu Adem’e benzetilir: Allah “Ol” demiştir ve olmuştur. Bu yüzden “Allah’tan bir söz”, yaratılış emrinin sonucu olan bir mucizeyi anlatır.
+
+    Bu noktada Yahya’nın görevi de ortaya çıkar. Ayette geçen “tasdik edici” ifadesi, onun İsa’yı doğrulayacak biri olduğunu gösterir. Yahya, İsa’nın biraz öncesinde doğmuş ve halkı hazırlayan bir peygamber olmuştur. İnsanları arındırmaya, doğru yola çağırmaya çalışmış; böylece İsa’nın mesajının anlaşılacağı bir zemin oluşturmuştur. Bu, peygamberlerin birbirinden kopuk değil, birbirini tamamlayan bir zincir halinde gönderildiğini gösterir.
+
+    Yahya’nın karakteri de özellikle vurgulanır. “Sayyid” yani saygın ve sözü dinlenen biri olacaktır. “Hasur” ise sadece iffetli olmak demek değildir; aynı zamanda nefsin isteklerini kontrol edebilen, günaha karşı güçlü bir iradeye sahip olan kişi demektir. Bu, onun hayatında disiplin ve ahlaki sağlamlık bulunduğunu gösterir. Ayrıca “salihlerden bir peygamber” olarak tanımlanması, hem doğru yaşayan hem de topluma fayda sağlayan biri olacağını ifade eder.
+
+    Meleklerin Zekeriya’ya seslenmesi de önemli bir noktadır. Bu, peygamberlerin gayb aleminden gelen mesajlara açık olduğunu gösterir. Zekeriya’nın duası ve ibadeti sırasında bu müjdenin verilmesi tesadüf değildir. Yoğun ibadet ve içten yöneliş, ilahi mesajın iletilmesi için uygun bir zemin oluşturur.
+
+    Kur’an’ın başka ayetleri de bu tabloyu tamamlar. Al-i İmran 3:45’te Meryem’e İsa’nın “Allah’tan bir Söz” olarak müjdelendiği söylenir. Meryem 19:12’de ise Yahya’ya daha çocukken hikmet verildiği anlatılır. Bu ayetler birlikte düşünüldüğünde, Yahya’nın erken yaşta olgunlaşmış bir peygamber olduğu ve İsa’nın gelişine hazırlık yapan bir rol üstlendiği anlaşılır.
+
+    Sonuçta bu anlatı sadece bir doğum müjdesi değildir. Zekeriya’nın duasıyla başlayan süreç, iki peygamberin birbirini tamamlayan görevine işaret eder. Yahya halkı hazırlayan ve doğrulayan bir figürdür; İsa ise Allah’ın “Ol” emriyle gerçekleşmiş bir yaratılış mucizesidir. Böylece peygamberlik, birbirinden kopuk hikâyeler değil, aynı mesajı sürdüren bir doğrulama zinciri olarak ortaya çıkar. 
       
     
 40. **“Rabbim! Ben çok yaşlıyım, karım da kısır olduğuna göre benim nasıl çocuğum olur?” “Böylece” verilen cevaptı, “Tanrı dilediğini yapar.”**  
@@ -1317,36 +1433,148 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 42. **İşte bakın! melekler dediler ki: “Ey Meryem, Allah seni seçti ve arındırdı, seni âlemlerin kadınlarına üstün kıldı.**  
       
-    İsa’nın annesi Meryem, alışılmışın dışında, fiziksel müdahale olmadan, özel bir mucizeyle bir oğul doğurması bakımından eşsizdi. Ama bu, onun insandan daha fazlası olduğu anlamına gelmiyordu, tıpkı oğlu İsa’nın da insandan daha fazlası olmadığı gibi. Meryem de herkes gibiydi, herkes gibi Allah’a dua etme ihtiyacı duyardı.  
-      
-    Hristiyanlıkta, Üniteryenlik dışındaki tüm mezhepler, İsa’nın Tanrı ve Tanrı’nın oğlu olduğunu savunur. Roma Katolik Kilisesi ise Meryem’e tapınmayı bir adım öteye götürdü. Onu “Tanrı’nın Annesi” olarak adlandırdı ve bu, bir uygulama haline geldi. Bu inanış, Mesih Kilisesi’nin yozlaşmışlıklarını temizlemek amacıyla, Muhammed’in doğumundan önceki yüzyılda, MS 431’de Efes Konseyi tarafından onaylandı.  
-      
-    Alemler, tüm milletleri, tüm insanlığı ifade eder. Herkesi, her şeyi…  
+    Melekler Meryem’e seslendiklerinde ona açık bir şey söylediler: Allah seni seçti, seni arındırdı ve seni bütün insanlar içindeki kadınlar arasında özel bir konuma yerleştirdi. Bu söz, onun hayatında sıradan olmayan bir görevin başlayacağını gösteriyordu. Meryem, Allah’ın takdiriyle büyük bir imtihanın ve büyük bir görevin içine girecekti.
+
+    Meryem’in seçilmişliği, insan olmaktan çıkması anlamına gelmez. Kur’an’ın anlattığı tablo nettir: O da diğer insanlar gibi Allah’a yönelen, dua eden, ibadet eden bir kuldur. Onu farklı kılan şey, Allah’ın ona verdiği görev ve bu görevi taşıyabilecek bir teslimiyete sahip olmasıdır. Meryem'in iffeti (Tahrim 66:12) ve kalbinin Allah'a bağlılığı bu temizliğin somut sonucudur. Meryem’in yaşayacağı mucize de bu görevin bir parçasıdır. O, hiçbir erkekle temas etmeden bir çocuk doğuracaktır. Bu çocuk İsa’dır. Bu olay, insanın alıştığı biyolojik düzenin dışında gerçekleşen bir yaratılış mucizesidir.
+
+    Fakat bu mucize ne Meryem’i ilahi bir varlık yapar ne de İsa’yı insanüstü bir varlığa dönüştürür. Kur’an’ın vurgusu tam tersidir: Her ikisi de Allah’ın kullarıdır. Meryem de dua eder, ibadet eder; İsa da Allah’ın emrine uyan bir elçi olarak yaşar. Mucize, onların kimliğini değil, Allah’ın kudretini gösterir.
+
+    "İsa Mesih, Allah’a kulluk ve ibadet etmekten
+    çekinmez, Allah’a en yakın olan melekler de. O’na kulluktan
+    çekinip büyüklük taslayanları, – O, cevap vermek için
+    hepsini huzurunda toplayacaktır." : Nisa 172
+
+    "Meryem oğlu İsa, bir elçiden başka bir şey değildi; ondan önce de nice elçiler gelip geçmiştir. Annesi hakikat kadınıydı. İkisi de günlük yemeklerini yemek zorundaydı. Bak, Allah onlara âyetlerini nasıl açıklıyor; halbuki bak, hangi yollarla nasıl hakikatten saptırılıyorlar!" : Maide 75
+
+    Tarih içinde bazı Hristiyan doktrinlerileri bu noktada farklı bir inanç geliştirmiştir. İsa’nın Tanrı veya Tanrı’nın oğlu olduğu düşüncesi yaygın hale gelmiştir. Bununla birlikte Roma Katolik geleneği Meryem’e de çok özel bir dini konum vermiştir. Ona “Tanrı’nın Annesi” denmesi bu anlayışın sonucudur. Bu görüş, Hristiyan dünyasında resmi bir öğreti haline getirilmiş ve MS 431 yılında toplanan Efes Konsili’nde kabul edilmiştir. Ama Kur’an’ın bakışı bundan farklıdır. Kur’an’da ne Meryem ilahidir ne de İsa ilahidir; ikisi de Allah’ın seçtiği kullardır.
+
+    "Dedi ki: “Ben Allah’ın kuluyum. O bana vahiy verdi ve beni peygamber yaptı;
+    Nerede olursam olayım, beni mübarek kıldı ve yaşadığım müddetçe bana salatı/duayı/ibadeti ve zekatı emretti." : Meryem 30-31
+
+    "İnsanlar arasında müminlere en şiddetli düşmanlıkta Yahudileri ve müşrikleri bulacaksın. İçlerinde müminlere sevgide en yakın olanı da “Biz Hıristiyanız” diyenleri bulursun: çünkü onların arasında ilim adamları ve dünyayı bırakmış kimseler vardır ve onlar kibirlenmezler.
+    Ve Resul’e indirileni işittikleri zaman, gözlerinin yaşla dolup taştığını görürsün, çünkü onlar gerçeği bilirler ve şöyle dua ederler: “Rabbimiz, biz inandık, bizi şahitler arasında yaz."  : Maide 82-83
+
+    “Alemlerin kadınlarına üstün kılınma” ifadesi de bu bağlamda anlaşılmalıdır. Buradaki “âlemler”, belirli bir toplumu değil, bütün insanlığı ifade eder. Yani Meryem’in üstünlüğü soyla, güçle ya da dünyevi makamla ilgili değildir. Onu öne çıkaran şey teslimiyeti, iffeti ve Allah’ın verdiği görevi taşıyabilmesidir.  
+
+    Sonuçta ayetin verdiği mesaj açıktır. Meryem, insanlık içinde seçilmiş bir kuldur. Herkes gibi" olmak, sıradanlık değil, ortak sorumluluk demektir. Ona verilen mucize, insanı ilahlaştırmak için değil, Allah’ın kudretini göstermek içindir. Kur’an, seçilmiş insanlara saygı duyar ama onları hiçbir zaman kulluk sınırının dışına çıkarmaz. Meryem’in değeri de burada yatar: İlahi bir varlık olmasında değil, Allah’a bağlı bir insan olmasında.
       
     
 43. **“Meryem, Rabbine gönülden kulluk et; secde et ve rükû edenlerle birlikte rüku et.”**  
       
-    Kadınları ibadetten dışlamak isteyen gafiller bu ayeti not etsinler.  
+    Melekler Meryem’e hitap ettiklerinde ona sadece bir ibadet biçimi öğretmiyorlardı; aynı zamanda bir duruş, bir hayat yönü gösteriyorlardı. Ona, Rabbine gönülden bağlı kalması, O’na yönelmesi ve O’nun önünde alçakgönüllü olması söyleniyordu. Ayette geçen “gönülden kulluk et” ifadesi, insanın iç dünyasını anlatır. Bu, sadece dış hareketlerle yapılan bir ibadet değil; bilinçli bir bağlılık, iradeyle yapılan bir teslimiyettir.
+
+    Ardından secde ve rükû emri gelir. Secde, insanın kendisini tamamen Allah’ın huzurunda alçaltmasını ifade eder. Rükû ise yalnızca bir beden hareketi değildir. Aynı zamanda saygı duymak, boyun eğmek ve itaat etmek anlamlarını da taşır. Bu nedenle ayetteki çağrı, sadece belirli bir ibadet hareketine katılmak değil, Allah’ın otoritesini kabul eden bir duruş sergilemektir.
+
+    Ayetin son kısmı bu anlamı daha da genişletir: “Rükû edenlerle birlikte rükû et.” Burada Meryem’e yalnız başına bir teslimiyet değil, aynı yönelişi paylaşan insanlarla birlikte durması söylenir. Bu ifade, Allah’a saygı ve itaatin bireysel olduğu kadar toplumsal bir yönü de olduğunu gösterir. İnsan, Rabbine yönelirken kendisini diğer insanlardan koparmaz; aynı değerleri paylaşanların safında yer alır.
+
+    Bu yönüyle ayet Meryem’in hayatındaki temel ilkeyi açıkça ortaya koyar. O, Allah’ın seçtiği bir kuldur; fakat bu seçilmişlik ayrıcalıklı bir konumdan çok, daha derin bir sorumluluğu ifade eder. Rabbine bağlı kalmak, O’na saygı göstermek ve O’nun iradesine boyun eğen insanlarla birlikte olmak bu sorumluluğun parçasıdır.
+        
+    Bu durum önemli bir gerçeği ortaya koyar: İbadet, kadın ya da erkek ayrımıyla belirlenen bir alan değildir. Allah’ın emri insana yöneliktir. Meryem’in ibadetle yükümlü tutulması ve hatta bunun açıkça vurgulanması, kadınların ibadet hayatından uzak tutulması gerektiğini iddia eden anlayışlarla bağdaşmaz. Kur’an’da en seçkin kadın örneği olarak gösterilen birinin secde ve rükû ile emredilmesi, ibadetin herkes için olduğunu açıkça ortaya koyar.
+
+    Kur’an’ın başka yerlerinde de aynı ilke görülür. İnanan erkekler ve inanan kadınlar birlikte anılır; ibadet, sorumluluk ve mükâfat açısından aynı ölçü kullanılır. İyi işler yapan erkek ve kadınların aynı karşılığı alacağı vurgulanır. Bu, Allah katında insanın değerinin cinsiyetle değil, iman ve amelle ölçüldüğünü gösterir. Bu yönüyle ayet önemli bir ilkeyi ortaya koyar. Kur’an’ın en seçkin kadın örneği olarak sunulan Meryem’e verilen emir, onun ibadetin dışında bir konumda olmadığını açıkça gösterir. Aksine, o ibadet hayatının aktif bir parçasıdır. Bu da ibadetin kadın veya erkek ayrımıyla sınırlandırılabilecek bir alan olmadığını gösterir.
+
+    Meryem bu yüzden sadece İsa’nın annesi olarak anlatılmaz. O aynı zamanda ibadet eden, Rabbine yönelen ve teslimiyet gösteren bir kul olarak örnek gösterilir. Onun üstünlüğü de burada yatar: Allah’a bağlılığında ve görevini taşıyabilmesinde.
+
+    Bu ayetin verdiği mesaj açıktır. İbadet insanın Rabbine yönelmesidir ve bu yöneliş kadın-erkek ayrımıyla sınırlandırılamaz. Meryem’e verilen emir, ibadetin kapısının herkese açık olduğunu gösteren açık bir örnektir.
+
+    Sonuçta ayet yalnızca ibadeti anlatmaz. Aynı zamanda saygı, itaat ve ortak bir yöneliş bilincini anlatır. Meryem’in örneği, insanın Allah karşısındaki tavrının sadece ritüellerle değil, içten bir bağlılık ve bilinçli bir teslimiyetle anlam kazandığını gösterir.
+
+    "Müslüman erkek ve kadınlara, – mümin erkek ve kadınlara, – dindar/samimi erkekler ve kadınlara, salih erkekler ve kadınlara, sabreden erkek ve kadınlara, sabreden ve sebat eden/sebatlı erkek ve kadınlara, mütevazi erkek ve kadınlara, sadaka veren erkekler ve kadınlara, oruç tutan ve kendini/nefsini kontrol eden eden erkekler ve kadınlara, iffetlerini koruyan erkekler ve kadınlara ve Allah’ı çokça zikreden erkekler ve kadınlara; Allah, onlar için bir mağfiret ve büyük bir mükâfat hazırlamıştır." : Ahzab 35
+
+    "Erkek olsun, kadın olsun, kim iman ederse, salih amel işlerse, işte onlar cennete girerler ve onlara zerre kadar haksızlık yapılmaz." : Nisa 124
+
+    "Mü’min erkek ve mü’min kadınlar birbirlerinin velileridir; iyiliği emreder, kötülükten sakındırırlar; salatı düzenli ikame ederler, zekâtı verirler, Allah’a ve Resûlü’ne itaat ederler. Allah onların üzerine rahmetini yağdırır: Allah, mutlak güç sahibidir, hüküm ve hikmet sahibidir." : Tevbe 71
     
 
 44. **Bu, sana ilhamla vahyettiğimiz gayb haberlerinin bir kısmıdır ey Resul: Meryem’in bakımını hangisinin üstleneceği konusunda oklarla kura çektikleri zaman sen yanlarında değildin: Bu konuda ihtilafa düştükleri zaman da sen yanlarında değildin.**  
       
-    Gayb, Görünmeyen şeyler: insan algısının ötesindeki bir alana aittir ve bu nedenle bunlar hakkında tartışmak veya spekülasyon yapmak uygunsuz olacaktır.  
-      
-    Hristiyan apokrif yazıları ise bambaşka bir hikâye anlatır. Meryem’in sorumluluğunu üstlenmenin onuru, rahipler arasında bir çekişmeden ve bunun Zekeriya lehine değnekler ve oklar yoluyla nasıl karara bağlandığından bahsedilmektedir.  
+    
+    
+    Bu ayet, bilginin namusunu ve peygamberliğin hakikatini mühürler. Akıl burada durup sormalıdır: Bir insan, görmediği bir geçmişi, orada bulunmadığı bir tartışmayı nasıl bu kadar berrak anlatabilir?
+
+    Kaynak: Beşeri Gözlem Değil, İlahi İnşa
+    "Sen yanlarında değildin" ifadesi, bilginin "tecrübi" (deney ve gözleme dayalı) olmadığını ilan eder. Peygamber, bir tarihçi veya araştırmacı gibi değil, bir "elçi" gibi konuşmaktadır. Nisa’da "adaletin şahidi olun" denmişti; burada ise bizzat Allah, Peygamberi üzerinden tarihin en mahrem anlarına şahitlik etmektedir. Bu, aklın ulaşamadığı yerde vahyin rehberliğidir.
+
+    "Gaybın anahtarı, O’ndan başka kimsenin bilemeyeceği hazineler O’nun katındadır. O, yerde ve denizde ne varsa hepsini bilir. O’nun bilgisi dışında bir yaprak bile düşmez: yerin karanlıklarında ve derinliklerinde bir zerre, yaş ve kuru olan veya solmuş hiçbir şey yoktur ki, okuyabilenler için apaçık bir kitapta olmasın." : Enam 59
+
+    Gayb ve Spekülasyon: Sınırı Çizmek
+    Gayb (Görünmeyen), insan aklının spekülasyon sahası değil, tefekkür sahasıdır. Kuran, gaybı anlatırken bizim boşlukları hayal gücümüzle doldurmamızı değil, anlatılanın içindeki hikmeti kavramamızı ister. "Spekülasyon yapmak uygunsuz" tespiti doğrudur; çünkü vahyin bildirmediği yerde yürütülen her tahmin, zihni bulandıran bir "zan" (sapma) üretir.
+
+    De ki: “Ben size, Allah’ın hazineleri benim yanımdadır demiyorum, gaybı da bilmem, ben size bir meleğim de demiyorum. Ben ancak bana vahyolunana uyarım.” De ki: “Kör ile gören bir olur mu?” Hâlâ düşünmüyor musunuz? : Enam 50
+
+    Kura (Kalemler) ve İhtilaf: Hayırda Yarışın Estetiği
+    Ortada bir çekişme (ihtilaf) vardır ama bu dünya malı için değil, Meryem gibi tertemiz bir ruhun hadimi olma onuru içindir. Kuran bu detayı vererek şunu söyler: İyilik, uğrunda kura çekilecek kadar değerlidir. O kalemlerin (okların) atılması, sonucun insandan alınıp Allah’a (tevekküle) bırakılmasıdır.
+
+    Apokrif Tasdik: Kaynağın Saflaştırılması
+    Tarihsel hafızada (Hristiyan metinlerinde) var olan bu kura detayı, Kuran tarafından reddedilmez; aksine "saflaştırılarak tasdik edilir." Kuran, önceki kitapların içindeki doğru cevheri çekip alır ve onu "Biz vahyettik" mührüyle sunar. Bu, Peygamber’in bir kopya çekmediğinin, aksine aynı hakikat membaından (Ümmü’l-Kitap) beslendiğinin kanıtıdır.
+
+    Gözün görmediği yerde kalp, vahyin ışığıyla görür. Peygamber’in orada olmayışı, bilginin doğruluğuna engel değil; aksine o bilginin beşeri hırslardan arınmış, saf bir ilahi ikram olduğunun en büyük delilidir. Kim ki vahyin bildirdiği gayba 'evet' derse, aklını susturmuş olmaz; aksine aklını, kainatın mutlak bilgisiyle (Alîm) hizalamış olur.
+
+    "Hikâyelerinde idrak sahibi insanlar için ibretler/talimatlar vardır. O, uydurulmuş bir hadis/söz/masal değil, kendinden öncekileri tasdik eden, her şeyi ayrıntılı olarak açıklayan ve inananlar için bir hidayet ve rahmettir." : Yusuf 111
       
     
 45. **İşte bakın! melekler dedi ki: “Ey Meryem, Allah sana kendinden bir kelimeyi müjdeliyor: Onun adı Meryem oğlu İsa Mesih olacaktır, dünyada da ahirette de şerefli ve Allah’a en yakın olanlardandır.”**  
       
-    
+    Bu müjde, sadece bir doğum haberi değil, ilahi iradenin madde dünyasındaki bir tecellisidir. Burada "Kelime" (Kelimetullah) ifadesi üzerinde durmak gerekir.
+
+    Kelime: Allah'ın "Ol" Emrinin Tecellisi
+    İsa (as) için "Kelime" denmesi, onun yaratılışındaki doğrudan ilahi müdahaleyi anlatır. Nahl 40. ayette buyurulduğu gibi: "Biz bir şeyin olmasını istediğimiz zaman ona sadece 'Ol' deriz ve o hemen oluverir." İsa, bu "Ol" emrinin cisimleşmiş halidir. Ancak bu durum onu ilah yapmaz; aksine Allah’ın yaratma gücünün bir delili kılar.
+
+    "Meryem Oğlu" Vurgusu: Beşeriyetin Altı Çiziliyor
+    Ayette ısrarla "Meryem oğlu" denmesi, Nisa 171. ayetteki uyarıyla tam bir uyum içindedir: "Meryem oğlu İsa Mesih, ancak Allah’ın elçisidir..." Kur’an, İsa’ya (as) en yüksek manevi makamı verirken (Mesih, Şerefli, Mukarreb), onun insani kökenini hatırlatarak aşırılığa kaçan inançların (teslis gibi) önüne bir set çeker.
+
+    Dünyada ve Ahirette Şeref (Vacihen):
+    Bu ifade, İsa’nın (as) sadece bir dini figür değil, toplumsal ve ruhsal bir otorite olduğunu gösterir. Meryem suresi 30-31. ayetlerde onun beşikteyken söylediği şu sözle çapraz bağ kurar: "Şüphesiz ben Allah’ın kuluyum... Beni bulunduğum her yerde mübarek kıldı."
+
+    Nisa 172. ayette belirttilen gibi: "Ne Mesih Allah’a kul olmaktan çekinir, ne de en yakın melekler..." İsa'nın büyüklüğü, Allah'a olan kulluğunun ve yakınlığının büyüklüğüdür.
+
+
+
+
 46. **“O, çocuklukta ve olgunlukta insanlarla konuşacak ve salihlerden olacaktır.”**  
       
-    İsa’nın görevi, yaklaşık üç yıl sürdü, 30 ile 33 yaşları arasında, düşmanlarının gözünde çarmıha gerildiği zamana kadar. Ancak Luka İncili (2:46), onun 12 yaşında Tapınak’ta din bilginleriyle tartıştığını anlatır ve hatta daha erken bir zamanda, bir çocukken “ruhça güçlü, bilgelikle dolu” olduğunu belirtir (Luka 2:40). Bazı apokrif İnciller ise onun bebeklikten itibaren vaaz verdiğini anlatır.  
+    Bu ayet, Hz. İsa’nın hayatını sadece kronolojik bir süreç olarak değil, ilahi bir "kesintisiz görev" olarak tanımlar. Akıl burada, biyolojik sınırların ilahi irade karşısında nasıl şeffaflaştığını görür.
+
+    Beşikteki Kelam: Hakikatin İlk İlanı
+    "Mehden" (Beşikte) ifadesi, konuşma yetisinin henüz biyolojik olarak oluşmadığı o en savunmasız anı işaret eder. Nisa 171’de "Allah’ın bir kelimesi" olarak tanımlanan İsa, daha o yaşta bu kelimeyi ete kemiğe büründürür. Meryem Suresi 30. ayetle bu an mühürlenir: 
+    
+    "O dedi ki: Şüphesiz ben Allah’ın kuluyum. O bana Kitab’ı verdi ve beni peygamber kıldı." 
+    
+    Bu konuşma, annesine atılan iftiralara karşı ilahi bir kalkan, inkârcılara karşı ise sarsılmaz bir "burhan" (kesin delil) niteliğindedir.
+
+    Yetişkinlik (Kehlen): Mucizeden Sorumluluğa
+    Ayet, mucizevi bir bebeklik ile olgun bir yetişkinlik arasında köprü kurar. Bu, İsa’nın (as) hayatının her evresinin Allah’ın gözetiminde olduğunu gösterir. Akıl mizanı bize şunu söyler: Beşikte konuşan güç ile yetişkinlikte tebliğ eden güç aynıdır. Nahl 40’taki o "Ol" emri, İsa’nın yaşamının her safhasında caridir.
+
+    "Zira dilediğimiz her şeye sadece “Ol” deriz ve hemen oluverir." : Nahl 40
+
+    Salihlerden Olmak: Karakterin Mührü
+    Sadece konuşmak yetmez; "salihlerden olmak", bu sözlerin eylemle, ahlakla ve adaletle taçlanmasıdır. Meryem Suresi 31-32. ayetlerdeki vasiyetle bağ kuralım: "Nerede olursam olayım beni mübarek kıldı... Anneme saygılı olmamı emretti." İsa’nın büyüklüğü sadece mucizesinde değil, bu sarsılmaz "salihlik" duruşundadır.
+
+    Kaynakların Mizanı: Vahiy vs. Rivayet
+    Geleneksel ve apokrif kaynaklarda (Luka 2:40 veya Çocukluk İncilleri) yer alan "bilgelik dolu çocuk" tasvirleri, Kur’an’ın bu ayetiyle tarihsel bir zeminde buluşur. Ancak Kur’an, meseleyi "doğal bir gelişim" hikayesinden çıkarıp, doğrudan bir "peygamberlik mucizesine" dönüştürür. Kur’an’ın önceliği tarihsel kronoloji değil, insanın kalbine vurulan o ilahi mühürdür.
+
+    İsa Peygamber, beşikte konuşarak aczini (beşeriyetini) aşan bir kudrete şahitlik etmiş; yetişkinliğinde konuşarak ise emaneti (tebliği) omuzlamıştır. Onun hayatı, mucize ile ahlakın, söz ile eylemin mükemmel bir mizanıdır. Kim ki onu sadece bir mucize figürü olarak görürse yanılır; o, beşikten mezara kadar 'salihler' halkasının en parlak zincirlerinden biridir.
       
     
 47. **Dedi ki: “Rabbim Bana bir beşer dokunmamışken benim nasıl çocuğum olur?” Allah şöyle dedi: “Yine de buna rağmen: Allah dilediğini yaratır: O bir plan takdir ettiğinde, ona sadece “Ol” der ve o da hemen oluverir!**  
       
-    Ona, Allah’ın mesajını ileten melekler seslendi. O da, sanki Allah’la konuşur gibi cevap verdi. Derken, bir melek yeniden zuhur etti ve yine Allah’ın mesajını iletti.  
+    Bu ayet, biyolojik zorunluluk ile ilahi irade arasındaki o ince çizgiyi çizer. Akıl, alışageldiği sebep-sonuç dairesinde bir çıkmazla karşılaşınca, vahiy ona ***"Sebep"***in de yaratıcısını hatırlatır.
+
+    Meryem’in Sorusu: Aklın Meşru Hayreti
+    Meryem’in "Nasıl?" sorusu, bir teslimiyetsizlik değil, insan aklının tabiat yasalarına olan sadakatidir. O, üreme için gerekli olan biyolojik şartların (beşer dokunuşu) yokluğunda sonucun nasıl oluşacağını merak eder. Bu, Nisa Suresi'nde vurguladığımız "hakikati arayan akıl" duruşudur. Cevap ise aklı iptal etmez, onu daha geniş bir ***"Yaratılış Ufku"***na taşır.
+
+    "Kün Fe Yekûn": İradenin Maddeye Hükmü
+    "Ol" emri, Allah’ın iradesi ile eylemi arasında hiçbir engelin, aracının veya zaman kaybının olmadığını anlatır. Bakara 117 ile bu bağı mühürlenir: "O, göklerin ve yerin eşsiz yaratıcısıdır. Bir şeyi dilediğinde ona sadece 'Ol' der." İsa’nın biyolojik olarak babasız doğumu, Allah için bir galaksi yaratmak kadar kolaydır. Buradaki "hemen oluverir" ifadesi, hamilelik sürecinin yaşanmadığı anlamına gelmez; o sürecin başlaması için gerekli olan ilk kıvılcımın doğrudan ilahi irade olduğunun ilanıdır.
+
+    "Namusunu/iffetini koruyanı da hatırla: Biz ona ruhumuzdan üfledik ve onu ve oğlunu bütün âlemler için bir ibret kıldık." : Enbiya 91
+
+    İletişimin Namusu: Kul ve Rab Arasındaki Elçi
+    Meryem, bu mesajı bir melek (Cebrail) vasıtasıyla alır; bu "doğrudan bir tanrılaşma" değil, vahiy hiyerarşisi içinde gerçekleşen bir tebliğdir. Meryem 17-21 ayetleri bu sahneyi tüm çıplaklığıyla anlatır: Melek bir beşer suretinde görünür ve Meryem’e "Ben ancak Rabbinin bir elçisiyim" der. Bu ayrım, İsa’nın (as) ilahlaştırılmasına karşı Nisa 171’de çekilen setin bu ayetteki temeli gibidir.
+
+    En Büyük Kanıt: Adem Örneği
+    İsa’nın yaratılışını akıl dışı bulanlara Kur’an, Al-i İmran 59 ile en rasyonel cevabı verir: "Allah katında İsa'nın durumu, Adem'in durumu gibidir." Eğer babasız doğum bir "tanrılık" vesilesi olsaydı, hem annesiz hem babasız olan Adem (as) buna daha layık olurdu. Bu kıyas, aklı sarsılmaz bir mantık mizanına oturtur.
+
+    Meryem’in hayreti insani, Allah’ın cevabı ise Rabbani’dir. Allah, doğa yasalarını onları hapsetmek için değil, Kendi kudretini o yasalar üzerinden (ve bazen o yasaları aşarak) göstermek için yaratmıştır. İsa (as), bu kudretin madde dünyasındaki canlı bir ayetidir (mucizesidir); ancak o, yaratan değil, 'Ol' emriyle var edilen bir kuldur.
       
     
 48. **“Allah ona Kitabı, Hikmeti, Şeriatı/Kanunu ve İncil’i öğretecektir,**  
@@ -1354,7 +1582,167 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 49. **“Ve onu İsrailoğullarına bu mesajla birlikte bir elçi olarak gönderecek: “Ben size Rabbinizden bir ayet getirdim ki, ben size çamurdan kuş şeklinde bir şey yapar, içine üflerim de Allah’ın izniyle kuş olur: Doğuştan körlere ve alacalılara şifa veririm ve Allah’ın izniyle ölüleri diriltirim. Ve evlerinizde ne yediğinizi ve ne biriktirdiğinizi size bildiriyorum. Eğer iman ettiyseniz/inanmışsanız, şüphesiz bunda sizin için bir ayet vardır;**  
       
-    Bu çamur kuşlarının mucizesi, bazı apokrif incillerde anlatılır; körlerin ve cüzamlıların iyileşmesi, ölülerin dirilmesi gibi mucizeler ise kanonik incillerde yer alır. Asıl İncil, havarilerin sonra yazdıkları çeşitli hikayelerden ibaret değil, aksine İsa’nın bizzat öğrettiği gerçek Mesaj’dır  
+    Şimdi burada insanın aklı ister istemez durup düşünür.
+
+    Birincisi şu:
+    Her mucizenin yanında aynı cümle tekrar ediliyor.
+
+    “Allah’ın izniyle.”
+
+    Durmadan tekrar ediyor.
+
+    Bir kere değil.
+    İki kere değil.
+    Her seferinde.
+
+    Bu tekrar boşuna değildir. Kur’an lafı israf etmez. Bir şeyi tekrar ediyorsa bir sebebi vardır.
+
+    Çünkü insanın zaafı büyüktür. İnsan gördüğü gücü hemen sahibine yakıştırır. Bir doktor bir hastayı kurtarır, hemen “mucize doktor” deriz. Bir mühendis köprü yapar, “dahi” deriz. Bir siyasetçi iki laf eder, hemen “lider” olur.
+
+    İnsan gördüğü kudreti hemen insana mal etmeye hazırdır.
+
+    Kur’an da tam burada frene basar.
+
+    Der ki:
+    Dur bakalım.
+
+    Kör iyileşiyor mu?
+    Evet.
+
+    Ölü diriliyor mu?
+    Evet.
+
+    Çamurdan kuş uçuyor mu?
+    Evet.
+
+    Ama kimin gücüyle?
+
+    Allah’ın izniyle.
+
+    Yani mesele şu: güç İsa’nın değil, yetki İsa’ya verilmiş.
+
+    Bu ayrım küçük bir ayrım değildir. Tevhidin bel kemiği tam burada durur.
+
+    Kur’an’ın söylediği:
+
+    İsa elçi.
+    Yetki verilmiş bir elçi.
+
+    Hepsi bu.
+
+    Bir de mucizelerin çeşidine bak.
+
+    Bir tanesi maddeyle ilgili:
+    çamurdan kuş.
+
+    Bir tanesi bedenle ilgili:
+    körlerin iyileşmesi.
+
+    Bir tanesi hayatla ilgili:
+    ölünün dirilmesi.
+
+    Bir tanesi bilgiyle ilgili:
+    evinizde ne yediğinizi bilmek.
+
+    Yani dört ayrı alan.
+
+    Madde.
+    Beden.
+    Hayat.
+    Bilgi.
+
+    Bu da rastgele seçilmiş şeyler değil. Çünkü İsrailoğulları kolay ikna olan bir topluluk değildi. Tarih boyunca peygamberlere en çok direnen toplumların başında gelirler. Mucize istedikçe mucize isterler.
+
+    Bir bakarsın deniz yarılır, yine inanmazlar.
+    Bir bakarsın gökten sofra iner, yine tartışırlar.
+
+    İnsan böyledir. Gözünün önünde olanı bile görmez bazen.
+
+    Şimdi gelelim şu “çamurdan kuş” meselesine.
+
+    Bu hikâye bazı apokrif incillerde de geçer. Yani resmi kabul edilen incillerin dışında kalan metinlerde. Körlerin iyileşmesi, cüzamlıların temizlenmesi, ölülerin dirilmesi gibi mucizeler ise kanonik incillerde de anlatılır.
+
+    Ama burada küçük bir mesele var.
+
+    Çoğu insan fark etmez bunu.
+
+    İncil dediğimiz şeyle, İsa’nın gerçek mesajı aynı şey değildir.
+
+    Bugün elde olan inciller, İsa’nın oturup yazdığı bir kitap değildir. Onu tanıyan insanların yıllar sonra yazdığı anlatılardır.
+
+    Kur’an ise başka bir şey söyler.
+
+    Der ki:
+    İsa’ya İncil verildi.
+
+    Yani ortada bir vahiy var.
+    Bir mesaj var.
+
+    Ama bugün elimizde olan metinlerin o vahyin birebir aynısı olup olmadığı ayrı bir tartışma.
+
+    Bu yüzden mesele şöyle kurulmalı:
+
+    Kur’an bu mucizeleri vahiy olarak bildirir.
+    İncillerdeki benzer anlatılar ise, belki o eski geleneğin kırıntıları olabilir.
+
+    Yani biri ana kaynak, diğeri yankı.
+
+    Ama bütün bu tartışmaların ortasında asıl mesele yine insana gelip dayanır.
+
+    Bir insan düşün.
+
+    Mahallede yaşıyor.
+    Kapı komşun.
+
+    Bir gün biri geliyor, onun kör gözlerini açıyor. Ölü çocuğunu diriltiyor. Evinde sakladığı ekmeği söylüyor.
+
+    Böyle bir şey görsen ne yaparsın?
+
+    Çoğu insan hemen diz çöker.
+    Kimi korkar.
+    Kimi tanrılaştırır.
+
+    Kur’an ise insanın bu refleksini tanır.
+
+    Ve tekrar eder:
+
+    Allah’ın izniyle.
+
+    Çünkü insanın en büyük imtihanı mucize görmek değildir.
+
+    Mucizeyi doğru yere bağlayabilmektir.
+
+    Bir peygamberi tanrı yapmadan sevebilmek…
+    Bir mucizeyi görüp yine de tevhidi koruyabilmek…
+
+    Asıl mesele budur.
+
+    Yoksa mucize dediğin şey, insanın aklını büyüler ama kalbini kolayca yanıltır.
+
+    Kur’an o yüzden ipi sıkı tutar.
+
+    Der ki:
+
+    Bunda sizin için bir ayet vardır.
+
+    Yani gösteri değil.
+    Eğlence değil.
+    Mitoloji hiç değil.
+
+    Bir işaret.
+
+    İnsan anlayabilsin diye bırakılmış bir işaret.
+
+    Ama işaretin gösterdiği yere bakmazsan…
+    İşareti put yaparsın.
+
+    İnsanlık tarihinin büyük kısmı da zaten bunu yaparak geçmiştir.
+
+    "O zaman Allah şöyle buyurur: “Ey Meryem oğlu İsa! Sana ve annene olan nimetimi anlat. Bak, ben seni ruh-kudüsle güçlendirdim ki, çocuklukta ve olgunlukta insanlarla konuştun. Bak, ben seni kutsal ruhla güçlendirdim.” Sana Kitab’ı, Hikmeti, Tevrat’ı ve İncil’i öğrettim de, benim iznimle çamurdan kuş şeklinde bir şey yaptın, ona üfledin de benim iznimle kuş oluverdi. Benim iznimle anadan doğma körlere ve alacalılara şifa verdin ve bak, benim iznimle ölüleri çıkardın ve bak, İsrailoğullarına apaçık âyetleri gösterdiğin zaman, ben İsrailoğullarını sana karşı şiddetten alıkoydum. İçlerinden kâfir olanlar: “Bu, apaçık bir sihirden/aldatmadan başka bir şey değildir” dediler." : Maide 110
+
+    “Ona Rabbinden bir mucize indirilse ne olur?” derler. De ki: “Gaybı bilmek ancak Allah’a mahsustur, o halde siz bekleyin; ben de sizinle birlikte bekleyeceğim.” : Yunus 20
+
+    "Ve onların izinden, kendisinden önce gelen Tevrat’ı doğrulayıcı olarak Meryem oğlu İsa’yı gönderdik ve ona İncil’i gönderdik: onda yol gösterme ve nur ve kendisinden önce gelen Tevrat’ı doğrulayıcı, Allah’tan korkanlar için hidayet ve nasihat vardı." : Maide 46
     
 50. **“Benden önceki Tevrat’ı tasdik etmek ve daha önce size haram kılınanların bir kısmını size helal kılmak için size geldim. Size Rabbinizden bir mucize getirdim. O halde Allah’tan korkun ve bana itaat edin.”**  
       
@@ -1368,6 +1756,144 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İslam, Allah’ın İradesi’ne boyun eğmektir. Gönlü imanla dolu herkes, o İrade’nin önünde eğilmeli, teslim olmalıdır. Çünkü İslam, bir kavmin, bir milletin değil; tüm insanlığın yoludur. Ve bu yol, İbrahim’le, Musa’yla, İsa’yla başlayıp, Hz. Muhammed’le devam eden, ebediyete uzanan evrensel bir yoldur.  
       
     “Ey iman edenler! Allah’ın size olan nimetini zikredin, bazı kimseler size el uzatmak istedikleri için plan yaptıklarında Allah onların ellerini sizden çekti, öyleyse Allah’tan korkun. Ve müminler Allah’a tevekkül etsinler.”: Maide 11  
+
+    İşin doğrusu şu: İnsanlık tarihi biraz da şu sorunun etrafında döner.
+
+    “Hakikat ortaya çıktığında, kim yanında duracak?”
+
+    Hakikat yolunda yürüyen insanın hayatı hiçbir zaman rahat olmaz.
+
+    Plan yapılır.
+    Tuzak kurulur.
+    İnsanlar zarar vermek ister.
+
+    Ama tarih boyunca ilginç bir şey olur.
+
+    Bazen tam düşecekken bir el seni tutar.
+    Bazen kapı kapanacakken bir aralık kalır.
+    Bazen hiç beklemediğin biri yanında durur.
+
+    Kur’an buna nusret der.
+
+    Yani ilahi yardım.
+
+    Ama bu yardım çoğu zaman gökten ışık inmesi gibi gelmez.
+
+    Bir insanın cesareti olarak gelir.
+    Bir dostun omzu olarak gelir.
+    Birinin “ben varım” demesi olarak gelir.
+
+    
+
+    kendi kavminin içinde dolaşıyor. Konuşuyor, uyarıyor, iyileştiriyor, mucizeler gösteriyor. Ama bir noktadan sonra havadaki kokuyu alıyor. İnsan bazen sözden önce niyeti hisseder ya… işte öyle.
+
+    Kur’an bunu tek cümleyle anlatır:
+
+    “Onların inkârını hissedince…”
+
+    Bu çok insanî bir cümledir aslında. Bir peygamberden söz ediyoruz ama sahne çok tanıdık. Mahallede olur. İş yerinde olur. Aile içinde olur.
+
+    Bir süre konuşursun.
+    Bir süre anlatırsın.
+    Sonra bir noktada anlarsın ki karşı taraf artık duymak istemiyor.
+
+    İşte o anda İsa dönüp soruyor:
+
+    “Allah yolunda yardımcılarım kim?”
+
+    Şimdi insan ilk duyduğunda şaşırıyor.
+
+    Allah’ın elçisi yardım mı ister?
+
+    Evet ister.
+
+    Çünkü peygamberler mucize gösterir ama toplumları insanlarla birlikte değiştirir. Hiçbir peygamber tek başına bir toplumu dönüştürmemiştir. Musa’nın yanında insanlar vardı. Muhammed’in yanında insanlar vardı. İsa’nın yanında da vardı.
+
+    Bu yüzden havariler —Kur’an’ın diliyle— hemen cevap verir:
+
+    “Biz Allah’ın yardımcılarıyız.”
+
+    Bu sözün içinde garip bir ironi vardır.
+
+    İnsan Allah’a nasıl yardım eder?
+
+    Allah’ın yardıma ihtiyacı yoktur elbette. Ama hakikat yeryüzünde insan eliyle ayakta durur.
+
+    Bir düşün.
+
+    Bir adaletsizlik görürsün.
+    Bir yalan duyarsın.
+    Bir mazlumun hakkı yenir.
+
+    O anda iki seçenek vardır.
+
+    Ya başını çevirirsin.
+    Ya da “ben buradayım” dersin.
+
+    İşte “Allah’ın yardımcılarıyız” cümlesi tam olarak budur.
+
+    Bir taraf seçmek.
+
+    Sonra havariler ikinci bir cümle daha söyler. Çok önemli bir cümle:
+
+    “Şahit ol ki biz Müslümanız.”
+
+    Kur’an’a göre Müslüman, Allah’ın iradesine teslim olan insandır.
+
+    Bu yüzden
+    Ibrahim Müslümandır.
+    Musa Müslümandır.
+    İsa Müslümandır.
+
+    Yani mesele bir etiket değildir.
+
+    Bir yöneliştir.
+
+    Bir insanın kalbinin hangi tarafa döndüğüdür.
+
+    Kur’an bu yüzden din meselesini kavim meselesi yapmaz. Çünkü insanlık tarihinin en büyük kavgası tam burada çıkar.
+
+    Birileri der ki:
+    “Bu bizim dinimiz.”
+
+    Kur’an der ki:
+    “Hayır. Bu insanlığın yoludur.”
+
+    İbrahim’le başlayan, Musa’yla devam eden, İsa’yla yeniden hatırlatılan ve Muhammed’le son kez insanlığa duyurulan bir yol.
+
+    Yani aslında aynı çağrının farklı zamanlarda tekrarı.
+
+    O yüzden İsa’nın o sorusu hâlâ ortada duruyor aslında.
+
+    Alakasız bir soru değil.
+
+    Bugün de soruluyor.
+
+    Adalet söz konusu olduğunda…
+    Hakikat söz konusu olduğunda…
+    Zor zamanlar geldiğinde…
+
+    Soru yine aynı:
+
+    “Allah yolunda yardımcılarım kim?”
+
+    Ve insanın hayatı, çoğu zaman bu soruya verdiği cevapla şekillenir.
+
+    "Ey iman edenler! Kendiniz, ana-babanız,
+    akrabalarınız aleyhine de olsa, zengine, fakire karşı da olsa,
+    Allah’ın şahitleri olarak adaleti ayakta tutun: Allah her
+    ikisini de en iyi koruyandır. Nefsinizin hevâsına uymayın, yoksa
+    saparsınız ve eğer adaleti saptırırsanız veya adaleti yerine
+    getirmekten kaçınırsanız, şüphesiz Allah, yaptıklarınızdan
+    haberdardır." : Nisa 135
+
+    Meryem oğlu Îsâ dedi ki: “Ey Rabbimiz, bize gökten şerbetli bir sofra gönder ki, bizim için -ilkimiz/öncemiz ve sonucumuz/sonramız için- bir bayram ve Senden bir mucize olsun. Ve rızkımızı ver, çünkü sen bizim ihtiyaçlarımıza rızık verenlerin en hayırlısısın.”
+    Allah dedi ki: “Size onu indireceğim: Bundan sonra sizden kim iman etmezse, onu bütün ümmetlerden hiçbirine vermediğim bir azapla azaplandırırım/cezalandırırım.”   : Maide 114-115
+
+    İsrailoğullarından inkar edenlere, Davud ve Meryem oğlu İsa’nın diliyle lanetler yağdırıldı: Çünkü onlar itaatsizlik ettiler ve aşırılıkta ısrar ettiler. : Maide 78
+
+    Deyin ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya ve İsa’ya verilene ve bütün peygamberlere Rablerinden verilene inandık: Biz onlardan hiçbirini diğerinden ayırt etmeyiz ve Allah’a İslam’da secde ederiz.” : Bakara 136
+
       
     
 53. **“Rabbimiz, indirdiğine inandık ve Peygamber’e uyduk, öyleyse bizi şahitlerden yaz.”**  
@@ -1375,9 +1901,164 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 54. **Kâfirler kumpas ve tuzak kurdular, Allah da tuzak kurdu ve tuzak kuranların en hayırlısı Allah’tır.**  
       
-    Arapça “makara” kelimesi, hem kötüyü hem iyiyi içinde barındırır. Gizli bir amaca ulaşmak için kurulan karmaşık planlar, karanlık hesaplar, sinsice örülen ağlar… Allah’ın düşmanları, asırlardır bu makarayı çevirir durur. Karanlık köşelerde fısıldaşır, tuzaklar kurar, insanları yoldan çıkarmak için binbir oyun oynarlar. Fakat onların bu karanlık hesapları, Allah’ın aydınlık planlarının yanında bir hiç kalır.  
-      
-    Çünkü Allah’ın elinde her şey iyidir. O, her şeyi bir düzen içinde yaratır, her şeyi bir hikmetle çevirir. Kötülerin kurduğu tuzaklar, O’nun karşısında bir saman alevi gibi söner. Onlar ne kadar hile düşünürse düşünsün, Allah’ın planlarına karşı hiçbir şansları yoktur. O’nun iradesi ve takdiri önünde durulmaz. Kötülerin karanlık hesapları, O’nun aydınlık yolunda bir toz bulutu gibi dağılıp gider.  
+    İnsanlık tarihinin en eski alışkanlıklarından biridir bu:
+    Birileri bir yerde oturur, kapıyı kapatır, fısıldaşır… sonra bir plan çıkar ortaya.
+
+    Sessiz bir plan.
+    Karanlık bir plan.
+    Birini susturmak için.
+
+    Kur’an’ın anlattığı sahne de böyle başlar. İnsanlar toplanır. Hesap yapar. Düşünürler: “Bu adamı ne yapacağız?”
+
+    Çünkü ortada bir adam vardır.
+    Adı Isa.
+
+    Sözü söylüyor.
+    Vicdanlara dokunuyor.
+    İnsanların alıştığı düzeni rahatsız ediyor.
+
+    Bu çok tehlikeli bir şeydir. Hakikat konuşmaya başladığında, düzeni kurmuş olanlar huzursuz olur.
+
+    İşte Kur’an o anı tek cümleyle anlatır:
+
+    “Onlar plan kurdular. Allah da plan kurdu.”
+
+    Arapçada geçen kelime “mekr.”
+
+    Türkçede bazen “tuzak” diye çevrilir ama kelimenin aslı daha derindir. Gizli bir plan. Hesaplı bir hamle. Bir şeyi dolaylı yoldan gerçekleştirme stratejisi.
+
+    İnsan için bu çoğu zaman kötü niyetlidir.
+
+    Gece kurulur.
+    Kapalı kapılar ardında kurulur.
+    Birinin ayağını kaydırmak için kurulur.
+
+    Ama ayet ilginç bir şey söyler.
+
+    İnsan plan yapar.
+    Allah da plan yapar.
+
+    Ve sonra şu cümleyi ekler:
+
+    “Allah plan yapanların en hayırlısıdır.”
+
+    Burada ince bir mesele var. İnsan bazen bu ayeti yanlış anlar. Sanki Allah da insanlar gibi hile yapıyormuş gibi düşünür.
+
+    "Yeryüzünde büyüklük taslamaları ve tuzak kurmaları yüzünden. Ama Kötülük oyunu sadece onu yazanları kuşatacaktır. Şimdi onlar sadece eskilere nasıl davranıldığını mı arıyorlar? Ama Allah’ın işleyiş tarzında bir değişiklik göremezsin: Allah’ın işleyiş tarzında hiçbir sapma bulamazsın." : Fatır 43
+
+    Hayır.
+
+    Kur’an’ın söylediği şey şu:
+
+    İnsan planı sınırlıdır.
+    Allah’ın planı bütün resmi görür.
+
+    Bir insan satranç oynarken üç hamle sonrasını düşünür.
+    Allah ise oyunun tamamını görür.
+
+    Bu yüzden tarih boyunca çok tuhaf sahneler yaşanmıştır.
+
+    Birileri bir peygamberi susturmak ister.
+    Ama o olay bir dinin doğuşuna dönüşür.
+
+    Birini öldürmek isterler.
+    Ama o isim yüzyıllarca konuşulur.
+
+    Bir hareketi bitirmek isterler.
+    Ama tam orada başlar.
+
+    Kur’an bu gerçeği başka bir yerde hatırlatır.
+    Muhammad için kurulan planı anlatırken:
+
+    “Hapsetmek, öldürmek veya sürmek için plan kuruyorlardı. Onlar plan kuruyordu, Allah da plan kuruyordu.”
+
+    Yani tarih yalnız insanların yazdığı bir hikâye değildir.
+
+    Arka planda daha büyük bir düzen vardır.
+
+    Şimdi düşün.
+
+    Bir kasabada biri çıkar ve der ki:
+    “Herkes adil olsun.”
+
+    İlk başta insanlar dinler.
+    Sonra bazıları rahatsız olur.
+
+    Çünkü adalet konuşulunca bazı koltuklar sallanır.
+
+    Bir süre sonra toplantılar başlar.
+
+    “Bu adamı susturmak lazım.”
+    “Bunu ciddiye almayın.”
+    “İtibarını düşürelim.”
+
+    İnsanlık tarihi böyle doludur.
+
+    Ama çoğu zaman şöyle bir şey olur.
+
+    Plan yapanlar büyük görünür.
+    Ama zaman geçer.
+
+    Bir bakarsın o planlar dağılıp gitmiş.
+
+    Bir rüzgâr eser.
+    Bir gerçek ortaya çıkar.
+    Bir olay olur.
+
+    Kur’an’ın söylediği şey tam olarak budur:
+
+    Kötü niyet uzun vadede kendi ayağına dolaşır.
+
+    "Allah’a karşı yalan uydurandan veya O’nun âyetlerini yalanlayandan daha zalim kim olabilir? Ama günah işleyenler asla başarılı olamayacak/asla kurtuluşa ermezler." : Yunus 17
+
+    Bir tuzak kurulur.
+    Ama o tuzak bazen sahibini yakalar.
+
+    Tarihte bunun örneği çoktur.
+
+    Firavun Musa’yı öldürmek istedi.
+    Ama Musa sarayda büyüdü.
+
+    İsa’yı susturmak istediler.
+    Ama onun adı dünyaya yayıldı.
+
+    Muhammed’i Mekke’den çıkardılar.
+    Ama Medine’de bir toplum kuruldu.
+
+    İnsan planı dar bir odada yapılır.
+    Allah’ın planı bütün zamanın içinden geçer.
+
+    Burada insan için önemli olan şu.
+
+    Bu ayet bize sadece tarih anlatmaz. Bir ahlak öğretir.
+
+    Çünkü insan da plan yapar.
+
+    Bazen dürüst bir plan yapar.
+    Bazen de karanlık bir plan.
+
+    Birinin hakkını yemek için.
+    Birini devirmek için.
+    Birini susturmak için.
+
+    Kur’an o noktada şunu söyler:
+
+    Plan yapabilirsin.
+    Ama son söz sana ait değildir.
+
+    İnsan hesap yapar.
+    Allah hüküm verir.
+
+    Ve bazen en büyük sürpriz de burada çıkar.
+
+    Bir tuzak kurarsın.
+    Ama yazgı başka bir kapı açar.
+
+    İşte Kur’an’ın o kısa cümlesi aslında insanlık tarihinin özeti gibidir:
+
+    Onlar plan kurdular.
+    Allah da plan kurdu.
+    Ve Allah plan kuranların en hayırlısıdır. 
       
     “Kafirlerin seni hapsetmek, öldürmek veya evinden çıkarmak için sana nasıl tuzak kurduklarını hatırla. Onlar tuzak kuruyorlar, Allah da tuzak kuruyor. Ama tuzak kuranların en hayırlısı Allah’tır.”: Enfal 30  
       
@@ -1393,7 +2074,128 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu ayeti Nisa:157-158 ile birlikte okuyun. Orada denir ki: “Onu öldürmediler, onu asmadılar, ama bu şüpheli hale getirildi.” Yahudilerin suçu devam etti, fakat İsa sonunda Allah’a götürüldü. O, Yahudiler tarafından Tanrı ya da Tanrı’nın oğlu olduğunu iddia ettiği için küfürle suçlandı. Zulümle yok edilen birkaç erken mezhep ve bugünün Üniteryenleri dışında, Hıristiyanlar bu iddiayı benimsedi, inançlarının temel taşı yaptı. Allah ise İsa’yı böyle bir suçlamadan, böyle bir iddiadan temize çıkarır.  
       
     Seni izleyenler… Hem İsa’nın temel öğretilerini gerçekten takip eden Müslümanlar hem de onu takip ettiğini iddia eden Hıristiyanlar için bu sözler bir çağrıdır. Çünkü dogma ve inanç üzerine yapılan tüm tartışmalar, Allah’ın huzuruna çıktığımızda son bulacaktır. O, iddia ettiğimiz şeye göre değil, olduğumuz şeye göre hüküm verecektir. Yüreklerimizin derinliklerinde sakladığımız hakikati görecek, amellerimizin özüne bakacaktır.  
+
+    Bir düşün. İnsanlar birini yere çekmeye çalışırken Allah onun için “seni yükselteceğim” diyor.
+
+    Tarih boyunca bunun çok örneği vardır. Birini küçük düşürmek isterler, ama zaman geçer, o isim büyür. Birini susturmak isterler, ama sözleri yüzyıllar boyunca konuşulur.
+
+    Kur’an bu sahneyi başka bir yerde daha açık anlatır.
+    “Onu öldürmediler, onu asmadılar… fakat öyle zannedildi. Allah onu kendi katına yükseltti.”
+
+    Yani insanların planı bir yere kadar gider. Ondan sonrası artık onların elinde değildir.
+
+    Ama burada ayetin asıl dikkat çekici kısmı başka.
+
+    Allah sadece “seni kurtaracağım” demiyor.
+
+    “Seni temize çıkaracağım.”
+
+    Bu çok önemli bir ifade.
+
+    Çünkü tarih boyunca İsa hakkında iki uç ortaya çıkmıştır.
+
+    Bir taraf onu inkâr etti.
+    Bir taraf onu tanrılaştırdı.
+
+    Kur’an ise ikisine de mesafe koyar.
+
+    İsa ne yalancı bir adamdır, ne de ilah.
+    O, Allah’ın elçisidir.
+
+    Bu yüzden Kur’an başka bir yerde İsa’nın ağzından şu sözleri aktarır:
+    “Ben onlara yalnızca bana emredileni söyledim: benim de Rabbim sizin de Rabbiniz olan Allah’a kulluk edin.”
+
+    Yani mesaj aslında çok nettir.
+
+    İnsanlar bazen peygamberleri bile kendi tartışmalarının içine çekip büyütürler. Bir süre sonra peygamberin söylediği şey değil, insanlar arasında oluşan yorumlar konuşulmaya başlar.
+
+    İşte ayetin son cümlesi tam burada devreye girer:
+
+    “Sonra hepiniz bana döneceksiniz ve anlaşmazlığa düştüğünüz konularda aranızda ben hükmedeceğim.”
+
+    Bu cümle insanın içini biraz sarsar.
+
+    Çünkü dünyada tartışma bitmez.
+
+    Kim haklı?
+    Kim doğru inanıyor?
+    Kim yanlış yolda?
+
+    Her topluluk kendinden emin konuşur.
+
+    Ama Kur’an diyor ki:
+    Son söz insanlara ait değil.
+
+    Son söz Allah’a ait.
       
+    Bir düşün.
+
+    Bir mahkeme olacak.
+
+    Orada etiketler konuşmayacak.
+
+    “Ben şu mezheptendim.”
+    “Ben şu kilisedendim.”
+    “Ben şu gruptandım.”
+
+    Bunların hiçbirinin önemi kalmayacak.
+
+    Orada insanın kalbi konuşacak.
+    Yaptıkları konuşacak.
+    Vicdanı konuşacak.
+
+    "Hayır, biz hakkı batılın üzerine fırlatırız da beynini dağıtırız ve bir bakarsın batıl yok olup gider. Ah! Bize yakıştırdığınız batıl şeylerden dolayı vay halinize!" : Enbiya 18
+
+    Kur’an bunu başka bir yerde çok sade anlatır:
+
+    "Artık kim zerre kadar iyilik yapmışsa onu görecektir!
+    Kim de zerre ağırlığınca bir kötülük işlemişse onu görecektir." : Zilzal 7-8
+
+    Yani mesele iddia değildir.
+
+    İnsanlar iddia konusunda çok cömerttir.
+    Ama hakikat iddialarla ölçülmez.  
+
+    Bu yüzden ayetin ortasında geçen şu cümle aslında büyük bir çağrıdır:
+
+    “Sana uyanlar…”
+
+    Bu sadece isim olarak İsa’yı anmak değildir.
+
+    Gerçekten onun öğrettiği şeyi yaşamak demektir.
+
+    Adalet.
+    Merhamet.
+    Tevhit.
+    Kulluk.
+
+    Kur’an’ın bakışı burada ilginçtir. Çünkü o, peygamberleri birbirine rakip yapmaz. Aynı yolun yolcuları olarak anlatır.
+
+    Ibrahim aynı çağrıyı yapar.
+    Musa aynı çağrıyı yapar.
+    Muhammed aynı çağrıyı tekrar eder.
+
+    Mesaj değişmez:
+
+    Allah birdir.
+    İnsan O’na yönelmelidir.
+    Adalet terk edilmemelidir.
+
+    Ve sonunda insan şu gerçeği fark eder.
+
+    Tarih boyunca insanlar peygamberler hakkında tartışmış.
+
+    Kimdir?
+    Nedir?
+    Ne demek istemiştir?
+
+    Ama Kur’an’ın hatırlattığı şey çok sade:
+
+    Bir gün hepimiz aynı yere döneceğiz.
+
+    Ve orada artık tartışma olmayacak.
+
+    Sadece Hüküm olacak.
     
 56. **“İnkar edenlere gelince, onları dünyada da ahirette de büyük bir azapla cezalandıracağım ve onlara yardım edecek kimse de olmayacak.”**  
       
@@ -1406,9 +2208,127 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 59. **Allah katında İsa’nın durumu, Adem’in durumu gibidir. Onu topraktan yarattı, sonra ona “Ol” dedi. Ve öyle o da oluverdi.**  
       
-    İsa’nın peygamber olarak bulunduğu yüce makamın tanımından sonra, onun Allah, Allah’ın oğlu ya da bir insandan daha fazlası olduğu dogmasının reddedildiğini görürüz. Eğer bir insan, babası olmadan doğduğu için büyük görülüyorsa, Adem de öyleydi. Hatta Adem, ne bir insan babası ne de bir insan annesi olmadan yaratılmıştı. Fiziksel bedenlerimiz söz konusu olduğunda, onlar sadece topraktan ibarettir. Allah’ın gözünde İsa da, Adem de, tüm insanlık da topraktan yaratılmıştı. İsa’nın büyüklüğü, İlahi “Ol” emrinden kaynaklanıyordu: çünkü bu emirle o — topraktan daha fazlası — büyük bir manevi önder, bir yol gösterici, bir öğretmen oldu.  
-      
-    Onun yüceliği, insanüstü bir varlık olduğu iddiasında değil, Allah’ın ona bahşettiği görevde, insanlığa sunduğu hakikatte yatıyordu. İsa, topraktan yaratılmış bir kuldu, fakat Allah’ın İradesi doğrultusunda O’nun kelamıyla, ruhuyla donatılmış bir öğretmendi. Onun büyüklüğü, insanlığa aşıladığı sevgide, adalette ve merhamette saklıydı. Tıpkı Adem gibi, tıpkı her birimiz gibi o da topraktandı, ama Allah’ın “Ol” emriyle ve yüce Takdiriyle, ruhun yüceliğine erişmişti.  
+    Bazen insan tartışmaların nasıl büyüdüğüne bakınca şaşırır. Bir mesele vardır, aslında çok sade bir mantığı vardır. Ama zaman geçer, insanlar o basit şeyi alır, kat kat yorumlar, üzerine kavga eder, sonunda işin özü görünmez olur.
+
+    Isa hakkında olan da biraz böyle.
+
+    Bir taraf onu inkâr etti.
+    Bir taraf onu insanın üstüne çıkardı.
+
+    Kur’an ise tam ortada durup çok sade bir cümle kurar:
+
+    “Allah katında İsa’nın durumu, Adem’in durumu gibidir. Onu topraktan yarattı, sonra ‘Ol’ dedi ve o da oluverdi.”
+
+    Bu cümle aslında bir tartışmayı kesmek için söylenmiş gibidir.
+
+    Şimdi düşün.
+
+    Bir insan çıkar ve der ki:
+    “İsa babasız doğdu, demek ki ilah.”
+
+    Kur’an o anda çok basit bir soru sorar:
+
+    Peki o zaman
+    Adem ne olacak?
+
+    Onun ne babası vardı ne annesi.
+
+    Mantık aynıysa, Adem’in daha da büyük sayılması gerekir. Ama kimse Adem’e “tanrı” demez.
+
+    Demek ki mesele doğum biçimi değil.
+
+    Mesele Allah’ın yaratma kudreti.
+
+    Kur’an burada insanı biraz yere indirir, biraz da yerini bildirir.
+
+    Der ki:
+
+    “Onu topraktan yarattı.”
+
+    Bu cümlede bir tevazu vardır.
+
+    İnsan ne kadar büyürse büyüsün, kökü aynı. Toprak. Çamur. Yeryüzünün ham maddesi.
+
+    Bir bakarsın aynı topraktan buğday çıkar.
+    Aynı topraktan zeytin çıkar.
+    Aynı topraktan insan çıkar.
+
+    Ama hepsinin arkasında aynı emir vardır:
+
+    “Ol.”
+
+    Kur’an’ın diliyle “Kün.”
+
+    Allah bir şeyin olmasını istediğinde, yaratılışın mekanizması çok karmaşık görünse bile özünde o emir vardır.
+
+    Bir çocuk doğar.
+    Bir ağaç büyür.
+    Bir yıldız oluşur.
+
+    Hepsinin arkasında aynı kudret çalışır.
+
+    İsa’nın doğumu da bunun bir işareti olur sadece. Yani Allah’ın yaratma kudretinin alışılmış düzenlerin dışına da çıkabileceğini gösteren bir işaret.
+
+    Ama Kur’an burada başka bir şeyi de düzeltir.
+
+    Peygamberlerin büyüklüğü doğum biçiminde değildir.
+
+    Görevlerindedir.
+
+    Ibrahim’in büyüklüğü putların karşısında tek başına durmasındadır.
+    Musa’nın büyüklüğü Firavun’un karşısında konuşmasındadır.
+    İsa’nın büyüklüğü insanlara merhameti, adaleti ve tevhit çağrısını hatırlatmasındadır.
+
+    Yani mesele şu değildir:
+
+    “Bu peygamber diğerlerinden daha ilahî mi?”
+
+    Peygamber, Rabbinden kendisine indirilene iman etti, mü’minler de. Her biri Allah’a, meleklerine, kitaplarına ve peygamberlerine inanır. “O’nun elçilerinden biri ile diğeri arasında hiçbir ayrım yapmayız .” Ve derler ki: “İşittik/duyduk ve itaat ettik: Biz Senden mağfiret/affetme/bağışlanma dileriz. Ey Rabbimiz bütün yolculukların sonu sanadır.” : Bakara 285
+
+    Mesele şudur:
+
+    Kim Allah’ın mesajını insanlara taşıdı ve ona sadık kaldı?
+
+    Bir de ayetin içinde sessiz bir insanlık dersi vardır.
+
+    İnsan bazen kendini fazla ciddiye alır. Ün kazanır, güç kazanır, bilgi kazanır. Bir süre sonra unutmaya başlar.
+
+    Ama Kur’an ara sıra insanın omzuna dokunur ve şunu hatırlatır:
+
+    Senin başlangıcın topraktır.
+
+    Bu kötü bir şey değildir.
+
+    Tam tersine, insanın büyüklüğü tam burada başlar.
+
+    Topraktan gelip ruh taşıyan bir varlık olmak…
+    Maddeyle başlayıp anlam arayan bir varlık olmak…
+
+    “Onu uygun bir şekle soktuğum ve ona ruhumdan üflediğim zaman, ona secdeye kapanın.” : Hicr 29
+
+    İnsan denen hikâye biraz da budur zaten.
+
+    İsa’nın hikâyesi de burada anlam kazanır.
+
+    Onu büyüten şey doğumundaki mucize değildir.
+
+    Onu büyüten şey, Allah’ın verdiği görevi taşımasıdır.
+
+    Bir öğretmen gibi konuşması.
+    Bir peygamber gibi uyarması.
+    Bir insan gibi merhamet göstermesi.
+
+    Kur’an’ın bakışı bu yüzden çok nettir:
+
+    İsa topraktandır.
+    Adem de topraktandır.
+    Biz de.
+
+    Ama insanın değeri toprağında değil.
+
+    Allah’ın “Ol” emrinden sonra neye dönüştüğündedir.
+
+    "Muhakkak O bir şeyi dilediği zaman, O’nun emri “ol”dur ve hemen oluverir!" : Yasin 82
     
 60. **Hak yalnız Allah’tandır; öyleyse şüphe edenlerden olma.**  
       
@@ -1417,36 +2337,552 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Allah’ın vahyi nerede inerse, orada karanlık dağılır, şüphe yok olur. Çünkü O’nun sözü, yürekleri titreten, ruhları aydınlatan bir hakikattir. İnsanlar ne kadar çabalarsa çabalasın, hakikati kendi heveslerine göre eğip bükemezler. Hakikat, Allah’ın kelamıdır; O’nun dediği olur.  
       
     “Sana indirdiğimizden şüphede isen, senden önce Kitap okuyanlara sor: Hak, sana Rabbinden geldi. Öyleyse şüpheye düşenlerden olma.”: Yunus 94  
+
+    Artık hakikat ortadadır.
+
+    Şimdi mesele başka bir şeydir:
+    İnsan bunu kabul edecek mi, etmeyecek mi?
+
+    Hakikat dediğimiz şey ilginçtir.
+
+    Çoğu zaman insanlar onu uzak bir yerde arar. Büyük kurumlarda, görkemli mabetlerde, uzun unvanların arkasında.
+
+    Ama Kur’an bu konuda insanı biraz sarsar.
+
+    Hakikat ne bir ruhban sınıfının tekelindedir, ne de kalabalıkların alkışında saklıdır.
+
+    Kalabalık bazen yanılır.
+    Gelenek bazen bozulur.
+    Din adına konuşan insanlar bile bazen hakikati eğip büker.
+
+    Kur’an başka bir yerde bunu çok açık söyler:
+    “Kitabı dilleriyle eğip bükerler ve ‘Bu Allah katındandır’ derler.”
+
+    Yani sorun yeni bir şey değil. İnsan hakikati bazen kendi çıkarına göre yamultur.
+
+    Ama ayet şunu hatırlatır:
+
+    Hak Rabbinden gelir.
+
+    İnsan üretmez onu.
+    İnsan sadece ona yaklaşır ya da ondan uzaklaşır.
+
+    Hakikat biraz dağ gibidir.
+
+    Rüzgârlar gelir geçer.
+    Toz bulutları yükselir.
+    Ama dağ yerinde durur.
+
+    Batıl ise çoğu zaman gürültülüdür. Büyük görünür. Ama çoğu zaman saman alevi gibidir: bir anda parlar, sonra sönüp gider.
+
+    Kur’an başka bir yerde bunu daha sert bir dille anlatır:
+
+    “Biz hakkı batılın üzerine fırlatırız; o da onun beynini parçalar ve batıl yok olup gider.”
+
+    Yani hakikat sadece bir fikir değildir.
+
+    Bir gerçekliktir.
+
+    Ve gerçeklik eninde sonunda ortaya çıkar.
+
+    Ama burada ayetin söylediği önemli bir şey daha var.
+
+    “Şüphe edenlerden olma.”
+
+    Bu cümle bazı insanlara sert gelebilir. Çünkü insanın aklı soru sormayı sever. Kur’an da aslında bunu yasaklamaz. Tam tersine defalarca sorar:
+
+    “Akletmez misiniz?”
+    “Düşünmez misiniz?”
+
+    Yani sorgulamak kötülük değildir.
+
+    Ama ayetin hedef aldığı başka bir şey var:
+    inatçı şüphe.
+
+    Kuran'da yasaklanan şüphe, delil sonrası inat veya kaynaksız tereddüttür (Zann). 
+
+    "Fakat onların çoğu, ancak kuruntuya/zanna tabi olurlar: gerçekten kuruntu/zan, hakka karşı hiçbir fayda sağlamaz. Muhakkak ki Allah, onların yaptıklarından haberdardır." : Yunus 36
+
+    Zan, gerçek adına hiç bir şey ifade etmez. : Yunus 36 , Necm 28
+    
+    Oysa delil arayan sorgulama (Tefekkür) övülür. Bu ayet, kanıt sunulduktan sonraki tavrı düzenler. Akıl mizanı, "kör şüphe" ile "metodik sorgulama"yı ayırt eder.
+
+    Delil ortaya konur. Mantık kurulmuştur. Hakikat gösterilmiştir. Ama insan yine de kabul etmek istemez.
+
+    Neden?
+
+    Çünkü bazen hakikati kabul etmek zor gelir.
+
+    İnsan alıştığı fikri bırakmak istemez.
+    Kendi tarafını kaybetmek istemez.
+    Topluluğunun dışına düşmek istemez.
+
+    İşte o noktada şüphe artık arayış değil, kaçış olur.
+
+    Kur’an’ın çağrısı bu yüzden çok sade ama ağırdır.
+
+    Hakikat geldiğinde insanın yapacağı şey bellidir:
+
+    Onu tanımak.
+
+    Ve ona karşı dürüst olmak.
+
+    "Bu bir kuşku, çelişme, tutarsızlık olmayan kitaptır; O, şüphesiz Allah’tan korkanlar/sakınanlar için kılavuzdur." : Bakara 2
+
+    Çünkü insanın asıl meselesi çoğu zaman hakikati bulamamak değildir.
+
+    Hakikati gördükten sonra ne yapacağını bilmemesidir.
+
+    Bazen hakikati kabul etmek bir hayatı değiştirmek demektir.
+
+    Bir düzeni bırakmak demektir.
+    Bir alışkanlığı terk etmek demektir.
+    Bir kalabalığın karşısında yalnız kalmak demektir.
+
+    Ama Kur’an yine de aynı şeyi söyler:
+
+    Hak Rabbinden gelmiştir.
+
+    Ve hakikat karşısında insanın en büyük sınavı, onu görüp görmemek değil…
+    onu görüp görmezden gelip gelmemektir.
     
 61. **Sana tam bilgi geldikten sonra, eğer bu konuda seninle tartışan olursa, de ki: “Gelin, toplanalım, oğullarımız ve oğullarınız, kadınlarımız ve kadınlarınız, kendimiz ve kendiniz: O halde, içtenlikle dua edelim ve Allah’ın lanetini yalancıların üzerine dileyelim!**  
       
-    Heyetler yılıydı, Hicret’in onuncu yılı. Necran’dan, San’a’nın yüz elli mil kuzeyindeki Yaman’a doğru bir Hristiyan elçiliği geldi. Bu elçilik, Mesih’in gerçek konumunu açıklayan Kur’an ayetlerini duyduğunda derinden etkilendi. Öyle ki, yeni kurulan Müslüman Devleti ile haraç/vergi ilişkilerine girdiler. Fakat kökleşmiş alışkanlıklar, geleneklerin ağır baskısı, onları İslam’ı bir bütün olarak kabul etmekten alıkoydu.  
-      
-    Peygamber, inancında kararlıydı. Her iki tarafın da yalnızca erkeklerini değil, kadınlarını ve çocuklarını da çağıracağı, içtenlikle Allah’a yalvaracakları, yalancıya Allah’ın lanetini dileyecekleri ciddi bir toplantı önerdi: Saf ve samimi bir inanca sahip olanlar, böyle bir çağrı karşısında tereddüt etmezdi. Fakat Hristiyanlar bu teklifi reddetti. A’ini Akbari’de “hükümdarlık ücreti” denen haraç karşılığında, Devlet’in koruması altına girmeyi kabul edip, hoşgörü ruhuyla ayrıldılar.  
-      
-    Onlar gittiler, ama geride bir soru kaldı: İnsan, hakikati gördüğü halde neden eski alışkanlıklarına sarılır? Neden geleneklerin ağır zincirlerini kırmaktan korkar?  
+    Ayetin Mantıksal Yapısı
+
+    Bu ayetin içinde çok dikkatli kurulmuş bir mantık vardır.
+
+    Önce bilgi (ilm)
+
+    Ayetin ilk şartı şudur: “Sana ilim geldikten sonra.”
+
+    Yani mübahele cahillik ortamında yapılmaz. Önce hakikat açıklanır. Kur’an bu bağlamda İsa’yı Adam ile kıyas eder, mantık kurar, teolojik çerçeveyi netleştirir.
+
+    Akıl yürütme tamamlandıktan sonra hâlâ inatçı bir tartışma varsa, o zaman mesele artık bilgi değil irade meselesidir.
+
+    
+    Mübahele: Hakikat için risk alma
+
+    Mübahele basit bir beddua değildir.
+
+    Bu aslında bir hakikat testidir.
+
+    Mantık şudur:
+
+    Eğer biri gerçekten doğru söylediğine inanıyorsa, Allah’ın hükmüne başvurmaktan korkmaz. Ama yalan söyleyen kişi ilahi laneti göze almak istemez.
+
+    Bu yüzden ayet yalnızca bireyleri değil, aileleri de çağırır:
+
+    oğullarımız
+
+    kadınlarımız
+
+    kendimiz
+
+    Bu çağrı şunu gösterir: mesele sadece kişisel bir tartışma değil, nesilleri bağlayan bir hakikat iddiasıdır.
+
+    
+    Tarihsel Sahne
+
+    İslam tarih kaynaklarına göre bu ayet, Necran’dan gelen Hristiyan heyetiyle yapılan tartışma bağlamında okunur.
+
+    Necran, Yemen taraflarında önemli bir Hristiyan merkezidir. Heyet Medine’ye gelip Peygamber’le İsa’nın doğası hakkında tartışır.
+
+    Kur’an’ın sunduğu açıklamalar onları etkiler, fakat geleneklerinin ağırlığı onları tam bir dönüşümden alıkoyar.
+
+    Peygamber mübahele teklif eder.
+
+    Rivayetlere göre heyet kendi aralarında konuşur ve şöyle bir endişe dile getirir: Eğer gerçekten peygamberse ve biz mübaheleye girersek, bunun sonucu ağır olabilir.
+
+    Bu yüzden mübaheleyi kabul etmezler.
+
+    Sonunda bir anlaşma yapılır. İslam toplumunun içinde, kendi dinlerini koruyarak yaşamayı kabul ederler ve siyasi bir vergi düzenlemesiyle ayrılırlar. Bu model daha sonra bir arada yaşama örneklerinden biri olarak görülür.
+    *Necran heyeti detayları Kuran'da geçmez; Siyer ve tarih kaynaklarındandır.
+
+    
+    Ayetin verdiği büyük ders
+
+    Bu sahneden geriye çok önemli bir insanlık sorusu kalır:
+
+    İnsan bazen hakikati gördüğü halde neden onu kabul etmekte zorlanır?
+
+    Kur’an bu sorunun cevabını farklı yerlerde verir.
+
+    Bazen sebep alışkanlıktır.
+
+    İnsan doğduğu dünyanın inançlarına çok bağlıdır. Atalarının yolunu terk etmek ona ihanet gibi gelir.
+
+    Bazen sebep sosyal korkudur.
+
+    Bir insan inancını değiştirirse, çevresini kaybedeceğini düşünür.
+
+    Bazen sebep güç ve statüdür.
+
+    Bir düzenin içinde yer edinmiş insanlar, o düzenin yanlış olduğunu kabul etmek istemez.
+
+    
+    Kur’an’ın yaklaşımı
+
+    Burada dikkat çekici bir şey var.
+
+    Kur’an tartışmayı şu sırayla yürütür:
+
+    Hakikati açıklar
+
+    Delil sunar
+
+    Tartışmaya cevap verir
+
+    Gerekirse mübahele teklif eder
+
+    Sonunda zorlamaz
+
+    Kur’an başka bir ayette de bunu çok açık söyler:
+
+    “Dinde zorlama yoktur.”
+
+    Yani hakikat sunulur ama iman zorla alınmaz.
+
+    
+    Son düşünce
+
+    Necran heyeti mübaheleye girmedi. Ama savaş da olmadı. Bir anlaşma yapıldı ve yollar ayrıldı.
+
+    Bu olay bize çok insanî bir gerçeği hatırlatır.
+
+    Hakikat bazen bir anda kabul edilmez.
+
+    İnsanlar bazen ona yaklaşır, bazen etrafında dolaşır, bazen de ondan uzaklaşır.
+
+    Ama Kur’an’ın bakışına göre hakikat yine de yerinde durur.
+
+    İnsanların kararları değişebilir.
+
+    Ama hakikat değişmez.
+
+    Önce bilgi, sonra meydan okuma, en son özgür tercih. Zorlama yok; sonuç Allah'a aittir.
     
 62. **Gerçek hesap budur: Allah’tan başka ilah yoktur. O, mutlak güç sahibidir, hüküm ve hikmet sahibidir.**  
       
-    İsa, bir insandan başka bir şey değildi. Ona Tanrı ya da Tanrı’nın oğlu demek, akla da vahye de aykırıdır. Bunu vurgulamak için ona “Meryem’in oğlu” denir. Doğumu mucizeviydi, evet, bir insan babası yoktu. Fakat onu peygamber olarak o yüce manevi makama yükselten, bu değildi. Onu asıl yücelten, Allah’ın onu kendi katına çağırmasıydı. Övgü, yalnızca Allah’a aittir. O, sözüyle İsa’ya manevi güç verdi, onu kutsal ruhla destekledi.  
-      
-    İsa’nın hikâyesini çevreleyen mucizeler, yalnızca onun doğumu, hayatı ve ölümüyle sınırlı değildi. Annesi Meryem’in, selefi Yahya’nın hayatları da bu mucizelerle doluydu. Bunlar, onun getirdiği “Açık İşaretler”di. Fakat onu yanlış anlayanlar, bu açık işaretleri gizlediler, onu kendi uydurdukları gizemlerle ördüler. İsa’yı, hakikatin ışığından uzaklaştırdılar, karanlık hikâyelerin içine hapsettiler.  
-      
-    Oysa İsa, bir insandı. Topraktan yaratılmış, Allah’ın kelamıyla yüceltilmiş bir kuldu. Onun büyüklüğü, insanüstü bir varlık olduğu iddiasında değil, Allah’ın ona verdiği görevde, insanlığa sunduğu hakikatteydi. İsa, bir öğretmendi, bir yol göstericiydi. Onun mucizeleri, insanları hakikate çağıran işaretlerdi. Fakat insanlar, bu işaretleri görmek yerine, kendi karanlık hikâyelerini yazdılar.  
+    Burada anlatılan hikâye, Isa’nın hayatı, doğumu ve görevi hakkında Kur’an’ın sunduğu çerçevedir. Ayet önce bir şeyi ilan eder: bu anlatı bir efsane değil, “hak kıssa”dır.
+
+    “Hak kıssa” ne demektir?
+
+    Arapça ifade ***“el-kasasu’l-hakk”***tır.
+
+    Bu ifade iki şeyi aynı anda anlatır:
+
+    Bu olay gerçektir.
+
+    Bu anlatım doğru şekilde aktarılmıştır.
+
+    Yani Kur’an, İsa etrafında oluşmuş farklı anlatılar arasında kendi sunduğu açıklamayı hakikat anlatısı olarak ortaya koyar.
+
+    İnsanlık tarihinde peygamberlerin hikâyeleri çoğu zaman iki şeyin arasında kalır:
+
+    tarih
+
+    efsane
+
+    Zaman geçtikçe insanlar o hikâyelerin etrafına yeni yorumlar, yeni semboller, yeni inançlar ekler. Kur’an’ın yaptığı şey ise bu anlatıyı yeniden sadeleştirmektir.
+
     
+    Hikâyenin vardığı sonuç: Tevhid
+
+    Ayetin ikinci cümlesi bu yüzden doğrudan şuna bağlanır:
+
+    “Allah’tan başka ilah yoktur.”
+
+    Yani İsa’nın doğumu, mucizeleri, yükselişi… bütün bunların sonucu yeni bir ilah fikri değildir.
+
+    Tam tersine:
+
+    Bütün peygamber kıssalarının vardığı yer aynıdır.
+
+    Tevhid.
+
+    Bu yüzden Kur’an, İsa’yı sürekli “Meryem’in oğlu” diye anar. Bu ifade onun küçültülmesi için değil, insanlığının unutulmaması için kullanılır.
+
+    Kur’an başka bir yerde bunu çok somut bir delille anlatır:
+
+    “Mesih Meryem oğlu sadece bir elçidir… o da annesi de yemek yerlerdi.”
+
+    Yemek yemek, ihtiyaç duymak, beden taşımak… bunlar insan olmanın işaretidir. Kur’an’ın mantığı basittir:
+
+    İhtiyaç duyan varlık ilah olamaz.
+
+    Mucizelerin amacı
+
+    Kur’an İsa’nın hayatını anlatırken mucizeleri de zikreder:
+
+    körleri iyileştirmesi
+
+    ölüleri diriltmesi
+
+    çamurdan kuş yapıp canlandırması
+
+    Ama her mucizenin yanında aynı ifade tekrar edilir:
+
+    “Allah’ın izniyle.”
+
+    Yani mucize peygamberin kendi gücü değildir.
+
+    Mucize bir işarettir.
+
+    Bir peygamberin getirdiği mesajın ilahi kaynağını göstermek için verilen bir işaret.
+
+    Bu yüzden Kur’an’da mucizelerin amacı insanları hayran bırakmak değil, hakikati fark ettirmektir.
+
+    
+    
+    “Ruhul Kudüs” desteği
+
+    Kur’an ayrıca İsa’nın Ruhul Kudüs ile desteklendiğini söyler. Bu ifade genellikle ilahi vahiy desteğini, çoğu yorumda da meleksel destek olarak Cebrail’i ifade eder.
+
+    Bu nokta önemlidir.
+
+    Bu destek, İsa’nın özünde ilahi olduğu anlamına gelmez. Tam tersine, onun Allah tarafından desteklenen bir peygamber olduğunu gösterir.
+
+    
+    Hikâyenin etrafındaki sis
+
+    Tarih boyunca İsa’nın hayatı etrafında çok güçlü bir teolojik gelenek oluştu. Bu gelenek içinde:
+
+    üçleme doktrini
+
+    ilah-oğul anlayışı
+
+    metafizik yorumlar
+
+    gibi farklı açıklamalar ortaya çıktı.
+
+    
+    Kur’an’ın yaklaşımı ise çok daha sade bir çerçeve kurar:
+
+    İsa
+
+    Allah’ın kelimesiyle yaratılmıştır
+
+    mucizelerle desteklenmiştir
+
+    bir peygamberdir
+
+    Ama yine de bir kuldur.
+
+    Peygamberlik ve öğretmenlik
+
+    İsa’nın büyüklüğü insanüstü bir varlık olmasında değil, taşıdığı görevde görülür.
+
+    O:
+
+    bir peygamberdir
+
+    bir elçidir
+
+    insanlara Allah’ın mesajını taşıyan bir rehberdir
+
+    Onun öğrettiği şey yeni bir tanrılık öğretisi değil, zaten önceki peygamberlerin çağrısıdır:
+
+    Allah birdir.
+    O’na kulluk edin.
+
+    Aynı çağrıyı daha önce Ibrahim, Musa ve daha sonra Muhammed de dile getirir.
+
+    
+    Ayetin sonundaki iki isim
+
+    Ayet şu iki ilahi isimle biter:
+
+    Aziz ve Hakîm
+
+    Aziz: Allah’ın iradesi yenilmez. İnsanların planları O’nun planını bozamaz.
+
+    Hakîm: Allah’ın yaptığı hiçbir şey amaçsız değildir. Her olayın ardında bir hikmet vardır.
+
+    
+
+    Son düşünce
+
+    Kur’an bu kıssayı anlatırken insanlara şu mesajı verir:
+
+    Peygamberleri büyüten şey, onların insanüstü varlıklar olması değildir.
+
+    Onları büyüten şey, hakikatin taşıyıcısı olmalarıdır.
+
+    İsa’nın değeri de burada yatar.
+
+    O bir kuldu.
+    Bir peygamberdi.
+    Ve insanlara Allah’ın birliğini hatırlatan bir işaret oldu.
+
+    Kur’an’ın ifadesiyle:
+
+    “İşte bu, gerçek kıssadır.”
+
+    "Musa’ya Kitab’ı verdik ve arkasından peş peşe elçiler getirdik; Meryem oğlu İsa’ya apaçık alametler/deliller verdik ve onu Ruhu’l-Kudüs/Kutsal Ruh ile güçlendirdik. Her ne zaman bir peygamber , nefislerinizin hoşlanmadığı bir şey getirdiğinde her seferinde büyüklük taslamadınız mı? – Kimisine sahtekâr dediniz, kimisini de öldürdünüz!" : Bakara 87
+
+    "O elçilerden bazılarını bazılarından üstün rızıklandırdık: Allah onlardan birine konuştu; diğerlerini şeref/onur derecelerine yükseltti; Meryem oğlu İsa’ya apaçık âyetler verdik ve onu mukaddes ruhla destekledik. Allah dileseydi, kendilerine apaçık ayetler geldikten sonra gelen nesiller kendi aralarında savaşmazlardı, fakat bazıları inanarak, bazıları inkar ederek çekişmeyi seçtiler. Allah dileseydi, birbirleriyle savaşmazlardı; ancak Allah, planını/layık gördüğünü gerçekleştirir." : Bakara 253
+
+    "Senden önce hiçbir elçi göndermedik ki, ona: “Benden başka ilah yoktur” diye vahyetmediğimiz olmadı; bu nedenle Bana ibadet edin ve hizmet edin./Senden önce hiçbir elçi göndermedik ki, ona tarafımızdan gönderilen benden başka ilah olmadığına dair şu vahiy olmasın ; bu nedenle Bana tapın ve hizmet edin." : Enbiya 25
+
+    "O zaman Allah şöyle buyurur: “Ey Meryem oğlu İsa! Sana ve annene olan nimetimi anlat. Bak, ben seni ruh-kudüsle güçlendirdim ki, çocuklukta ve olgunlukta insanlarla konuştun. Bak, ben seni kutsal ruhla güçlendirdim.” Sana Kitab’ı, Hikmeti, Tevrat’ı ve İncil’i öğrettim de, benim iznimle çamurdan kuş şeklinde bir şey yaptın, ona üfledin de benim iznimle kuş oluverdi. Benim iznimle anadan doğma körlere ve alacalılara şifa verdin ve bak, benim iznimle ölüleri çıkardın ve bak, İsrailoğullarına apaçık âyetleri gösterdiğin zaman, ben İsrailoğullarını sana karşı şiddetten alıkoydum. İçlerinden kâfir olanlar: “Bu, apaçık bir sihirden/aldatmadan başka bir şey değildir” dediler." : Maide 110
+
+
+        
 63. **Ama yüz çevirirlerse, şüphesiz Allah, bozgunculuk yapanları bilir.**  
       
     
-64. **De ki: “Ey Kitap Ehli! Bizimle sizin aranızda uzlaşalım: Allah’tan başkasına kulluk etmeyelim. O’na hiçbir şeyi ortak koşmayalım, Allah’tan başka kendi aramızda Rabler ve veliler edinmeyelim. “Eğer bundan sonra dönerlerse, siz deyin ki:”Şahit olun ki biz en azından Müslümanız/Allah’ın rızasına boyun eğmişiz.**  
+64. **De ki: “Ey Kitap Ehli! Bizimle sizin aranızda uzlaşalım/buluşalim: Allah’tan başkasına kulluk etmeyelim. O’na hiçbir şeyi ortak koşmayalım, Allah’tan başka kendi aramızda Rabler ve veliler edinmeyelim. “Eğer bundan sonra dönerlerse, siz deyin ki:”Şahit olun ki biz en azından Müslümanız/Allah’ın rızasına boyun eğmişiz.**  
       
       
-    Ey Kitap Ehli! Sizden ve bizden ortak bir kelam üzerine gelin: Allah’tan başka hiçbir şeyi ibadet etmeyelim, O’na hiçbir ortak koşmayalım, kendimizden efendiler ve veliler yapmayalım.” Eğer yüz çevirirlerse, deyin ki: “Şahit olun ki biz en azından Müslümanlarız/Allah’ın iradesine boyun eğenleriz”  
+    Bu çağrı doğrudan Kitap Ehli olarak anılan topluluklara yöneliktir; yani vahiy geleneğine sahip olan Yahudi ve Hristiyanlara.
+
+    “Ortak söz” ne demektir?
+
+    Ayetin merkezinde geçen ifade ***“kelimetin sevâ”***dır.
+
+    Bu ifade bir uzlaşma pazarlığı anlamına gelmez. Kur’an burada “ilkelerden biraz vazgeçelim” demiyor. Tam tersine, herkesi en temel hakikate yükselmeye çağırıyor. Arapça "Te'alev" (Gelin/Yükselin) ifadesi, ortak bir ilkeye yükselmeyi anlatır
+
+    Bu ortak söz üç temel ilke içerir:
+
+    Yalnızca Allah’a kulluk etmek
+
+    O’na hiçbir şeyi ortak koşmamak
+
+    İnsanları rab edinmemek
+
+    Bunların üçü de aynı kökten gelir: tevhid.
+
+    
+    İnsanları “rab” edinmemek
+
+    Ayetin üçüncü kısmı özellikle dikkat çekicidir:
+
+    “Allah’tan başka birbirimizi rabler edinmeyelim.”
+
+    Arapça “Rabb” kelimesi sadece “yaratıcı” anlamına gelmez. Aynı zamanda:
+
+    sahip
+
+    koruyucu
+
+    yöneten
+
+    hüküm koyan
+
+    anlamlarını da içerir.
+
+    Bu yüzden Kur’an’ın eleştirdiği şey yalnızca putlara tapınmak değildir. Bazen insanlar başka insanları da otorite olarak kutsallaştırabilir.
+
+    Kur’an başka bir yerde şöyle der:
+
+    “Allah’ı bırakıp ahbarlarını/bilginlerini ve münzevilerini/ruhbanlarını Rableri ve Meryem oğlu İsa Mesih’i kendilerine Rab edindiler. Halbuki onlara, ancak bir olan Allah’a kulluk etmeleri emredildi. O’ndan başka ilah yoktur. Hamd O’nadır: O, onların ortak koştukları ortaklardan uzaktır.” : Tevbe 31
+
+    Yani bir insanın sözünü, sorgulanamaz bir dini otorite haline getirmek de bir tür sapma olarak görülür.
+
+    
+    Ruhbanlık eleştirisi
+
+    Tarih boyunca birçok dini gelenekte kutsal aracılar ortaya çıkmıştır.
+
+    Yahudilikte rahip soyları
+
+    Hristiyanlıkta ruhban sınıfı ve papalık
+
+    farklı kültürlerde kutsal kast sistemleri
+
+    Bu yapıların ortak özelliği şudur: İnsan ile Tanrı arasına bir aracılık koyarlar.
+
+    Kur’an ise çok farklı bir ilke ortaya koyar:
+
+    İnsan ile Allah arasında bir aracı yoktur.
+
+    Başka bir ayette Allah şöyle der:
+
+    “Kullarım, Beni sana sorduklarında, şüphesiz ben onlara çok yakınım; Bana dua ettiklerinde her dua edenin duasını işitiyorum: Onlar da kendi iradeleriyle benim davetime kulak versinler ve Bana inansınlar ki, doğru yolda yürüsünler.” : Bakara 186
+
+    Bu yakınlık fikri, tevhid anlayışının en güçlü taraflarından biridir.
+
+    
+    Saygı ile ibadet arasındaki çizgi
+
+    Burada ince bir ayrım da vardır.
+
+    Kur’an peygamberlere ve salih insanlara saygıyı reddetmez.
+
+    Ama saygı ile ibadet arasına net bir çizgi çizer.
+
+    Bir peygambere hürmet etmek başka bir şeydir.
+    Ondan yardım beklemek veya onu ilahi bir aracı görmek başka bir şeydir.
+
+    Tevhid bu çizgiyi korumayı ister.
+
+    
+    Reddedilirse ne olacak?
+
+    Ayetin son kısmı oldukça sakin ama net bir tutum ortaya koyar:
+
+    “Eğer yüz çevirirlerse deyin ki: Şahit olun, biz Müslümanız.”
+
+    Buradaki “Müslim” kelimesi yalnızca bir kimlik etiketi değildir.
+
+    Kelime anlamı şudur:
+
+    Allah’a teslim olan.
+
+    Yani Kur’an’ın önerdiği şey zorla kabul ettirmek değildir. Ortak zemine davet vardır. Ama davet kabul edilmezse yapılacak şey kavga değil, durumu açıklamaktır.
+
+    
+    
+    İbrahim örneği
+
+    Bu çağrının hemen ardından Kur’an şu soruyu sorar:
+
+    “İbrahim hakkında neden tartışıyorsunuz?”
+
+    Ve şu cevabı verir:
+
+    İbrahim ne Yahudi idi ne Hristiyan.
+
+    O, hanif idi.
+
+    Bu yüzden Kur’an, İbrahim’i bütün vahiy geleneğinin ortak kökü olarak gösterir.
+
+    Hanif olmak, insanın bütün aracıları bir kenara bırakıp doğrudan Allah’a yönelmesi demektir.
+
+    
+    Ayetin verdiği büyük ders
+
+    Bu ayet aslında bir diyalog modeli sunar:
+
+    Ortak zemini ara
+
+    Temel ilkeyi hatırlat
+
+    Aracılığı reddet
+
+    Zorlama yapma
+
+    Bu yaklaşım, dinler arası tartışmanın en sade ama en güçlü formüllerinden biridir.
+
+    
+    Son düşünce
+
+    Kur’an’ın çağrısı aslında çok basittir.
+
+    İnsanların birbirine üstünlük kurduğu, otoritelerin kutsallaştırıldığı karmaşık yapıların içinde kaybolmak yerine şu soruya dönmek:
+
+    Kime kulluk ediyoruz?
+
+    Eğer cevap yalnızca Allah ise, o zaman insan ile hakikat arasındaki mesafe çok kısalır.
+
+    Kur’an’ın daveti tam olarak budur:
+
+    Ortak bir Sözde buluşmak.
+
+    Deyin ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya ve İsa’ya verilene ve bütün peygamberlere Rablerinden verilene inandık: Biz onlardan hiçbirini diğerinden ayırt etmeyiz ve Allah’a İslam’da secde ederiz.” : Bakara 136
       
-    Kitap Ehli, bu üç önermeyi soyut düzlemde kabul etse de, iş uygulamaya geldiğinde sapmalar baş gösterir. Birlik ve Teklik inancından uzaklaşmaların yanı sıra, kutsal bir rahip sınıfının ortaya çıkışı dikkati çeker. Yahudilerde babadan oğula geçen Cohen’ler, Hristiyan dünyasında Papa ve rahipler, Brahmanlar… Hepsi de Allah’a özel bir yakınlık iddiasıyla kendilerini yücelten, halkın üzerine bir perde gibi inen, aracılık rolünü üstlenmeye çalışan topluluklardır. Oysa gerçek farklıdır. Azizlere tapınmak da aynı yanılgının bir başka yüzüdür. Takva sahibi olsalar da, onların bizi koruma gücü yoktur; Allah’tan başka bir otorite, bir efendi, bir Rabb olamaz.  
-      
-    İbrahim’e gelince… O, tam anlamıyla bir hanifti, Allah’a teslim olmuştu. Ne Tevrat’ı bilirdi ne de İncil’i. Yahudi de değildi, Hristiyan da. Ama hakikatin izinden yürüyen bir yolcuydu. Onun örneği, İslam’ın geçmiş peygamberlerle bağını gösterdiği kadar, dinlerarası diyaloğun da temel taşlarını döşer.  
-      
-    “Rabb” kelimesi Arapça’da yaratıcı, sahip, koruyucu anlamlarına gelir; Türkçe’de genellikle “Rab” olarak çevrilir.  
+    
       
     
 65. **Ey Kitap Ehli! O’ndan sonrasına kadar Tevrat ve İncil indirilmemişken, neden İbrahim hakkında tartışıyorsunuz? Anlayışınız yok mu/Hiç aklınız yok mu?**  
@@ -1456,19 +2892,288 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 66. **Ah! Sizler, hakkında bilgi sahibi olduğunuz konularda dahi münakaşaya düşen kimselersiniz! Fakat hakkında bilgi sahibi olmadığınız şeylerde niçin tartışıyorsunuz?/Vay halinize! Siz, bazı bilgileriniz olduğu halde bunlar hakkında münakaşa edenlersiniz. Peki neden hiçbir bilginiz olmadığı şeylerde tartışmak istersiniz? Allah bilir, siz bilmezsiniz!/Şüphesiz Allah bilir, siz ise bilmezsiniz!**  
       
       
-    Yahudi ve Hristiyanlar arasındaki mezheplerin çokluğu, onların kendi dinleri hakkında bile bir türlü anlaşamadıklarını, en temel meselelerde bile birbirleriyle çekiştiklerini gösterir. Oysa iş “Atamız İbrahim”e geldiğinde, söyledikleri bir anda havada kalır. Çünkü İbrahim, onların inanç sistemleri henüz ortada yokken, zamanın derinliklerinde, hakikatin peşinde yürüyen bir yolcuydu. Ne Yahudi’ydi ne Hristiyan… Onların iddiaları, kaynağını bulamayan bir ırmak gibi kuruyup gider.  
+    Bir insan, kendisinden yüzyıllar sonra ortaya çıkan bir dinin mensubu olabilir mi?
+
+    Cevap açıktır: Hayır.
+
+    Bu nedenle Kur’an, İbrahim’in Yahudi ya da Hristiyan olarak tanımlanmasını mantıksal olarak imkânsız görür.
+
+    
+    Tartışmanın asıl problemi
+
+    Kur’an burada sadece tarihsel bir hata düzeltmez. Daha derin bir soruna işaret eder:
+
+    
+    Bilgiye dayanan tartışmalar
+
+    Kendi kutsal metinleri, kendi gelenekleri…
+
+    Buna rağmen insanlar bu konularda bile anlaşamazlar.
+
+    Kur’an başka bir yerde bu durumu şöyle anlatır:
+
+    “Fakat insanlar kendi aralarındaki birlik işlerini/meselelerini fırkalara ayırdılar: Her bir taraf kendi nefsinde olana seviniyor.” : Muminun 53
+
+    Yani mezheplerin çoğalması, yorumların çatışması, dini geleneğin içinde sürekli bir çekişme üretir.
+
+    
+    Bilgiye dayanmayan tartışmalar
+
+    İbrahim’in kimliği gibi konular.
+
+    Bu noktada insanlar tarihsel veya vahiy temelli bilgiye sahip değildir; buna rağmen iddialar ortaya koyarlar.
+
+    Kur’an bunu zan olarak tanımlar.
+
+    Zan, yani kesin bilgiye dayanmayan tahmin.
+
+    Bu yüzden ayet şöyle biter:
+
+    “Allah bilir, siz bilmezsiniz.”
+
+    İbrahim’in gerçek konumu
+
+    Kur’an bu tartışmayı bir sonraki ayette tamamen bitirir.
+
+    Şöyle der:
+
+    İbrahim ne Yahudi idi ne Hristiyan.
+
+    O hanif idi.
+
+    Bu yüzden Kur’an’da Ibrahim şöyle tanımlanır:
+
+    Allah’a yönelmiş
+
+    putlardan uzak durmuş
+
+    tevhide bağlı kalmış
+
+    Yani o, mezheplerin kurucusu değil; tevhid geleneğinin temsilcisidir.
+
+    
+    Hanif kavramı
+
+    “Hanif” kelimesi önemli bir kavramdır.
+
+    Bu kelime:
+
+    sapmalardan yüz çeviren
+
+    doğruluğa yönelen
+
+    saf tevhidi arayan
+
+    insanı ifade eder.
+
+    Bu yüzden Kur’an İbrahim’i bir dinin “etiketi” ile değil, bir yöneliş ile tanımlar.
+
+    Kur’an’ın eleştirdiği şey yalnızca yanlış bilgi değildir.
+
+    Kimlik tartışmasıdır.
+
+    İnsanlar bazen peygamberleri kendi taraflarına çekmek isterler.
+
+    Çünkü bir peygamberi sahiplenmek, kendi inanç sistemine tarihsel meşruiyet kazandırır.
+
+    Ama Kur’an bu sahiplenmeyi kabul etmez.
+
+    İbrahim hiçbir grubun mülkü değildir.
+
+    
+    İnsanların üç hataya düşme eğilimi vardır:
+
+    Bilmedikleri şey hakkında konuşmak
+
+    Tarihi kimlik tartışmalarına dönüştürmek
+
+    Peygamberleri kendi taraflarına çekmek
+
+    Kur’an ise şöyle bir ilke koyar:
+
+    Bilgi olmadan tartışma yapılmaz.
+
+    
+
+    İbrahim’in hikâyesi aslında mezheplerin değil, hakikat arayışının hikâyesidir.
+
+    O bir kalabalığın içinde doğmadı.
+
+    Bir gelenek onu yönlendirmedi.
+
+    O tek başına hakikati arayan bir yolcuydu.
+
+    Çünkü onun yolu tevhidin yoludur.
       
       
     
 67. **İbrahim bir Yahudi ya da henüz bir Hıristiyan değildi; fakat o, imanda dosdoğru idi ve Allah’a, yani İslam’a boyun eğdi ve Allah’a ortak koşmadı.**  
       
-    İbrahim Yahudi de değildi, Hristiyan da; ama imanı dosdoğru idi ve Allah’a teslim oldu ve Allah’a ortak koşmamıştı.  
-      
+    Kur’an, Ibrahim hakkında yürütülen tartışmaları bu ayetle keser:
+
+    Bir başka ayette ise insanların kurtuluşu belirli bir mezhebe bağlama iddiası aktarılır:
+
     “Kurtulmak için hidayete ermek istiyorsanız Yahudi veya Hristiyan olun” diyorlar. De ki: “Hayır! İbrahim’in hak dinini tercih ederim; o Allah’a ortak koşmadı.” : Bakara 135  
+
+    Bu iki ayet birlikte düşünüldüğünde Kur’an’ın kurduğu mantık oldukça açıktır.
+
+    
+    Zamanın Tanıklığı
+
+    Tarih basit ama güçlü bir gerçeği gösterir.
+
+    İbrahim, Musa’dan yüzyıllar önce yaşamıştır.
+    Yani Yahudiliğin ortaya çıkışından çok önce.
+
+    Aynı şekilde Isa’dan da binlerce yıl önce yaşamıştır.
+    Yani Hristiyanlıktan da çok önce.
+
+    Bu yüzden akıl şu soruyu sorar:
+
+    Bir insan, kendisinden yüzyıllar sonra ortaya çıkacak bir dinin mensubu olabilir mi?
+
+    Cevap açıktır.
+
+    Olamaz.
+
+    Bu nedenle İbrahim’i Yahudi veya Hristiyan olarak tanımlamak, tarihin akışını tersine çevirmeye çalışmak gibidir.
+
+    
+    Hanif: Eğrilikten Hakikate
+
+    Kur’an İbrahim’i tanımlarken hanif kelimesini kullanır.
+
+    Bu kelime yalnızca “doğru” anlamına gelmez.
+    Daha derin bir yönelişi anlatır:
+
+    batıldan yüz çevirmek
+
+    eğrilikten uzak durmak
+
+    hakikate yönelmek
+
+    Hanif olmak, kalbin yönünü yalnızca Allah’a çevirmek demektir.
+
+    İbrahim’in yolu tam olarak budur.
+
+    
+    Teslimiyetin Adı
+
+    Aynı ayette İbrahim için müslim ifadesi de kullanılır.
+
+    Bu kelime bir topluluk adı olmadan önce bir anlam taşır:
+
+    Allah’a teslim olan.
+
+    Bu nedenle Kur’an’da İslam yalnızca bir tarih döneminin dini değildir.
+    O, bütün peygamberlerin ortak çağrısıdır.
+
+    Yani İbrahim’in dini bir mezhep değil;
+    tevhid ve teslimiyet yoludur.
+
+    
+    Mirasın Gerçek Ölçüsü
+
+    Kur’an’a göre İbrahim’in mirası kan bağıyla ölçülmez.
+
+    Ne soyla,
+    ne kavimle,
+    ne de mezheple.
+
+    Gerçek miras şudur:
+
+    İbrahim’in yolunu izlemek.
+
+    Nitekim Kur’an şöyle der:
+
+    “İnsanların İbrahim’e en yakın olanları, ona uyanlar, bu peygamber ve iman edenlerdir.”
+    (Âl-i İmrân 3:68)
+
+    Yani İbrahim’e yakınlık, kan bağıyla değil; iman bağıyla kurulur.
+
+    Ve bu İbrahim’in oğullarına bıraktığı mirastı, Yakub’un da öyle; “Ah oğullarım! Allah sizin için İmanı/İnancı seçti; o zaman İslam İnancı dışında ölmeyin.” : Bakara 132
+
+    Deyin ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya ve İsa’ya verilene ve bütün peygamberlere Rablerinden verilene inandık: Biz onlardan hiçbirini diğerinden ayırt etmeyiz ve Allah’a İslam’da secde ederiz.” : Bakara 136
+
+    
+    Son söz
+
+    İbrahim bir mezhebin kurucusu değildir.
+
+    O, tek başına hakikatin izini süren bir yolcudur.
+
+    Putların gölgesinde büyüyen bir dünyada,
+    yüzünü göğe çevirip şöyle diyen adamdır:
+
+    Hakikat birdir.
+
+    "O halde yüzünü sabit ve hakikî olarak îmâna çevir: Allah’ın eserini/yapıtını, O’nun insanları yarattığı örneğe/fıtrata göre sabit kıl: Allah’ın yaptığı işte hiçbir değişiklik olmasın. İşte standart din budur; fakat insanların çoğu anlamazlar." : Rum 30
+
+    Bu yüzden Kur’an’ın çizdiği tabloda İbrahim:
+
+    mezheplerin değil,
+    tevhidin sembolüdür.
+      
+   
     
 68. **Şüphesiz, insanlardan İbrahim’e en yakın olanlar, ona tabi olanlardır, bu elçi ve iman edenler de öyledir: Allah, iman edenlerin dostudur.**  
       
-    Şüphesiz insanlar arasında İbrahim’in en yakınları, ona uyanlar, bu Elçi ve inananlardır. Allah, iman edenlerin Koruyucusudur.  
+    Bu ayet, İbrahim’e yakınlığın ölçüsünü tamamen değiştirir.
+
+    Çünkü tartışma genellikle soy, gelenek veya dini kimlik üzerinden yürütülür. Kur’an ise farklı bir ilke ortaya koyar:
+
+    Yakınlık kan bağıyla değil, inanç ve takip ile belirlenir.
+
+    Yakınlığın Üç Halkası
+
+    Ayet üç grubu birlikte zikreder:
+
+    İbrahim’e tabi olanlar
+    Yani onun tevhid yolunu izleyenler.
+
+    Bu elçi
+    Yani Muhammed, İbrahim’in tevhid geleneğini yeniden hatırlatan bir peygamber.
+
+    İman edenler
+    Tevhid ve teslimiyet yolunu benimseyen herkes.
+
+    Bu sıralama önemli bir gerçeği gösterir:
+    İbrahim’in mirası etnik değil, inançsal bir mirastır.
+
+    “Velî” Kavramı
+
+    Ayetin sonunda şu ifade yer alır:
+
+    “Allah, iman edenlerin velîsidir.”
+
+    Buradaki velî kelimesi:
+
+    dost
+
+    koruyucu
+
+    destekleyen
+
+    sahip çıkan
+
+    anlamlarını içerir.
+
+    Yani Allah ile iman edenler arasında yalnızca bir inanç bağı değil, aynı zamanda dost, koruyucu bir yakınlık ilişkisi vardır.
+
+    
+    Sonuç
+
+    Kur’an’ın ortaya koyduğu ölçü nettir:
+
+    İbrahim’e yakınlık soyla belirlenmez.
+
+    Mezhepsel kimlikle de belirlenmez.
+
+    Gerçek yakınlık onun yolunu izlemekle mümkündür.
+
+    Bu yüzden Kur’an’ın bakışında Ibrahim bir kavmin değil, tevhid yolunu arayan bütün insanların ortak rehberidir.
+
+
     
 69. **Kitap Ehli’nden bir grubun sizi saptırma arzusu vardır. Ama sizi değil, kendilerini saptırırlar ve farkında değillerdir!**  
       
@@ -1482,21 +3187,221 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     
 71. **Ey Kitap Ehli! Neden hakkı batıl ile örtüyorsunuz ve bilginiz varken hakkı gizliyorsunuz?**  
       
-    Ey Kitap Ehli! Neden hakikati yanlışla örterek gizliyorsunuz ve hakkın kendisini saklıyorsunuz, halbuki siz bunun şahitleri değil misiniz?  
-      
-    Hakka giden yolu tıkamak için binbir türlü yol vardır. Bunların en sinsisi, gerçeği bozup eğip bükmek, ona yalanın rengini çalmaktır. Yarı hakikatler, düpedüz yalandan daha tehlikelidir; çünkü içinde doğruya dair kırıntılar taşıdığı için insanın aklını bulandırır. Bir başka yol ise gerçeği tümden saklamaktır. Allah’ın gönderdiği bir peygamber gözlerinin önünde dursa da, ona düşman olanlar onun erdemlerini gizler, onun hakkında olmadık yalanlar uydurur, halkın ona yönelmesini engellemek için gerçeği ketumca saklarlar. Ama asıl felaket, insanın bunu bile bile yapmasıdır. “Siz bunların şahidiyken” dediğinde, haktan yüz çevirenin içine düştüğü o karanlık derinleşir. Bu, yalnız başkalarına değil, en çok da kendilerine verdikleri bir ziyandır; insanın kendine ettiği kötülük, kimsenin ona edebileceğiyle boy ölçüşemez.  
-      
+    Bu ayet yalnızca bir yanlış bilgi meselesini değil, bilinçli bir çarpıtma biçimini anlatır.
+
+    Kur’an’ın kullandığı ifade şudur:
+    “Hakkı batılla örtmek.”
+
+    Bu, doğrudan yalan söylemekten bile daha tehlikeli bir yöntemdir.
+
+    Çünkü burada hakikat tamamen yok edilmez; onun içine yanlış karıştırılır.
+    
+    
+    Yarı Hakikatin Tehlikesi
+
+    Gerçeğe giden yolu kapatmanın birçok yolu vardır.
+
+    Bunlardan en sinsisi şudur:
+
+    Gerçeği eğip bükmek
+
+    Onu yanlışla karıştırmak
+
+    Hakikatin üzerine yalanın rengini sürmek
+
+    Yarı hakikatler çoğu zaman açık yalandan daha tehlikelidir.
+
+    Çünkü içinde doğru kırıntıları taşıdıkları için insanın aklını yanıltırlar.
+    Dinleyen kişi gerçeği duyduğunu zanneder; fakat gerçekte hakikat bozulmuştur.
+
+    Kur’an’ın eleştirdiği tam olarak bu yöntemdir.
+
+    "Hakkı batılla örtmek" (Telbis), gerçeği tamamen yok etmek değil, onu tanınmaz hale getirmektir. İçine %1 doğru katılıp %99 yanlış zerk edilmiş bir iddia, zehrin bala karıştırılması gibidir.
+
+    Ayetteki "Ve entum ta'lemûn" (Siz bilirken) vurgusu, meselenin bir cehalet değil, bir tercih olduğunu gösterir. Bilmek, sorumluluk doğurur; bilerek gizlemek ise hakikate ihanettir. Bakara 174 bu ihanetin bedelini ağır bir dille çizer: 
+    
+    "Allah’ın Kitaptaki âyetlerini gizleyenler ve onları acı bir kazanç için satın alanlar var ya, işte onlar içlerine ateşten başka bir şey yutmazlar. Allah kıyamet günü onlara hitap etmeyecektir. Onları arındırmayacaktır da: Onların cezası ağır olacaktır."
+
+    Burada cehaletten söz edilmez.
+    Sorun bilgisizlik değil, bilinçli suskunluktur.
+
+    İnsan gerçeği gördüğü halde:
+
+    onu söylemez,
+
+    onu saklar,
+
+    insanların duymasını engeller.
+
+    Kur’an’a göre bu durum yalnız başkalarına zarar vermez.
+
+    Asıl zarar bunu yapan kişinin kendisine döner.
+
+    Çünkü hakikati bile bile gizlemek, insanın kendi vicdanına karşı işlediği bir haksızlıktır.
+
+    Kur’an şu davranışları eleştirir:
+
+    vahiydeki bazı bilgileri saklamak
+
+    bazı kısımları çarpıtmak
+
+    hakikati kendi çıkarlarına göre yorumlamak
+
+    Yani sorun bir topluluğun varlığı değil; hakikatin bilerek çarpıtılmasıdır.
+
+    
+    Evrensel Uyarı
+
+    Kur’an’ın verdiği ders yalnızca tarihsel bir eleştiri değildir.
+
+    Her çağda aynı tehlike ortaya çıkabilir:
+
+    dini otoriteyi korumak için gerçeği gizlemek
+
+    metinleri çıkar için eğip bükmek
+
+    insanların hakikate ulaşmasını engellemek
+
+    Kur’an’ın uyarısı tam da buna yöneliktir.
+
+    Çünkü hakikati karartan şey çoğu zaman açık düşmanlık değil,
+    hakikatin üzerine çekilen ince bir örtüdür.
+
+    Hakikat bazen inkârla değil, örtülerek kaybolur.
+
+    Bugün hangi isim altında olursa olsun (mezhep, gelenek, otorite); Hz. Muhammed’in o yalın, insani ve adil duruşunun üzerine eklenen her türlü "kutsallaştırılmış yalan", bu ayetin kapsamına girer. Onu bir beşer elçi olmaktan çıkarıp, ulaşılmaz ve akıl dışı bir figüre dönüştürmek, aslında Kur’an’ın sunduğu o berrak "hakkı" gizlemektir.
+
+    Kur’an’ın sorusu bu yüzden hâlâ yankılanır:
+
+    “Neden hakkı batılla örtüyorsunuz?”
+
+    Bu soru yalnız geçmişe değil,
+    hakikati bilen ama susmayı seçen herkese yöneltilmiş bir sorudur.
+
+    Hakikati boğan, sonunda kendi nefesini keser. Kur’an’ın evrensel yasasıdır: 
+    "Ancak inananlar, salih amel işleyenler, Allah’ı çok zikredenler ve ancak haksızlığa uğradıktan sonra kendilerini savunanlar müstesnadır. Ve zalim saldırganlar, işlerinin ne kadar inişli çıkışlı/alt üst olacağını yakında bilecekler!/Ve yakında haksız saldırganlar işlerinin ne gibi değişimlere/devrimlere yol açacağını bilecekler!" :Şuara 227
+    
+    İnsan hakkı gizlediğinde, aslında kendi fıtratına giden yolu kapatır.
+
+    Hakikat, sarsılmaz bir kaya gibidir; üzerine hangi yalanın boyasını sürerseniz sürün, ilk yağmurda (hakikat anında) o boya akar ve kaya tüm çıplaklığıyla ortaya çıkar. Acı olan, o boyayı sürenlerin ellerinin kirlenmesi ve gözlerinin körleşmesidir. Şahit olduğun gerçeği dilsiz bir şeytan gibi saklamak, sadece o gerçeğe değil, kendi insanlık onuruna da en büyük darbedir.
+
+    "Allah’ın Kitaptaki âyetlerini gizleyenler ve onları acı bir kazanç için satın alanlar var ya, işte onlar içlerine ateşten başka bir şey yutmazlar. Allah kıyamet günü onlara hitap etmeyecektir. Onları arındırmayacaktır da: Onların cezası ağır olacaktır." : Bakara 174
+    
+    
+    Tamamen kişisel yorum:         
     Bugün İslam coğrafyasında mezhep ve tarikatların baskısı altında, Hz. Muhammed’e türlü iftiralar, akla hayale sığmaz yalanlar yakıştırılıyor. Onu Allah’a denk tutanlar mı dersin, kâinatın efendisi diye adlandıranlar mı, yoksa hadis adı altında ona en ağır iftiraları yakıştıranlar mı… Gerçek kayboluyor, özünden koparılıyor. Oysa Muhammed, ne bir kraldı ne de ilah… O, hakikatin izinden giden, insanlara yolu gösteren bir elçiydi. Ama ne yazık ki, insanların kurduğu sistemler, ona isnat edilenlerle birlikte gerçeği öyle bir örttü ki, onu tanımak isteyen, kat kat örtüleri aralamak zorunda kaldı.  
       
-    Dikkat ederseniz bu lanet dinci takımı, bu örtüyü kaldıranlardan nefret eder, hatta onları deccal diye çağırırlar. Deccal diye çağrılan Allah’ın erlerine örnek mi istiyorsunuz? İmam’ı Azam Ebu Hanife, Atatürk…  
+    Dikkat ederseniz bu tip dinci takımı, bu örtüyü kaldıranlardan nefret eder, hatta onları deccal diye çağırırlar. Deccal diye çağrılan Allah’ın erlerine örnek mi istiyorsunuz? İmam’ı Azam Ebu Hanife, Atatürk…  
       
     
 72. **Kitap Ehli’nden bir bölüm şöyle diyor: “Müminlere indirilene sabah inan, ama günün sonunda onu yalanla, umulur ki onlar kendileri dönerler;**  
       
-    Kitap Ehli’nden bir grup diyor ki: “Sabah müminlere indirilene inanıyormuş gibi görünün, ama akşam olunca onu inkâr edin. Belki onlar da şüpheye düşer, yollarından dönerler.”  
-      
-    Bunlar, İslam’a karşı sinsi bir oyun kurmuşlardı. Münafıklığın kitabını yazmış, kendi adamlarına, önce müminlerin arasına karışmalarını, sonra da onlardan kopmalarını salık vermişlerdi. “Sabah” ve “akşam” dedikleri şey, onların içten pazarlıklı, kaypak inançlarını gösteriyordu. Gerçekten iman etmek gibi bir dertleri yoktu. Amaçları fitneydi, bölücülüktü, insanları hakikatten uzaklaştırmaktı. Ve aslında en büyük kaybı kendileri yaşıyorlardı; çünkü bu oyun, onların içten içe çürüyüşünün, kendi ahlaki çöküşlerinin bir aynasıydı.  
-      
+   
+    Bu ayet, dışarıdan gelen fiziksel baskıdan çok daha tehlikeli bir saldırı biçimini; "zihinsel sabotajı" deşifre eder. Akıl burada, her "gelenin" dost, her "dönen" iddianın ise hakikat olmadığını öğrenir.
+
+    
+    "Sabah inan, akşam inkâr et" stratejisi, yeni filizlenen bir inancın özgüvenini sarsmaya yöneliktir. Kendilerinden daha bilgili veya deneyimli görülen bir grubun (Kitap Ehli) bu gel-gitli tavrı, müminlerin zihninde "Demek ki bildikleri bir eksiklik var" algısı yaratmak içindir.
+
+    
+    Sabah İnanıp Akşam İnkâr Etmek
+
+    Burada anlatılan yöntem oldukça dikkat çekicidir.
+
+    Planın özü şudur:
+
+    Önce müminlerin arasına karışmak
+
+    Onların inandığını kabul eder gibi görünmek
+
+    Ardından kısa süre sonra bundan vazgeçmek
+
+    Amaç gerçeği aramak değildir.
+
+    Amaç şüphe üretmektir.
+
+    Yeni iman etmiş insanlar şöyle düşünmeye başlayabilir:
+
+    “Eğer bu insanlar önce inanıp sonra vazgeçiyorsa, demek ki bu işte bir sorun var.”
+
+    Böylece inanç doğrudan saldırıyla değil, şüphe yoluyla zayıflatılmaya çalışılır.
+
+    
+    "Leallehum Yerci'ûn": Hedef Hakikatten Koparmaktır
+    Bu taktiğin tek bir hedefi vardır: Fitne. Yani insanı kendi iç huzurundan ve bulduğu hakikatten koparıp tekrar belirsizliğin karanlığına itmek. Al-i İmran 100 bu tehlikeyi doğrudan mühürler: "Eğer Kitap Ehli'nden bir grubun sözüne uyarsanız, imanınızdan sonra sizi tekrar inkâra döndürürler." Bu, akıl mizanına sahip bir müminin, dışarıdan gelen her türlü "uzman" görüşünü Kur'an'ın süzgecinden geçirmesi gerektiğinin kanıtıdır.
+
+    Ey iman edenler! Ehl-i Kitap’tan bir fırkayı dinlerseniz, imanınızdan sonra sizi gerçekten mürted yaparlar! : Al-i İmran 100
+
+    Kur’an bu davranışı açık bir düşmanlıktan farklı bir kategoriye yerleştirir.
+
+    Burada:
+
+    açık bir inkâr yoktur,
+
+    açık bir tartışma da yoktur.
+
+    Bunun yerine rol yapma ve yönlendirme vardır.
+
+    İnançla oynamak, onu araç haline getirmek, insanların zihinlerine kuşku düşürmek…
+
+    Bu yüzden ayette geçen planın amacı açıkça ifade edilir:
+
+    “Belki dönerler.”
+
+    Yani hedef, insanların hakikatten uzaklaşmasıdır.
+
+
+    Ahlaki Çöküş
+
+    Kur’an’a göre böyle bir yöntem yalnız başkalarına zarar vermez.
+
+    Asıl zarar bunu yapanların kendisine döner.
+
+    Çünkü inancı bir oyun haline getirmek,
+    hakikati bir araç gibi kullanmak,
+    insanın kendi ahlakını da aşındırır.
+
+    İnsan, başkalarını yanıltmaya çalışırken
+    önce kendi iç dünyasını karartır.
+
+    İnancı bir strateji aracı, sabah giyip akşam çıkarılan bir elbise gibi gören bu "taife" (grup), aslında en büyük zararı kendi karakterine verir. İnsan, hakikati bir oyuncağa çevirdiğinde, kendi ruhunu da anlamsızlığa mahkûm eder. Bu, kelimeleri yerinden kaydıranların (Al-i İmran 78) düştüğü bir nevi ahlaki boşluktur.
+
+
+    Kur’an’ın Dengesi
+
+    Burada önemli bir nokta vardır.
+
+    Kur’an bu davranışı bütün bir topluluğa değil, yalnızca “bir grup”a atfeder.
+
+    Yani eleştirilen şey bir din veya bir halk değil;
+    hakikati manipüle etmeye çalışan bir zihniyettir.
+
+    Ayetin "bir grup" (taifetun) demesi çok kritiktir. Kur'an, bu kirli oyunu kurgulayanları ayırırken, Kitap Ehli içindeki samimi insanları tenzih eder. Al-i İmran 113 ile bu dengeyi kurar: "Hepsi aynı değildir: Kitap Ehli’nden bir kısmı hakkı savunurlar: Bütün gece boyunca Allah’ın âyetlerini okurlar ve secdeye kapanırlar."
+
+
+    Son düşünce
+
+    Hakikate saldırı her zaman açık inkârla yapılmaz.
+
+    Bazen hakikate en büyük zarar:
+
+    şüphe üretmekle
+
+    güveni sarsmakla
+
+    inancı bir oyun haline getirmekle
+
+    verilir.
+
+    Kur’an’ın anlattığı bu olay, insanın hakikati arama yolunda karşılaşabileceği en eski tuzaklardan birini gösterir:
+
+    İnanıyormuş gibi yaparak şüphe üretmek.
+
+    Hakikat, bir sabah meltemiyle gelip akşam fırtınasıyla gidecek kadar hafif bir şey değildir. Onu bir oyun sanıp, sabah inanıyormuş gibi görünüp akşam reddedenler; aslında hakikati değil, sadece kendi sahtekârlıklarını ilan etmiş olurlar. Kimin kalbi Kur'an'ın o sarsılmaz mizanına bağlıysa, bin tane sinsi strateji gelse de onun sükûnetini bozamaz. Çünkü iman, bir 'anlık heyecan' değil, bir 'ömürlük duruş'tur.
+    
+    "Fitne, öldürmekten daha beterdir." (Bakara 2:191)
+    
+    
+          
     
 73. **“Dininize uymadıkça hiç kimseye inanmayın.” De ki: “Gerçek hidayet Allah’ın hidayetidir. Size indirilene benzer bir vahyi başkasına da gönderilmesinden mi yoksa o vahiy alanların Rabbiniz katında sizi tartışmaya sokmalarından mı korkuyorsunuz?” De ki: “Bütün nimetler Allah’ın elindedir. O, onları dilediğine verir. Allah, her şeye kadirdir ve O, her şeyi bilir.”**  
       
