@@ -3411,13 +3411,23 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     “Ve kimseye, ‘sizin dininizden olmayana inanmayın’ demeyin.” De ki: “Hak din, ancak Allah’ın dinidir. Siz ‘Tıpkı size gönderilen vahye benzer bir vahiy başkasına gönderilse diye mi korkuyorsunuz? Yoksa onlar Rabbiniz huzurunda sizinle tartışırlar diye mi?’ Bunu sakın düşünmeyin! De ki: ‘Bütün nimetler Allah’ın elindedir. O, dilediğine verir. Allah her şeyi kuşatandır ve her şeyi bilir.’”  
       
-    Bu ayetler, Kitap Ehli’nin Müslümanlara karşı iki büyük rahatsızlığını gözler önüne serer.  
-      
-    Birincisi, Müslümanların vahiy alması… Kendilerini Allah’ın seçilmiş kulları sayanlar, vahyin kendi dışlarında bir topluluğa inmesini bir türlü hazmedemezler. Bu, içlerini kemiren bir kıskançlık, bir öfke olur.  
-      
-    İkincisi, kendi kitaplarıyla yüzleşmeleri… Müslümanlar, onların kutsal metinlerinden deliller getirip onları iman konusunda hesaba çektiğinde, inatları büsbütün artar. Hakikatin gözlerinin içine bakmak yerine, ondan kaçmayı seçerler.  
-      
-    “Allah’ın nimetleri” denildiğinde, bu yalnızca dünya nimetleri değil, peygamberlik, hidayet gibi ruhani lütufları da kapsar. Sonunda ise her şey dönüp dolaşıp Allah’ın mutlak iradesine varır. İnsanların küçük hesapları, geçici çekişmeleri, Allah’ın iradesi, planı ve adaleti karşısında eriyip gider.  
+    Bu ayet, insanın Tanrı adına koyduğu sınırları Allah'ın nasıl yıktığını gösteren bir hürriyet beyannamesidir. Akıl burada, "seçilmişlik" illüzyonunun nasıl bir hapishaneye dönüştüğünü görür.
+
+    "Bizden Olmayan Hakikate Ermesin": Dini Getto Zihniyeti
+    "Dininize uymadıkça kimseye inanmayın" cümlesi, tekelci zihniyetin anayasasıdır. Bu bakış açısı, hakikati bir kabile mirası, vahyi ise bir aile mülkü zanneder. Akıl sorar: Sonsuz olan Allah, nasıl olur da sadece bir grubun dar kalıplarına sığdırılabilir? 
+
+    Vahyin Kıskançlığı ve Entelektüel Korku
+    Ayetteki o sinsi soru çok çarpıcıdır: "Size verilenin benzeri başkasına verilir de sizinle tartışırlar mı diye korkuyorsunuz?" Bu, bir "bilgi tekeli" korkusudur. Kitap Ehli'nin bir kısmı, ellerindeki kutsal metinleri bir üstünlük aracı olarak kullanırken, başka bir topluluğun (Müslümanların) aynı kaynaktan beslenmesini kendi otoritelerine tehdit olarak görmüştür. Bakara 76’da vurguladığı gibi; "Aleyhinize delil mi vereceksiniz?" korkusu, hakikati aramak değil, hakikati hapsetmek derdidir.
+
+    Lütuf Allah’ın Elindedir: İradenin Özgürlüğü
+    Allah bu kibre tek bir cümleyle cevap verir: "Lütuf Allah’ın elindedir." Bu, dinsel bürokrasiye vurulmuş en büyük darbedir. Kimin peygamber olacağına, kime hidayet verileceğine, hangi yüreğin aydınlanacağına ne bir ruhban sınıfı ne de bir gelenek karar verebilir. Allah, "Vasi"dir (Geniş imkan sahibidir); O’nun rahmeti bir grubun imtiyazı olamayacak kadar devasadır.
+
+    Benzetmeler ve Aklın Sınavı
+    Bakara 26 örneği, bu ayetle muazzam örtüşür. Kalbi mühürlenmiş olan, Allah'ın ayetlerindeki derinliği değil, "Neden bu örnek?" diyerek şekli tartışır. Al-i İmran 73'te de aynı şekilcilik vardır: "Neden onlara verildi?" Soru, hakikatin ne olduğu değil, kime verildiğidir. Oysa akıl, mesajın sahibine ve özüne bakar; kuryenin kimliğiyle vakit kaybetmez.
+
+    Allah'ın lütfunu kendi tekeline almaya çalışanlar, aslında güneşi bir kutuya hapsedebileceğine inanan çocuklara benzerler. O kutu sadece onları karanlıkta bırakır; güneş ise tüm dünyayı aydınlatmaya devam eder. Hak din, bir grubun tapulu malı değil; her vicdanın Allah ile kurduğu aracısız ve samimi bağın adıdır. Kim ki 'Sadece bizden olan hidayettedir' derse, o aslında Allah'ın 'Vasi' (Sonsuz genişlikte) sıfatına savaş açmıştır.
+
+
       
     
 74. **O, rahmeti için dilediğini özel olarak seçer; Allah, sınırsız lütuf sahibidir.**  
@@ -3426,6 +3436,8 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 75. **Kitap Ehli’nden öyleleri vardır ki, kendisine bir yığın altın emanet edilse onu hemen öder; bir tek gümüş para emanet edilse, sen sürekli talepte bulunmadıkça onu geri ödemeyecek olan diğerleri de, çünkü “bu cahil müşriklere iman etmemiz için bize bir çağrı yok” diyorlar. Fakat onlar, Allah’a karşı yalan söylüyorlar ve bunu biliyorlar.**  
       
     Bu ayet, Kitap Ehli’nden iki ayrı insan tipini gözler önüne serer.  
+
+    Kimisi kantarla altına (büyük güç ve servet) rağmen eğilmez; kimisi bir gümüş para (küçük bir menfaat) için onurunu satar.
       
     Bir yanda güvenilir olanlar vardır. Dünya malı, servet, makam ne olursa olsun, doğruluktan ayrılmazlar. Onlar için emanete sadakat, insana verilen en büyük sınavdır.  
       
@@ -3433,11 +3445,94 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Ve en korkuncu… Onlar yalanı yalnızca insanlara değil, Allah’a karşı da söylerler. Bunu bilerek yaparlar, bile isteye hakikatten kaçarlar. Bu, sadece bir zayıflık değil, bilinçli bir ihanettir.  
       
-    Her millet, her kavim, kendi soyunu yücelten bir kibirle hareket eder. Ahlakı ve dini, kendi çıkarına göre eğip büker. Kendi içlerinde dürüst, kendi aralarında adil olabilirler ama iş başkalarına geldi mi, gözleri küçümsemeyle dolar, vicdanları susar. Kendi soylarından olmayanı kandırmakta bir sakınca görmezler.  
-      
-    İşte bu, Allah’a karşı yalan söylemektir. Çünkü hakikat yalnızca bir zümrenin, bir ırkın, bir sınıfın malı değildir. Hakikat, bütün insanlığın ortak mirasıdır. Ama çifte standartla yaşayanlar, kendi vicdanlarında kurdukları o sahte adalet terazisini yalnız içlerinden olana işler kılar, dışarıda kalana ise yük olur.  
-      
-    Tarih boyunca ırkçılık, mezhepçilik, sınıf kibri hep aynı hikâyeyi yazdı. İnsanları bölüp ayırdı, hakikati eğip büktü. Ama adalet, Allah’ın adaleti, bu çarpıtmalara boyun eğmez. Gerçek manevi değerler, böyle sığ hesapların içinde kaybolup gitmez.  
+    
+    Bu ayet, aynı topluluk içinde iki ayrı insan tipini gösterir.
+
+    
+    Güvenilir Olanlar
+
+    Birinci grupta emanete sadık insanlar vardır.
+
+    Onlara:
+
+    büyük bir servet
+
+    değerli bir emanet
+
+    önemli bir sorumluluk
+
+    teslim edilse bile doğruluktan ayrılmazlar.
+
+    Onlar için güvenilirlik, insanın sahip olabileceği en temel ahlaki değerdir.
+    Malın büyüklüğü ya da küçüklüğü onların karakterini değiştirmez.
+
+    
+    Emanete İhanet Edenler
+
+    İkinci grupta ise bambaşka bir tavır görülür.
+
+    Onlar için mesele emanet değil, çıkardır.
+
+    En küçük menfaat bile sadakati unutturabilir.
+    Kendilerine ait olmayan bir şeyi geri vermemek için türlü bahaneler üretirler.
+
+    Kur’an, onların şu düşünceyi dile getirdiğini aktarır:
+
+    “Ümmîlere karşı bize sorumluluk yoktur.”
+
+    Yani kendi topluluklarından olmayan insanlara karşı dürüst davranmayı gerekli görmezler.
+
+    
+    Çifte Standart
+
+    Ayetin eleştirdiği asıl mesele budur.
+
+    Bir insanın:
+
+    kendi grubuna karşı dürüst
+
+    ama başkalarına karşı hilekâr olması
+
+    ahlaki bir çifte standarttır.
+
+    Kur’an bu tutumu Allah’a karşı söylenmiş bir yalan olarak tanımlar.
+    Çünkü adalet ve doğruluk yalnız bir topluluğa ait değildir.
+
+    Onların en büyük yalanı şudur: "Kendi grubumuzdan olmayana karşı işlediğimiz günahlar, günah sayılmaz." Bu, ahlakın evrenselliğini katletmektir. Bir insanı "ümmi" (kitapsız, cahil veya yabancı) ilan ederek ona yapılan haksızlığı meşrulaştırmak, aslında kendi vicdanına bir hapishane inşa etmektir. Akıl mizanı bize şunu söyler: Adalet, sadece "dostlara" uygulanan bir ayrıcalık değil, "düşmana" karşı bile korunması gereken bir haktır.
+
+    
+    Evrensel İlke
+
+    Bu ayetin verdiği ders yalnızca tarihsel bir topluluğa yönelik değildir.
+
+    Her çağda insanlar aynı hataya düşebilir:
+
+    kendi grubunu üstün görmek
+
+    ahlakı yalnız kendi çevresine uygulamak
+
+    başkalarına karşı adaleti askıya almak
+
+    Oysa Kur’an’ın koyduğu ilke açıktır:
+
+    Emanet ve doğruluk herkes için geçerlidir.
+
+    Allah’a Karşı Bile Bile Yalan Söylemek
+    Ayetteki "Ve hüm ya'lemûn" (Onlar bunu biliyorlar) vurgusu sarsıcıdır. Bu insanlar, yaptıkları hırsızlığa veya vefasızlığa "dini bir kılıf" uydururlar. Allah'ın adaletinin sadece kendi kabilelerine has olduğunu iddia ederek, aslında Allah'ın "Adil" ismine iftira atarlar. Bu, sadece bir zayıflık değil, hakikate karşı girişilmiş bilinçli bir sabotajdır.
+
+    Son düşünce
+
+    Gerçek ahlak, insanın yalnız kendi çevresine değil,
+    herkese karşı adil davranabilmesidir.
+
+    Irkçılık ve sınıf kibri hep bu ayetteki damardan beslendi. "Onlar bizim gibi değil, onlara her şey mübah" diyen her zihniyet, bu ayetin muhatabıdır. Mezhepçilik de böyledir; karşı tarafa yapılan zulmü "hak yol" adına mübah görenler, aslında Allah'ın yeryüzündeki adalet terazisini kırmaktadırlar.
+
+    Kur’an’ın hatırlattığı şey şudur:
+
+    İnsanları ayıran şey soyları veya toplulukları değil,
+    emanete sadık kalıp kalmadıklarıdır.
+
+    Emanete sadakat, insanın sadece insana değil, o emanetin gerçek sahibi olan Allah’a karşı verdiği bir sözdür. Kendi mahallesinde dürüst olup dışarıda kurt kesilenin dindarlığı, sadece bir 'kimlik gösterisi'nden ibarettir. Hakiki iman, tek bir gümüş paranın hesabını, bin kantar altının ağırlığıyla aynı titizlikte verebilen o dimdik duruştur. Kim ki 'Bizden olmayana yapılan haksızlıktan sorumlu değiliz' derse, o aslında kendi insanlığından istifa etmiş ve Allah’ın mutlak adaletine savaş açmıştır.
     
 76. **Hayır.- İnançlarına sadık kalanlar ve salih amel işleyenler, şüphesiz Allah, salih amel işleyenleri sever.**  
       
@@ -3450,15 +3545,78 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İşte Allah’a ve ahdlerine ihanet ederek imanlarını ucuz bir bedel karşılığında satanlar, ahirette hiçbir payları olmayacaktır. Kıyamet Gününde Allah onlara hitap etmez, onlara bakmaz ve günahlarından temizlemez. Onlar için ise acı bir azap vardır.  
       
     Bu ayet, imanını ve ahlaki değerlerini bir avuç dünyalık için feda edenlerin ruh çöküşünü sert bir dille yüzlerine vurur. “Antlarını/Ahdlerini satmak” ifadesi, insanın Allah’a verdiği sözü çiğnemesini, vicdanını pazara çıkarmasını anlatır. “Ucuz bedel” ise, sonsuz değerleri üç kuruşluk menfaat için gözden çıkarmanın ahmaklığını gösterir.  
+
+    Bu ayet, insanın bu dünyadaki en büyük sermayesini, yani "sözünün namusunu" nasıl kaybettiğini ve bu kaybın kainattaki yankısını anlatır. Akıl burada, geçici olanın kalıcı olanı nasıl yuttuğunu dehşetle izler.
+
+    Ayetin merkezinde “ahd” kavramı vardır.
+
+    Ahd, insanın Allah’a verdiği söz anlamına gelir.
+
+    Bu söz:
+
+    doğruluk
+
+    adalet
+
+    hakikate bağlılık
+
+    gibi temel değerleri içerir.
+
+    Bir insan bu sözleri bile bile çiğnediğinde, yalnızca bir hataya düşmüş olmaz; aynı zamanda kendi vicdanına da ihanet etmiş olur.
       
-    Ve işte sonuç…  
+    Ve sonuç…  
     Ahirette onlar için bir pay yoktur. Allah’ın rahmetinden mahrumdurlar, nimetlerinden uzak bırakılmışlardır.  
+
+    Sonsuz olanın (Allah’a verilen söz) karşısına konulan her türlü fani çıkar, matematiksel olarak "sıfıra" yakındır. Bu alışverişi yapan insan, evrenin en kötü tüccarıdır; çünkü cevheri verip yerine cam kırığı almıştır.
+
+    Kur’an’ın kullandığı “az bir bedel” ifadesi dikkat çekicidir.
+
+    Burada sözü edilen şey yalnızca para değildir.
+    İnsan bazen:
+
+    makam
+
+    güç
+
+    itibar
+
+    toplumsal çıkar
+
+    uğruna da hakikati terk edebilir.
+
+    Kur’an’a göre bütün bunlar, sonsuz bir hayatın yanında değersiz bir bedeldir.
+
+    Bu yüzden ayet, imanını bu tür çıkarlar uğruna terk edenlerin aslında çok büyük bir kayıp yaşadığını anlatır.
+
+    “Allah kıyamet günü onlarla konuşmaz ve onlara bakmaz.”
+
+    Bu ifade mecazi bir anlatım olarak anlaşılır.
+
+    Yani bu insanlar, ilahi rahmet ve yakınlıktan mahrum kalırlar.
+    Başka bir deyişle, kendi tercihleriyle Allah’ın rahmetinden uzaklaşmış olurlar.
       
     Allah onlara hitap bile etmez, yüzlerini görmez. Bu, onların artık ilahi merhametten düştüğünü, kendi elleriyle kendilerini önemsizleştirdiğini gösterir.  
       
-    Günahları bağışlanmaz. Çünkü onlar yalnızca hata yapan değil, bile isteye ihaneti seçenlerdir.  
+    Günahları bağışlanmaz. Çünkü onlar yalnızca hata yapan değil, bile isteye ihaneti seçenlerdir.  ÇOnlar sadece hata yapmamış, "sözleşmeyi" kasten yırtıp atmışlardır. İlahi bakıştan mahrum kalmak, bir ruhun yaşayabileceği en büyük kimsesizliktir.
+
+    Onları arındırmaz" (ve lâ yüzekkîhim) vurgusu, insanın kendi kendini iyileştirme gücünü kaybettiğini gösterir. Bilerek ve isteyerek hakikati satan bir kalp, kendi kirini temizleyemez hale gelir. Bu, bir nevi manevi kanserdir; hücre (insan), bağlı olduğu bedene (hakikate) ihanet etmiştir.
       
     Bu sözler, Kitap Ehli içindeki ikiyüzlülerin tavrına ayna tutar. Sabah inanıp akşam inkâr edenler, fitne peşinde koşanlar, Allah’ın vahyini eğip bükenler… Hepsi, gerçeği bildikleri halde ondan yüz çevirenlerdir. Onların oyunları kendilerini uçuruma sürükler.  
+
+    Kur’an’ın eleştirdiği şey sıradan bir günah değildir.
+
+    İnsan bazen hata yapabilir, zayıflık gösterebilir.
+    Bunun için tövbe kapısı her zaman açıktır.
+
+    Fakat burada söz edilen durum farklıdır:
+
+    gerçeği bilmek
+
+    buna rağmen onu terk etmek
+
+    menfaat uğruna hakikati çiğnemek
+
+    Bu, bilinçli bir tercihtir.
       
     Ama asıl soru şudur: _İnsan kendi vicdanına nasıl ihanet eder?_  
       
@@ -3467,43 +3625,191 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Hangi kazanç, insanın ruhunu satmasına değer?  
       
     Oysa sıradan günahkâra umut kapıları hep açıktır. Allah, onlara rahmetiyle bakar, tövbe edenin elinden tutar. Ama bile bile hakikati çiğneyen, dünyaya köle olup kalbini mühürleyen, neyin merhametini bekleyebilir?  
+
+    Kur’an’ın verdiği mesaj nettir:
+
+    İnsan dünyada pek çok kazanç elde edebilir.
+    Ama imanını ve ahlaki değerlerini kaybederse, gerçekte hiçbir şey kazanmamış olur.
+
+    Çünkü en büyük kazanç:
+
+    Allah’ın rızasını kaybetmemektir.
+
+    Onu kaybeden kişi ise, ne kadar şey elde etmiş görünürse görünsün, aslında en büyük kaybı yaşamış demektir.
       
-    İnsanın en büyük kazancı, Allah’ın rızasıdır. Onu kaybeden, aslında her şeyini kaybetmiş demektir.  
+    İnsanın en büyük kazancı, Allah’ın rızasıdır. 
+    Onu kaybeden, aslında her şeyini kaybetmiş demektir.  
+    Söz, insanın kainattaki imzasıdır; o imzayı üç kuruşluk dünya menfaati için mürekkebi kurumadan silenler, aslında kendi varlıklarını silmiş olurlar. Allah’ın bir kula bakmaması, o kulun artık 'yok' hükmünde olması demektir. Sıradan bir günahkâr düştüğü yerden kalkabilir, ama kalbini bir ticaret malına çeviren, ayağa kalkacak bir 'öz' bırakmamıştır. İnsanın onuru, Allah’ın ona olan bakışında saklıdır; o bakışı kaybeden, dünyaları kazansa ne çıkar?
       
       
     
 78. **Onlardan öylesi vardır ki, kitabı dilleriyle tahrif ederler: Onlar okudukça siz onu Kitaptan bir parça sanırsınız, oysa o Kitaptan değildir; “Bu, Allah katındandır” derler, halbuki o, Allah katından değildir. İşte onlar, Allah’a karşı yalan söylerler ve bunu bilirler!**  
       
-      
-    Onların içinde öyleleri var ki, kutsal kitabı dillerinin ucunda eğip bükerler. Öyle bir okurlar, öyle bir anlatırlar ki, dinleyenin gözünde gerçekmiş gibi durur. Oysa o sözler, hakikatin kendisi değildir. “Bu Allah’tandır” derler, ama değildir. İşte bunlar, Allah’a yalan uyduranlardır ve ne yaptıklarını da çok iyi bilirler!  
-      
-    Bu ayet, kutsal kelamı çarpıtanların gerçek yüzünü açığa çıkarır. Onlar, hakikati koruyup anlatacaklarına, onu kendi çıkarlarına göre eğip bükenlerdir. “Dille bükme” sözü, yalnızca kelimeleri yanlış telaffuz etmeyi değil, metinlerin anlamlarını saptırmayı, onları kendi emellerine uygun hâle getirmeyi de anlatır.  
-      
-    Bu sapkınlık yalnızca bir hata değildir. Bu, kasıtlı bir isyandır. Çünkü _onlar, ne yaptıklarını bilirler!_ Gerçeği bile bile çiğner, yanlış olanı doğru gibi gösterirler. Dilleri hakikati fısıldamaz, onun yerine kendi yalanlarını kutsallaştırır.  
-      
+    Bu ayet, insanın Tanrı adına konuşma cüretinin en karanlık biçimini; "teolojik sahtekarlığı" anlatır. Akıl burada, dindarlık maskesiyle yapılan o büyük hırsızlığı —hakikatin çalınmasını— dehşetle izler.
+
+    Ayetteki "lelyen bi elsinetihim" (dillerini bükmek) ifadesi muazzam bir tespittir. Bu, sadece telaffuz hatası değil, metne takla attırmaktır. Bir ayeti bağlamından koparmak, ona söyletmediğini söyletmek, ses tonuyla veya vurguyla anlamı saptırmak... Amaç; dinleyenin zihninde "Bu Allah’ın sözüdür" intibası uyandırarak, aslında kendi şahsi veya siyasi emellerini pazarlamaktır.
+
+    Kur’an’ın kullandığı ifade **“yalvûne elsinetehum bil-kitâb”**tır.
+
+    Bu şu anlamlara gelir:
+
+    metni yanlış okuyarak farklı bir anlam vermek
+
+    metni bağlamından kopararak kullanmak
+
+    yorumları ilahi söz gibi sunmak
+
+    Yani sorun yalnızca kelimeleri değiştirmek değildir;
+    yorumun vahiy gibi gösterilmesidir.
+
+    Sahte Kutsallık: "Bu Allah Katındandır" Yalanı
+    Bu, manipülasyonun en zirve noktasıdır. Kendi uydurduğu yorumu, mezhep geleneğini veya tarikat öğretisini "Mutlak Hakikat" (Allah katından) gibi sunmak. Onu eğip bükenler, emanete hıyanet edenlerin en aşağılığıdır. Çünkü onlar insanı sadece malından değil, yolundan da ederler.
+
+    Bilinçli Yalan: "Ve Hüm Ya'lemûn"
+    Ayet bir kez daha altını çiziyor: Onlar bunu biliyorlar. Bu bir akademik hata, bir çeviri yanlışlığı veya bir zühul (yanılma) değildir. Bu, sistemli bir karartma operasyonudur. Gerçeğin ne olduğunu bildikleri halde, kitleleri yönetmek için yalanı kutsalın kılıfına sokarlar. Akıl mizanı der ki: Bilinçli olarak Allah'a yalan isnat etmek, bir ruhun içine düşebileceği en derin çukurdur.
+
+    Burada eleştirilen şey:
+
+    bilgisizlik değil
+
+    hata değil
+
+    bilerek yapılan çarpıtmadır.
+
+    Yani kişi:
+
+    metnin ne söylediğini bilir
+
+    fakat kendi çıkarı için onu farklı gösterir
+
+    sonra da bunu “Allah böyle istiyor” diye sunar.
+
+    Kur’an bunu en büyük ahlaki ihanetlerden biri olarak görür.
+
+    
+    Modern Hadis ve Mezhep Labirenti
+    "Hadis eğlencesi" veya "mezhep dayatmaları" adı altında önümüze konulan koca bir külliyat, bu ayetin aynasında titremelidir. Kur'an'ın o yalın ve tertemiz adaleti, yüzyıllardır süregelen bu "dil bükmelerle" öyle örtüldü ki; insanlar Allah'ın dinini değil, "din adamlarının dinini" yaşar hale geldi. Hadis adı altında Peygamber'e (as) yakıştırılan o ağır iftiralar, aslında bu ayette betimlenen  sahtekarlığın tarihsel bir yansımasıdır.
+
     Ve sonuç… Bu çarpıtmalar, dünyada fitnenin kaynağı olur. Halkı yanlış yollara sürükler, insanların vicdanlarını kör eder. Ama daha büyük olan, ahirette onları bekleyen azaptır. Zira Allah her şeyi bilir, her şeyi görür. Ve bu sahte sözler, O’nun huzurunda hiçbir anlam ifade etmez.  
-      
-    Bu ayeti okuduktan ve idrak ettikten sonra beşeri mezhep, tarikat dayatmaları, hadis eğlencesi hakkında şöyle bir düşünün…  
-      
-      
+
+    
+    Önemli Denge
+
+    Ancak burada dikkat edilmesi gereken bir nokta vardır.
+    Kur’an dini düşünceyi veya yorum yapmayı yasaklamaz.
+    Aksine düşünmeyi ve anlamayı teşvik eder.
+
+    Eleştirilen şey:
+
+    yorum yapmak değil, yorumu vahiy yerine koymaktır.
+
+    Hakikat, süzülmüş su gibi berraktır; onu kendi bulanık hırslarıyla kirletip, üzerine 'kutsal' etiketi yapıştıranlar, sadece halkı değil, bizzat Allah'ı aldatmaya kalkışan meczuplardır. Dilleriyle Kitap'ı bükenler, aslında kendi vicdanlarını bükmüşlerdir. Kim ki bir beşer sözünü Allah'ın hükmünün önüne koyar ve 'Bu da dindendir' derse, o aslında bu ayetin kılıcıyla ikiye bölünmüştür. Bizim ihtiyacımız olan 'kutsal ambalajlı yalanlar' değil, aklın ve Kur'an'ın o eğilip bükülmez, sert ve dürüst gerçekliğidir.
+
+
+
+       
     
 79. **Kendisine kitap, hikmet ve peygamberlik makamı verilen bir kimsenin, insanlara: “Allah’ı bırakıp da bana kullar olun” demesi mümkün değildir: Bilakis aksine derdi ki: “Her şeyin Rızkı Olan Allah’a kullar olun. Çünkü siz Kitabı öğrettiniz ve onu ciddi bir şekilde çalıştınız.”**  
-      
-    O büyük yalnızlıkta, dağların doruğuna ulaşan bir ses gibi yükselir bu metnin özü: Peygamberler, Allah’ın kelamını insanlara ulaştırmak için gönderilmişlerdir. Onlar, yeryüzünün suskun topraklarında, halkın yüreğine umut serpen birer söz neferidir. Ne kendileri için isterler bir şey, ne de isterler tapınılmayı. Onlar, kendileri de Allah’ın birer kulu olduklarını hiç unutmadan, Allah’ı insana anlatırlar, O’nun yoluna davet ederler.  
-      
-    Dağlarda çobanların yankılayan sesi gibidir onların çağrısı: “Yalnız Allah’a kul olun!” Ne bir taşın önünde eğilin, ne de bir insanın. Her peygamber, Allah’ın birliğini haykırarak geçmiştir bu dünyadan. Öyle ki, İsa da, Musa da, Muhammed de, yüzyılların ötesinden aynı çağrıyı taşır yüreklerde. Hiçbiri, “Bana tapın” dememiştir. Hepsi, “Yalnız O’na yönelin” demiştir.  
-      
-    İsa’nın yolu da budur. Kudüs’ün rüzgârlarında yankılanan sözleri, Allah’ın birliğini, kudretini ve merhametini anlatır. O da, bir dağın doruğuna tırmanır gibi, halkını karanlıktan aydınlığa taşımak için gönderilmiştir. Ne bir taç giyer, ne de bir taht ister. Onun yükü, kelamdır; onun silahı, hikmettir.  
-      
-    Tevhid… Bu, yüzyılların ötesinden gelen bir çağrıdır. Tek bir Allah, eşi benzeri olmayan. Ne ortak kabul eder kendine, ne de bölünür. Bütün peygamberlerin dilinde aynı söz vardır: “Bir olan Allah’a yönelin.” Bu söz, yıldızların altındaki çobanın duasında da vardır, sarayın bahçesindeki bilgenin dilinde de.  
-      
-    Kitaplar iner. Vahiyler gelir. Bu kitaplar, yürekleri dürtmek, zihinleri aydınlatmak içindir. İnsan öğrenir, anlar, derin derin düşünür. Okudukça bilir ki, her satır bir davettir: Allah’ın yoluna, O’nun birliğine, O’na kulluğa.  
-      
-    Ve akıl… Akıl da şahitlik eder bu gerçeğe. Tabiatın dili de aynı gerçeği söyler: Güneş, ay, dağlar, ırmaklar hep aynı yöne bakar. Hiçbiri başka bir kudrete eğilmez. Çünkü eşyanın doğasında da vardır tevhid. Peygamberin sesi, işte bu doğallığın yankısıdır.  
-    Kısacası, bu anlatının özü, toprağa düşen bir tohum gibi büyür içinde: Peygamberler, kendileri için değil, Allah için çağırırlar. Ne övgü beklerler, ne de kulluk. Onlar, Allah’ın sesini yeryüzünde yankılatanlardır. Bu, İsa için de böyledir, Musa için de, Muhammed için de.  
-    Her peygamber, Allah’ın birliğini haykırmak için gelmiştir. İşte bu, tevhidin büyük destanıdır.  
-      
-      
+
+
+    Bu ayet, yeryüzündeki tüm "kutsallaştırılmış tiranlıkların" ve "ruhban putlarının" kökünü kazıyan ilahi bir baltadır. Akıl burada, elçinin yüceliğinin kendi şahsında değil, taşıdığı mesajın saflığında olduğunu idrak eder.
+
+    Bu ayet, peygamberliğin doğasını açıklayan önemli bir ilkedir.
+
+    Peygamber:
+
+    vahyin sahibi değildir
+
+    vahyin kaynağı değildir
+
+    vahyin tebliğ edicisidir
+
+    Dolayısıyla insanları kendisine değil, Allah’a yönlendirir.
+
+    Ayet, bir insana verilebilecek en yüksek makamları (Kitap, Hikmet, Nübüvvet) sayar ve hemen ardından en büyük sınırı çizer: Yetki, köleleştirmek için değil, özgürleştirmek içindir. Hiçbir hakiki elçi, Allah'tan aldığı ışığı kendi yüzüne yansıtıp insanları kendine tapındırmaz.
+
+    
+    "Rabbani Olun": Bilgiyle Gelen Sorumluluk
+
+    Ayetin dikkat çekici kısmı “rabbanî olun” çağrısıdır.
+
+    Rabbanî olmak:
+
+    Allah’a bağlı yaşamak
+
+    bilgiyi sorumlulukla kullanmak
+
+    vahyi öğrenip öğretmek
+
+    anlamlarını taşır.
+
+    Yani ayet yalnızca tevhidi değil, aynı zamanda bilgi sorumluluğunu da vurgular.
+    Peygamberin çağrısı "Bana tabi olun"dan ziyade, "Rabbani (Rabbe ait) olun" çağrısıdır. Bu, taklitçiliği reddeden, araştırmayı ve derinleşmeyi (dirase) esas alan bir kulluktur. Ayetteki "Kitabı öğrettiğiniz ve çalıştığınız (tedrusûn) için" vurgusu, bilginin namusuna yapılan bir atıftır. Akıl mizanı der ki: Okuyan, inceleyen ve öğreten bir topluluk; kula kul olmaz, ancak sistemin gerçek sahibine (Rabb'e) ram olur.
+
+
+    Peygamberlerin Ortak Çağrısı: Tek Ses, Tek Kavga
+
+    Kur’an’a göre bütün peygamberlerin mesajı temelde aynıdır:
+
+    “Allah’a kulluk edin.”
+
+    Bu çağrıyı taşıyan peygamberler arasında:
+
+    Musa
+
+    Isa
+
+    Muhammed
+
+    bulunur ve hepsi insanları tek Allah’a yönelmeye davet eder.
+
+    Kur’an bu ortak mesajı birçok yerde tekrarlar.
+
+    Bu ayetin çizdiği tablo şudur:
+
+    Peygamber:
+
+    ilahi mesajın taşıyıcısıdır
+
+    kendisi de Allah’ın kuludur
+
+    insanlardan kendisine ibadet istemez
+
+    Bu nedenle Kur’an, peygamberlerin tanrılaştırılmasını veya aşırı yüceltilmesini doğru bulmaz.
+
+
+    Bilgi ve Sorumluluk
+
+    Ayetin son kısmı önemli bir ilişki kurar:
+
+    kitabı öğrenmek → rabbanî olmak
+
+    Yani vahyi öğrenen insanın görevi:
+
+    onu doğru anlamak
+
+    doğru öğretmek
+
+    Allah’a bağlı bir hayat sürmektir.
+
+    Bilgi yalnızca entelektüel bir birikim değil, ahlaki bir sorumluluk haline gelir.
+
+
+
+    Gerçek büyüklük, insanları kendine değil, hakikate bağlayabilmektir. Bir peygamberin en büyük mucizesi, yanındakileri 'mürid' değil, 'Rabbani' (özgür, bilge ve Rabbine bağlı) bireyler yapabilmesidir. Kim ki bir insanı (hoca, şeyh, lider) Allah ile arasına aşılmaz bir perde gibi koyar ve onun sözünü vahyin üstüne çıkarırsa; o, hem o insana hem de bu ayetin ruhuna zulmetmiştir. İnsanın onuru, sadece Allah’ın huzurunda eğilip, geri kalan her şeye karşı dimdik durabilmesinde saklıdır.
+
+    Peygamberlerin görevi insanları kendilerine bağlamak değil,
+    Allah’a yöneltmektir.
+
+    Onların çağrısı şu özde birleşir:
+
+    “Allah’a kulluk edin ve O’na yönelin.”
+
+    Bu da Kur’an’ın merkezindeki ilke olan tevhidin ifadesidir.
+
+
+
+
     
 80. **Size melekleri ve peygamberleri Rabler ve veliler edinmenizi de emretmez. Ne! Siz İslam’da Allah’a boyun eğdikten sonra size küfrü mü emredecek?**  
       
@@ -3543,7 +3849,45 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     İnançlar çarpışmaz burada, yorumlar çatışır yalnızca. Her din, Allah’a ulaşmak için bir yol açmıştır, ama bazı yollar zamanla sisle kapanmıştır. İslam, bu yolları yeniden açma çabasındadır. Ve bu çabanın özünde bir ses yükselir: “Muhammed, Allah’ın elçisidir. Onu tanıyın, çünkü o da Musa’nın kardeşi, İsa’nın müjdesidir.”  
       
-    Bu Çağrının peşinden gitmeli. Çünkü o ses, bir kulun değil, Rabbin çağrısıdır.  
+    Bu Çağrının peşinden gitmeli. Çünkü bu ses, bir kulun değil, Rabbin çağrısıdır.  
+
+    Kur’an’a göre vahiy tarihi birbiriyle bağlantılıdır.
+    Her peygamber:
+
+    önceki vahyi doğrular
+
+    aynı temel mesajı yeniden hatırlatır
+
+    Allah peygamberlere ve onların ümmetlerine şu sorumluluğu yükler:
+
+    Kendilerine verilen vahyi korumak
+
+    Hakikati tanımak
+
+    Daha sonra gelen hak peygamberi reddetmemek
+
+    Yani vahiy geleneği rekabet eden değil, birbirini tamamlayan bir süreçtir.
+
+    Ayetin “yanınızdakini doğrulayan peygamber” ifadesi iki önemli ilkeyi içerir:
+
+    yeni vahiy önceki vahyin özünü inkâr etmez
+
+    hak peygamberler aynı ilahi kaynağa dayanır.
+
+    Kur’an’ın anlatısında vahiy tarihi şu şekilde görülür:
+
+    İnsanlık boyunca peygamberler gönderilmiştir
+
+    Mesajın özü tevhidtir
+
+    Son vahiy bu çizginin devamı olarak gelir
+
+    Bu nedenle Kur’an, önceki vahiy geleneklerini tamamen reddetmez;
+    onların ilahi kökenini kabul eder, fakat zamanla yorumların değişmiş olabileceğini de söyler.
+
+    Bu yüzden vahiy tarihinin özü tek bir çağrıda birleşir:
+
+    Allah’a yönelin ve hakikati tanıyın.
       
     “Ve hatırlayın sizden ahdinizi almıştık ve Sina Dağı’nın arşa çıkan yüksekliğini üzerinize kaldırmıştık: “Size verdiğimize sımsıkı sarılın ve onda olanı ibret alın: Umulur ki Allah’tan korkarsınız.” demiştik.” : Bakara 63  
       
@@ -3561,19 +3905,23 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 83. **Allah’ın dininden başkasını mı arıyorlar? Halbuki göklerde ve yerde olan bütün canlılar isteyerek ve istemeyerek O’nun iradesine boyun eğmiş, İslam’ı kabul etmişler ve hepsi O’na döndürüleceklerdir.**  
       
       
-    Bu anlatı, ne sırf bir kitaptan alınmıştır, ne sadece ağızdan dökülen sözlerden ibarettir. Bu anlatı, insanın ta yüreğine yazılmış, yıldızların arasından gelen bir çağrıdır. İsmi: İslam. Anlamı: Boyun eğmek, teslim olmak. Ama öyle pasif bir kabulleniş değil bu, evrenin özüne uygun bir duruş. İnsanı, toprağı, göğü bir hizaya sokan bir hakikat…  
+    Bu anlatı, ne sırf bir kitaptan alınmıştır, ne sadece ağızdan dökülen sözlerden ibarettir. Bu anlatı, insanın ta yüreğine yazılmış, yıldızların arasından gelen bir çağrıdır. 
+    
+    İslam. 
+    
+    Anlamı: Boyun eğmek, teslim olmak. Ama öyle pasif bir kabulleniş değil bu, evrenin özüne uygun bir duruş. İnsanı, toprağı, göğü bir hizaya sokan bir hakikat…  
       
     “Allah’ın dininden başkasını mı arıyorlar?” diye sorar bir ses. Bu, bozkırın ortasında yankılanan bir çobanın haykırışı gibi değil; bu, dağlara kazınmış, gökyüzüne yazılmış bir sorudur. Çünkü o din, ne bir kavmin malıdır ne de bir çağın sınırındadır. O din, gökyüzünün mavisi, toprağın bereketi gibidir – her yere sinmiş, her kalbe dokunmuş.  
       
     İslam der ki: Ey insan, sen zaten yaratıldığında teslim oldun. Nefes aldın, gözlerini açtın, suyu sevdin, gölgeyi aradın… İşte bunların hepsi teslimiyettir. İrade ne kadar kıvrılsa da, kalp ne kadar eğrilse de, her şey eninde sonunda O’na döner.  
       
-    Ama sonra bir sis çöküyor insanın iç dünyasına. Şüphe, kin, inat… İşte o zaman kalpte bir hastalık beliriyor. Kur’an der ki: “Kalplerinde hastalık vardır.” Bu hastalık öyle bir şeydir ki, adam bakar ama göremez, duyar ama anlamaz. Dağlara, yıldızlara, akan suya bakan bir adam düşünün – ama hiçbir şey anlamaz. Çünkü kalbi kördür.  
+    Ama sonra bir sis çöküyor insanın iç dünyasına. Şüphe, kin, inat… İşte o zaman kalpte bir hastalık beliriyor. Kur’an der ki: “Kalplerinde hastalık vardır.” Bu hastalık öyle bir şeydir ki, adam bakar ama göremez, duyar ama anlamaz. Dağlara, yıldızlara, akan suya bakan bir adam düşünün – ama hiçbir şey anlamaz. Çünkü gözleri, kalbi kördür.  
       
     Yargı sapkınlığıdır bu; apaçık olanı inkâr etmenin adıdır. Ama gerçek, bir gün her sesi bastırır. İnsan ne kadar kaçarsa kaçsın, eninde sonunda boyun eğmek zorundadır. Çünkü Allah’ın varlığı, çınlayan bir hakikattir – ne susturulur ne de inkârla silinir.  
       
     “Tanrı’nın sevgisi, doğanın çevresi gibi kaçınılmazdır.” Yağmur gibi iner üstüne. Gölgesini her yere serer. Dağın yamaçlarına, çölün susuzluğuna, yetimin başına… Allah’ın rahmeti böyledir işte – gözle görülmez ama hissedilir.  
       
-    Doğa bile O’na secde eder. Güneş doğarken bir dua eder gibi doğar. Ağaç yaprağını dökerken sessizce bir teslimiyet gösterir. Ya insan? İnsan da o düzene katılmak zorundadır. Çünkü uyumadan yaşamaz, solumadan duramaz. Bu düzen, Allah’ın düzenidir.  
+    Doğa bile O’na secde eder. Güneş doğarken dua eder gibi doğar. Ağaç yaprağını dökerken sessizce bir teslimiyet gösterir. Ya insan? İnsan da o düzene katılmak zorundadır. Çünkü uyumadan yaşamaz, solumadan duramaz. Bu düzen/kader, Allah’ın düzenidir.  
       
     İslam ne garip bir öğreti sunar, ne de zorlayıcı bir yol. O, zaten insanın kalbine yazılmıştır. Fıtrat der buna Kur’an. İnsan doğası… Yani, iyiliği tanıyan, adaleti isteyen, merhameti özleyen bir yapıdır bu. Ve İslam, o yapının yol haritasıdır.  
       
@@ -3587,7 +3935,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Yani kardeşim, bu dinin çağrısı öyle uzakta değil. O çağrı, insanın tam kalbindedir. Kalbini dinlersen, duyarsın. Çünkü o ses, yaratıldığın günden beri seninle konuşuyor.  
       
-      
+    "O halde yüzünü sabit ve hakikî olarak îmâna çevir: Allah’ın eserini/yapıtını, O’nun insanları yarattığı örneğe/fıtrata göre sabit kıl: Allah’ın yaptığı işte hiçbir değişiklik olmasın. İşte standart din budur; fakat insanların çoğu anlamazlar." : Rum 30  
+
+    "Kesin olarak iman edenler için yeryüzünde âyetler vardır.
+    Kendi benliğinizde de olduğu gibi: Hala bakıp görmeyecek misiniz?" : Zariyat 20-21
+
+    Kuran'a göre, Tevhid yolları (peygamberlerin mesajı) aynı tepeye çıkar; şirk yolları (Allah'a ortak koşma) çıkmaz sokaktır. Bu ayrım, hakikat ve batıl arasındaki sınırı korumak için elzemdir.
+
+    Bu ayet, İslam'ın evrensel bir teslimiyet hali olduğunu ilan eder. Kabul ölçütü, soy veya mezhep değil; Allah'a bilinçli teslimiyettir.
+
+    "Ey insanlık! Biz sizi bir erkek ve bir dişi bir çiftten yarattık ve birbirinizi hor görmeyesiniz, birbirinizi tanıyasınız diye sizi milletlere ve kabilelere ayırdık. Muhakkak ki Allah katında en üstün olanınız, takvaca en üstün olanınızdır. Allah, her şeyi bilendir ve her şeyden haberdardır." : Hucurat 13
       
     
 84. **De ki: “Biz Allah’a, bize indirilene, İbrahim’e, İsmail’e, İshak’a, Yakub’a ve torunlarına indirilene, Musa’ya, İsa’ya ve peygamberlere Rablerinden verilen kitaplara inandık: Biz onların arasında hiçbir ayrım yapmayız ve biz İslam’da Allah’a boyun eğeriz.”**  
@@ -3608,11 +3965,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Tevhid der buna eskiler; Allah’ın birliği… Bu, Hz. İbrahim’in dağ başlarında aradığı, Hz. Musa’nın denizlere karşı haykırdığı, Hz. İsa’nın mazlumların gözlerine anlattığı ve son olarak Hz. Muhammed’in insanlığa yeniden duyurduğu hakikattir.  
       
-    “Hakikat birdir,” der metin. Aynen öyle. Gök nasıl birse, su nasıl bir kaynaktan doğuyorsa, hakikat de öyledir. Bölünmez, değişmez, yıpranmaz. Bütün yollar aynı tepeye çıkar. Dinler değişse de, gönderilen peygamberler farklı kavimlere seslense de, hepsinin parmakları aynı yıldızı gösterir.  
+    “Hakikat birdir,” der metin. Aynen öyle. Gök nasıl birse, su nasıl bir kaynaktan doğuyorsa, hakikat de öyledir. Bölünmez, değişmez, yıpranmaz. Bütün yollar aynı tepeye çıkar. Dinler değişse de, gönderilen peygamberler farklı kavimlere seslense de, hepsi aynı hedefi gösterir.  
       
     Teslim olmak… Ama öyle bir teslimiyet ki, zincirlerle değil; sevinçle, özlemle, bilinçle yapılan bir teslimiyet.  
       
-    İslam, işte o duruşun adı. Bir dağın gölgesinde diz çöküp toprağa dokunmak gibi. Rüzgârın getirdiği haberleri kulak verip yola çıkmak gibi.  
+    İslam, işte o duruşun adı. Bir dağın gölgesinde diz çöküp toprağa dokunmak gibi. Rüzgârın getirdiği haberlere kulak verip yola çıkmak gibi.  
       
     İnsana düşen, Allah’ın kurduğu düzene katılmak. Güneş nasıl doğuyorsa, su nasıl akıyorsa, insan da Allah’ın yoluna yönelecek. Doğaya, tarihe, vahiye uyarak yaşayacak. Çünkü bu teslimiyet, yaratılışa ihanet değil; yaratılışla barışmaktır.  
       
@@ -3661,17 +4018,17 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Bir adam, neye kıymet veriyorsa, sadakası da onunla olur. Kiminin bir altını vardır, veremez. Kiminin bir saati vardır, paylaşamaz. Kiminin de bir sevgisi vardır, saklar. Ama sadaka, işte tam burada başlar.  
     En kıymetli olanı verir insan.  
-    Bir çiftçinin yıllarca beklediği hasadı, bir annenin çocuğuna ayırdığı son lokmayı, bir gencin ömründen kopardığı bir anı… İnsan ne verirse, yüreğinden vermeli. Çünkü gerçek sadaka, insanın en sevdiğini bağışlamasıdır.  
+    Bir çiftçinin aylarca/yıllarca beklediği hasadı, bir annenin çocuğuna ayırdığı son lokmayı, bir gencin ömründen kopardığı bir anı… İnsan ne verirse, yüreğinden vermeli. Çünkü gerçek sadaka, insanın en sevdiğini bağışlamasıdır.  
       
     Bir dere vardır, kayadan fışkırır, taşlara çarpar, ovaya ulaşır. Sadaka da öyledir. Küçük bir kaynak gibi başlar, büyür, genişler, bereket olur. Bu yolda dört durak vardır:  
       
     a) Kendini Vermek  
       
-    İnsan kendini verdi mi, her şeyini vermiş olur. Bilgisini, emeğini, zamanını… Bir genç düşünsene, bilgisini hiç tanımadığı bir çocuğa öğretmek için uğraşıyor. Bir kadın, gecesini gündüzüne katmış, hasta komşusuna çorba pişiriyor. İşte bu, sadakanın en ince dokunuşudur.  
+    İnsan kendini verdi mi, her şeyini vermiş olur. Bilgisini, emeğini, zamanını… Bir genç düşünsene, bilgisini/deneyimini kullanarak hiç tanımadığı bir çocuğa öğretmek için uğraşıyor. Bir kadın, gecesini gündüzüne katmış, hasta komşusuna çorba pişiriyor. İşte bu, sadakanın en ince dokunuşudur.  
       
     b) Malını Vermek  
       
-    İnsan malını kolay kolay veremez. Ama kim ki sofrasını paylaşır, cebindekini bölüşür, o kişi Allah’a yürüyen yoldadır. Çünkü para, toprağın tuzu gibidir; fazlası acıtır ama gerektiği kadar olursa, her şeyi güzelleştirir.  
+    İnsan malını kolay kolay veremez. Ama kim ki sofrasını paylaşır, cebindekini bölüşür, o kişi Allah’a yürüyen yoldadır. Çünkü para, çorbanın tuzu gibidir; fazlası acıtır ama gerektiği kadar olursa, her şeyi güzelleştirir.  
       
     c) İtibarını Vermek  
       
@@ -3687,7 +4044,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Sadaka, kuru bir alışveriş değil, bir kalp işidir.  
     Veren büyür, alan şükreder.  
-    Bir çocuk açlığını unutur, bir yaşlı gözyaşını siler, bir toplum kardeş olur. Sadaka, şehirlerin duvarlarını değil, insanların arasındaki duvarları yıkar. Paylaşmak, bir ekmeği ikiye bölmek değil; iki yüreği birleştirmektir.  
+    Bir çocuk açlığını unutur, bir yaşlının gözyaşı silinir, bir toplum kardeş olur. Sadaka, şehirlerin duvarlarını değil, insanların arasındaki duvarları yıkar. Paylaşmak, bir ekmeği ikiye bölmek değil; iki yüreği birleştirmektir.  
       
     Sadaka, sadece altınla, parayla olmaz. Sadaka, bir tebessümdür, bir selamdır, bir merhamettir. Ve bazen, insan öyle bir an yaşar ki, bütün ömrünü bir avuç ışık gibi ortaya koyar. İşte o zaman, yeryüzü şahittir, gökyüzü duacıdır.  
       
@@ -3733,7 +4090,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Yalnızca bir yapıdan bahsetmez; bu, bir haykırıştır. Topraktan gelen, toprağa dönen insana hitap eden bir çağrıdır bu. O taşların arasında yalnızca dua yoktur; gözyaşı vardır, umut vardır, arayış vardır.  
       
-    Ve o ev… O ilk ev… Hz. İbrahim’in elleriyle, oğlu İsmail’in omuzlarıyla kuruldu. Her taşı, Allah’a duyulan sevdayla yerleştirildi. O duvarlar, yalnızca taş değildir; onlar bir imanın yankısıdır. Ve Mekke… O eski adıyla Bakka… Bütün savaşların, hırsların dışında tutulmuş bir yerdir. Orada silahlar susturulur, kinler diz çöker, çünkü orası Allah’ın evi sayılır.  
+    Ve o ev… O ilk ev… Hz. İbrahim’in elleriyle, oğlu İsmail’in omuzlarıyla kuruldu. Her taşı, Allah’a duyulan sevdayla yerleştirildi. O duvarlar, yalnızca taş değildir; onlar bir imanın yankısıdır. Ve Mekke… O eski adıyla Bakka… Bütün savaşların, hırsların dışında tutulmuş bir yerdir. Orada silahlar susturulur, kinler diz çöker, çünkü orası Allah’ın evi olarak anılır.  
       
     Makam-ı İbrahim… Orada durmuş İbrahim. Gözleri göğe dönük, elleri dua dolu. Orada durmuş ve bakmış göklere. Bir babanın duası, bir peygamberin inancı işlemiş oraya. Bugün oraya varan her insan, o dua yüklü taşın önünde başını eğer. O taşta bir iz değil, bir çağ var. Yüreklere dokunan bir vakit var.  
       
@@ -3792,7 +4149,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Çünkü ölüm bir kapıdır. Hep açık durur ama ne zaman içeri çağıracağı belli değildir. Ve bir insan nasıl yaşarsa, öyle ölür.  
       
-    Bu yüzden Müslümanlık sadece alınan abdest, kılınan namaz değildir. Müslümanlık bir yaşama biçimidir, bir tavır halidir. Tarlada saban sürerken de, çocuğuna sarılırken de, yalan söylememekte de Müslüman olmaktır.  
+    Bu yüzden Müslümanlık sadece alınan abdest, kılınan namaz değildir. Müslümanlık bir yaşama biçimidir, bir tavır halidir. Tarlada saban sürmekte de, çocuğuna sarılmak da, yalan söylememekte de Müslüman olmaktır.  
       
     Gerçek mümin, Allah’ın huzuruna giderken ne malıyla ne makamıyla gider. Sadece kalbindeki teslimiyetle gider. Ve işte o zaman, Mevlâ der ki: “Benim düşkün kulum, hoş geldin!”  
       
