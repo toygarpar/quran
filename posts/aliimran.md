@@ -4165,13 +4165,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 103. **Ve hep birlikte Allah’ın sizin için uzattığı ipe sımsıkı sarılın ve ayrılığa düşmeyin ve Allah’ın üzerinizdeki nimetini şükranla anın; çünkü siz düşmandınız ve O, kalplerinizi sevgiyle birleştirdi de O’nun lütfuyla kardeş oldunuz; ve siz ateş çukurunun eşiğinde idiniz de sizi ondan kurtardı. Allah size âyetlerini işte böyle açıklıyor: Hidayete eresiniz diye.**  
       
       
-    O çağrıyı duydunuz mu siz? Dağların içini oyan, rüzgârla dövüşen, yüreği toprak gibi geniş halkların içinden gelen o kadim çağrıyı? Kuran’ın kelamıyla, Medine’nin o kardeşliğe susamış topraklarında yankılanan sesiyle, “Allah’ın ipine sımsıkı sarılın, ayrılmayın” diyen o sözü?  
+    O çağrıyı duydunuz mu siz? Dağların içini oyan, rüzgârla dövüşen, yüreği toprak/yeryüzü gibi geniş halkların içinden gelen o kadim çağrıyı? Kuran’ın kelamıyla, Medine’nin o kardeşliğe susamış topraklarında yankılanan sesiyle, “Allah’ın ipine sımsıkı sarılın, ayrılmayın” diyen o sözü?  
       
-    Eskiden Yesrib derlerdi o kente. Her taşının ardında bir kin, her duvarının gölgesinde bir düşmanlık pusuda beklerdi. Kabile kabile ayrılmış, kardeşin kardeşe küstüğü, dostun düşmana dönüştüğü zamanlardı. Ama bir gün… Bir gün bir adam geldi. Çölü arkasına almış, yüreğinde yalnızca hakikati taşıyan bir adam. Güneşle konuşmuş, taşla sırdaş olmuş, yıldızlarla yürümüş Muhammed (s.a.v.). Ve Yesrib’in toprağı o gün değişti. Dağlar eğildi, hurma ağaçları başlarını dikti, insanlar ellerini uzattı birbirine. Yesrib artık Medine idi. Kardeşlik yurdu, ışığın kenti…  
+    Eskiden Yesrib derlerdi o kente. Her taşının ardında bir kin, her duvarının gölgesinde bir düşmanlık pusuda beklerdi. Kabile kabile ayrılmış, kardeşin kardeşe küstüğü, dostun düşmana dönüştüğü zamanlardı. Ama bir gün… Bir gün bir adam geldi. Çölü arkasına almış, yüreğinde yalnızca hakikati taşıyan bir adam. Ve Yesrib’in toprağı o gün değişti. Dağlar eğildi, hurma ağaçları başlarını dikti, insanlar ellerini uzattı birbirine. Yesrib artık Medine idi. Kardeşlik yurdu, ışığın kenti…  
       
-    Kuran o gün sadece bir kitap değil, bir kavimlerin hikayesiydi. Her ayet, bir yıkıntının üstüne örülen bir barış duvarıydı. “Allah sizi ateş çukurunun kıyısındayken çekip aldı” der ayet. Gözünüzde getirin o çukuru: kinle kazılmış, kibirle derinleştirilmiş, ateşle tutuşturulmuş bir uçurum… İnsanlar oradaydı, birbirini itekliyordu uçuruma. Ama bir rahmet geldi, bir kelam indi gökyüzünden. Kardeşlik örüldü taş taş, gönül gönüle.  
+    Kuran o gün sadece bir kitap değil, her ayetiyle, bir yıkıntının üstüne örülen bir barış duvarıydı. “Allah sizi ateş çukurunun kıyısındayken çekip aldı” der ayet. Gözünüzde getirin o çukuru: kinle kazılmış, kibirle derinleştirilmiş, ateşle tutuşturulmuş bir uçurum… İnsanlar oradaydı, birbirini itekliyordu uçuruma. Ama bir rahmet geldi, bir kelam indi gökyüzünden. Kardeşlik örüldü taş taş, gönülden gönüle.  
       
-    Bakın şimdi etrafınıza… Modern zamanın kentlerine, çelik kulelerine, cam gökdelenlerine… Görüyor musunuz hâlâ o eski çukur orada. Kinle besleniyor, ayrılıkla derinleşiyor. Birbirini tanımayan kalpler, yan yana yaşasa da birbirine uzak kentler… Ama hâlâ umut var. Çünkü Medine bir masal değil, bir halkın yeniden doğuşudur. Çünkü o şehir, birliğin, dayanışmanın ve adaletin kanlı canlı toprağında büyümüş bir hakikattir.  
+    Bakın şimdi etrafınıza… Modern zamanın kentlerine, çelik kulelerine, cam gökdelenlerine… Görüyor musunuz hâlâ o eski çukur orada. Kinle besleniyor, ayrılıkla derinleşiyor. Birbirini tanımayan kalpler, yan yana yaşasa da birbirine uzak kentler… Ama hâlâ umut var. Çünkü Medine bir masal değil, bir halkın yeniden doğuşudur. Çünkü o şehir, birliğin, dayanışmanın ve adaletin toprağında büyümüş bir hakikattir.  
       
     Gelin şimdi biz de o soruya cevap verelim: Yeni ve daha büyük bir Medine kurabilir miyiz? Kurarız! Eğer yeniden hatırlarsak Allah’ın ipini, el ele tutarsak kardeşliğin ucundan… Eğer içimizdeki kini çölde bırakır, birlikte yürümeyi öğrenirsek. Kurarız! Toprak gibi sabırlı, su gibi berrak, rüzgâr gibi özgür olursak.  
       
@@ -4189,7 +4189,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Bir topluluk olacak, diyor ayet. Pasif değil, sessiz değil… Ayağa kalkacak, zalimin gözünün içine bakacak, “Yeter!” diyecek. O topluluk, iyiliği örgütleyen bir topluluktur. Onlar, insanların karanlıktan çıkışına rehberlik edenlerdir. İşte böyle bir topluluk, hem bu dünyada hem öbür tarafta huzura erecek. Çünkü onlar sadece kendisi için değil, tüm insanlık için yaşar.  
       
-    Ve bir şey daha söyler bu ayet… Felah der. Mutluluk… Ama öyle masallarda anlatılan mutluluk değil bu. Ne sadece altınla olur, ne de sarayla. Felah dediğin, gece yatağa aç girmeyen bir çocuğun gülümsemesidir. Bir kadının korkmadan yürüyebildiği sokaktır. Bir köylünün yağmur duasıyla değil, adaletle ürün aldığı ovadır.  
+    Ve bir şey daha söyler bu ayet… Felah der. Mutluluk… Ama öyle masallarda anlatılan mutluluk değil bu. Ne sadece altınla olur, ne de sarayla. Felah dediğin, gece yatağa aç girmeyen bir çocuğun gülümsemesidir. Bir kadının korkmadan yürüyebildiği sokaktır. Bir köylünün yağmur duasıyla değil, adaletle ürününün karşılıgını aldığı ovadır.  
       
     Eğer toplum, iyiliği ararsa, birbirini gözetirse, adaleti kendi eliyle kurarsa, işte o zaman gerçek bir mutluluk doğar. Ruhu da huzur bulur, toprağı da. Yoksa ne olur? Azab gelir. Acı… Ruhun yanışı, kalbin kırılışı, toplumun çürümesidir bu.  
       
@@ -4223,7 +4223,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     İnsanın yüzü vardır ya hani… Herkesin bir yüzü. Ama yalnızca aynada görülen değil. İçinde ne varsa, ruhunun neyle beslendiği, hangi yoldan gittiği, neye secde ettiği, işte onun izi. Gün gelecek, o yüz hesap verecek.  
       
-    Bak, Kuran söylüyor, Ali İmran Suresi’nde.  
+    Bakın, Kuran söylüyor, Ali İmran Suresi’nde.  
       
     “O gün bazı yüzler bembeyaz, bazıları kapkara olacak.”  
       
@@ -4237,7 +4237,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Kapkara yüz… Öyle kolayca kara olmaz bir yüz. Önce iç karanlığa batar. Gerçeği bilir ama görmezden gelir. Hakikatin üstünü örter, çıkarını öne koyar. İşte o zaman kararır yavaş yavaş. Ve gün gelir, artık yüz değil, gölge olur.  
       
-    Kuran’da geçen “yüz” kelimesi sadece sima değil. O bir yansıma. Kimsenin gizleyemeyeceği bir ayna. Ahirette maskeler düşer, yüz, insanın içi olur. Orada artık ne söz geçer, ne bahane.  
+    Kuran’da geçen “yüz” kelimesi sadece sima değil. O bir yansıma. Kimsenin gizleyemeyeceği bir ayna. Ahirette maskeler düşer, yüz, insanın içi olur. Orada artık ne bir söz geçer, ne de mazaret/bahane.  
       
     Bu ayet, Allah’ın terazisini gösterir bize. O gün kimseye haksızlık edilmez. Kim nurun peşinden gittiyse, kim imanını koruduysa, o nur içinde kalır. Ama kim sırt çevirdiyse, o karanlığa düşer. Ve bu, rastgele bir son değildir. Herkes kendi elleriyle hazırlar o günü.  
       
@@ -4257,10 +4257,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Bu hayat bir sınavdır. Bu sınavda neyi seçtiysen, yarın yüzün onu gösterecek.  
       
-    Ve kimse kimseye bakmayacak o gün. Herkes yalnızca kendine.  
+    Ve kimse kimseye bakmayacak o gün. Herkes yalnızca kendine ve yüzüne bakacak, kendi derdinde olacak.  
       
-    Ve yüzüne…  
-      
+    
       
     
 108. **Bunlar, Allah’ın âyetleridir. Biz onları sana hak olarak okuyoruz: Ve Allah, yarattıklarından hiçbirine zulmetmez.**  
@@ -4271,13 +4270,11 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Allah’ın meleklerle birlikte bulutların kubbesinden kendilerine gelmesini ve meselenin böylece çözülmesini mi bekliyorlar? Halbuki tüm işler/sorunlar/sorular Allah’a hüküm için geri döner.: Bakara 210  
       
     
-110. **Sizler, insanlar için çıkarılmış, iyiliği emreden, kötülükten sakındıran ve Allah’a inanan en hayırlı ümmetlersiniz. Keşke Kitap Ehli iman etmiş olsaydı bu onlar için daha hayırlı olurdu: Onlardan iman eden de vardır, fakat çoğu yoldan çıkmış fasıklardır.**  
+110. **Sizler, insanlar için çıkarılmış / insanlık için yaratılmış/evrim geçirilmiş, iyiliği emreden, kötülükten sakındıran ve Allah’a inanan en hayırlı ümmetlersiniz. Keşke Kitap Ehli iman etmiş olsaydı bu onlar için daha hayırlı olurdu: Onlardan iman eden de vardır, fakat çoğu yoldan çıkmış fasıklardır/çoğu sapkın haddini aşanlardır.**  
       
       
-    Siz, insanlar için çıkarılmış en iyi topluluksunuz…  
-      
-    Ayette böyle söylenir. Sözü sade ama anlamı büyük. Çünkü bu söz, bir topluluğun alnına yazılmış büyük bir görevdir. Öyle bir görev ki, yalnızca kendin için değil, başkası için de yaşamanı ister.  
-    Bak şimdi, bu ayette üç şey var, üç temel taş:  
+    Bu ayet, bir topluluğun alnına yazılmış büyük bir görevdir. Öyle bir görev ki, yalnızca kendin için değil, başkası için de yaşamanı ister.  
+    Bakın şimdi, bu ayette üç şey var, üç temel taş:  
     İyiliği emretmek,  
     Kötülüğü engellemek,  
     Ve Allah’a inanmak.  
@@ -4286,28 +4283,28 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Bu ayetin dili bir övgü dili değildir yalnızca. Aynı zamanda bir sorumluluk yükler. “İyiliği emret” derken, susma demiyor. “Kötülüğü engelle” derken, sırtını dönme demiyor. “Allah’a inan” derken, yalnızca dilinle değil, yüreğinle ve davranışınla inan, diyor.  
       
-    İslam dediğin sadece bir ritüel değil. O bir duruştur. O bir yoldur. Ve o yol, sadece kendini değil, tüm insanlığı düşünerek yürünür.  
+    İslam dediğin sadece bir ritüel değil. O bir duruştur/tavırdır. O bir yoldur. Ve o yol, sadece kendini değil, tüm insanlığı düşünerek yürünür.  
       
-    İyilik… O, yalnızca bir hareket değil. O, bir yönelmedir. İnsan neye bakarsa, oraya yürür. Eğer iyiliğe bakarsa, adalete yönelirse, işte o zaman hayat bir anlam kazanır.  
+    İyilik… O, yalnızca bir davranış değil. O, bir yönelmedir. İnsan neye bakarsa, neyi ararsa, oraya yürür. Eğer iyiliğe bakarsa, adalete yönelirse, işte o zaman hayat bir anlam kazanır.  
       
     Kötülük… O da bulaşıcıdır. Göz yumarsan büyür, susarsan yayılır. Bu yüzden “kötülüğü engelle” diyor ayet. “Yanlışın karşısında dur!”  
       
     Ve sonra iman…  
       
-    İnanmak, bir söz değildir yalnız. O, davranışla tamamlanır. İnanıyorsan, o inancı taşımak zorundasın. Adımına, sözüne, duruşuna yansıtmak zorundasın.  
+    İnanmak, bir söz değildir yalnız. O, davranışla tamamlanır. İnanıyorsan, o inancı taşımak zorundasın. Adımına, sözüne, duruşuna ve eylemine yansıtmak zorundasın.  
       
     Kuran der ki, eğer Kitap Ehli iman etseydi, bu onların hayrına olurdu. Demek ki bu çağrı sadece bir topluma değil, herkese. Çünkü İslam dediğin bir millete değil, bütün insanlığa seslenir. Irka bakmaz, soya sop’a bakmaz. Kalbine ve niyetine bakar.  
       
-    Ama bazıları, bile bile gerçeğin üstünü örttü. Çünkü hakikat zor gelir bazılarına. Çünkü hakikat, alışkanlıkları bozar, düzeni bozar. Bu yüzden gerçeğe sırt dönen çoktur. Ama az da olsa inanan vardır. Ve o az, işte bir milletin yüreğidir.  
+    Ama bazıları, bile bile gerçeğin üstünü örttü. Çünkü hakikat zor gelir bazılarına. Çünkü hakikat, alışkanlıkları bozar, düzeni bozar. Bu yüzden gerçeğe sırt dönen çoktur. Ama az da olsa inanan vardır. Ve o azınlık, işte insanlığın yüreğidir.  
       
-    Müslüman dediğin, yalnızca kendi derdine düşmez. O, komşusunu da düşünür, uzağındaki açın da derdine yanar. Çünkü onun imanı, yalnız başına ibadetle tamam olmaz. Onun imanı, toplumla tamamlanır. Topluma adalet götürmekle, insanı insan bilmekle tamamlanır.  
+    Müslüman dediğin, yalnızca kendi derdine düşmez. O, komşusunu da düşünür, uzağındaki açın da derdine yanar. Çünkü onun imanı, yalnız başına ibadetle tamam olmaz. Onun imanı, amelle tamamlanır. Topluma adalet götürmekle, insanı insan bilmekle tamamlanır.  
       
     Bu çağrının özü budur:  
     Dünyada adalet için yaşa.  
     Karanlığa göz yumma.  
     İyilikten elini çekme.  
     İnandığın yolda dimdik dur.  
-    Ve bil ki, bu yol kolay değildir. Ama sonunda zaferdir. Zafer, saltanat demek değildir. Zafer, yüzünün aklığıdır. Kalbinin huzurudur. Ve Allah’ın razı olmasıdır.  
+    Ve bil ki, bu yol kolay değildir. Ama sonunda zafer vardır. Zafer, saltanat demek değildir. Zafer, yüzünün aklığıdır. Kalbinin huzurudur. Ve Allah’ın razı olmasıdır.  
     İşte bu yüzden denmiş:  
     “Siz, insanlar için çıkarılmış en iyi topluluksunuz…”  
     Bu, bir şeref değil yalnızca. Bir uyarıdır.  
@@ -4320,7 +4317,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 111. **Önemsiz bir rahatsızlık dışında size zarar vermezler; sizinle savaşmaya çıkarlarsa, size arkalarını dönerler ve hiçbir yardım göremezler.**  
       
     
-112. **Allah’tan ve insanlardan bir koruma altında olmadıkça, nerede bulunurlarsa bulunsunlar üzerlerine bir çadır gibi bir utanç perdesi çekilir; Allah’tan bir gazaba uğrarlar ve üzerlerine bir yoksulluk/yoksunluk/mahrumiyet çadırı kurulur. Bu, onların Allah’ın âyetlerini yalanlamaları ve haksız yere peygamberleri öldürmelerinden dolayıdır; çünkü isyan ettiler ve haddi aştılar.**  
+112. **Allah’tan ve insanlardan bir koruma/ahit altında olmadıkça, nerede bulunurlarsa bulunsunlar üzerlerine bir çadır gibi bir utanç perdesi çekilir; Allah’tan bir gazaba uğrarlar/Allah'tan gazabı üzerlerine çekerler ve üzerlerine bir yoksulluk/yoksunluk/mahrumiyet çadırı kurulur. Bu, onların Allah’ın âyetlerini yalanlamaları ve haksız yere/hakka aykırı olarak peygamberleri öldürmelerinden dolayıdır; çünkü isyan ettiler ve haddi aştılar.**  
       
     Onlar, nerede olurlarsa olsunlar, üzerlerine utanç çadırı kurulmuştur…    
     Kur’an böyle söyler. Ağır bir söz bu. Bir milletin başına çökmüş kara bir bulut gibi. Bir yoksulluğun, bir yalnızlığın, bir alçalışın resmi.    
@@ -4335,11 +4332,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bu, ruhun yoksullaşmasıdır.    
     İnancı kaybetmişsin, vicdanı satmışsın, merhameti unutmuşsun.    
     İşte o zaman, bu çadır gelir oturur hayatının tam ortasına.    
-    Yine de bazen bir koruma olur.    
-    Allah’tan ya da insanlardan gelen bir ahit, bir söz.    
-    Ama o da kalıcı değildir.    
-    Yalnızca kısa bir nefeslik…    
-    Ve bu da gururu kırar insanın, çünkü başkasının acımasıyla ayakta kalırsın.    
+        
     Yaşadığı bu alçalmanın, bu düşkünlüğün sebebi kendi elleriyle ektiği kötülüktür.    
     Ve her kötülüğün toprağı bir gün ürün verir.    
     O ürün ya bir utanç olur, ya bir felaket.    
@@ -4385,13 +4378,13 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bak şimdi Kitap Ehli’ne…    
     Bir kısmı karanlığın peşine düşmüş, ama içlerinden bir grup var ki;  gecenin en derin vaktinde uyanmış,  başını secdeye koymuş,  Allah’ın ayetlerini okumuş durmaksızın.    
     Yalnız başına, rüzgarın sesiyle,  yıldızların altında Allah’a yönelmiş.  İşte bu insanlar, hakikatin susuz toprağında yeşeren bir çiçek gibidir.    
-    Onlar doğruya dururlar.  Haksızlığa yüz çevirmezler.  Eğilmez omuzları yalanın karşısında.    
+    Onlar doğru için dik dururlar.  Haksızlığa yüz çevirmezler.  Eğilmez omuzları yalanın karşısında.    
     Onlar, adaletin izini sürer,  merhametin dilini konuşurlar.    
     İslam’ın bakışı dardır sanan yanılır.    
-    Zira Kur’an,  kim olursa olsun,  eğer ki Allah’a samimi bir yürekle yönelmişse, ona değer verir.  Ne adın, ne etiketin,  yalnızca niyetindir kıymetli olan.    
-    Gece boyu ibadet eden o insanlar,  sadece bir dinin değil, insanlığın ortak değeridir.  Secde ettiklerinde yere sadece alınlarını koymazlar, bütün kibirlerini, bütün arzularını da yere bırakırlar.  Ve böylece Allah’a en yakın oldukları anı yaşarlar.    
+    Zira Kur’an,  kim olursa olsun,  eğer ki Allah’a samimi bir yürekle yönelmişse, ona değer verir.  Ne adın, ne etiketin,  yalnızca niyetin ve amelindir kıymetli olan.    
+    Gece boyu secde eden o insanlar,  sadece bir dinin değil, insanlığın ortak değeridir.  Secde ettiklerinde yere sadece alınlarını koymazlar,bütün kibirlerini, bütün arzularını da yere bırakırlar.  Ve böylece Allah’a en yakın oldukları anı yaşarlar.    
     İşte bu yüzden,  bir halkı, bir topluluğu, bir inancı toptan yargılamak körlüktür. Kur’an, o körlüğü elinin tersiyle iter.  Ve der ki:    
-    Bak, hepsi bir değil.    
+    Bakın, hepsi bir değil.    
     Günümüz dünyasında,  insanlar birbirine sırt çevirmiş,  hoşgörü unutulmuş,  önyargı büyümüş.  Ama bu ayet, bir ışık yakar karanlığa.    
     Der ki:    
     İnsanlığı tek renge boyama.  Kalpleri oku.  İçtenliğe kulak ver.    
