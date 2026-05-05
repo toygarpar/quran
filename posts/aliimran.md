@@ -4411,15 +4411,16 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     O işler… o sahte harcamalar, o gösterişli sadakalar… insanın özünden kopmuş eliyle yaptığı işler. İçinde ne sevgi var, ne iman. Ne de bir başkasının yüreğine dokunma derdi. Sadece kendini kandıran, başkalarının gözüne girmek isteyen bir zavallılık var orada. O işlerin içi boş, yüreksiz, ruhsuz. Ve insan, o boşluğun bedelini öder. Ağır bir hesapla. Öyle bir hesap ki, ne para işler, ne de unvan.  
       
-    Bakarsın, adam dünyada parayla, şöhretle yıkanmış. Ama gönlü kurumuş, içi donmuş. İşte o don, o “ısırmış don”, tam buradadır. Bir gün gelir, yüreğini kavrar. Ne varsa elinde, hepsini siler. Çünkü o işler, Allah’ın terazisinde tartıldığında, eksik gelir. O işler, samimiyet yoksa, adalet yoksa, sadece kibir ve bencillikten doğmuşsa, tutmaz.  
+    Bakarsın, adam dünyada parayla, şöhretle yıkanmış. Ama gönlü kurumuş, içi donmuş.  Bir gün gelir, yüreğini kavrar. Ne varsa elinde, hepsini siler. Çünkü o işler, Allah’ın terazisinde tartıldığında, eksik gelir. O işler, samimiyet yoksa, adalet yoksa, sadece kibir ve bencillikten doğmuşsa, tutmaz.  
       
-    İnsan çoğu zaman başına geleni anlamaz, suçu dışarıda arar. Talihime küs der, Allah’ı sorgular. Oysa Allah zulmetmez. Zulmeden biziz. Kendi ruhumuza… kendi özümüze… kendi yolumuza. Kendi ellerimizle ektiğimizi biçeriz. Ektiğimiz neyse, onu buluruz.  
+    İnsan çoğu zaman başına geleni anlamaz, suçu dışarıda arar. Talihine küs der, Allah’ı sorgular. Oysa Allah zulmetmez. 
+    Zulmeden biziz. Kendi ruhumuza… kendi özümüze… kendi yolumuza. Kendi ellerimizle ektiğimizi biçeriz. Ektiğimiz neyse, onu buluruz.  
       
     O parlak, cafcaflı hayatlar var ya… içi kof, dışı cilalı. Rüzgar eser, savurur. Ama o rüzgar bir nimet değil, bir cezadır aslında. Gösterişin üstüne kurulmuş her şey, bir gün rezilliğe döner. Utanç getirir. Çünkü Allah’ın adaleti şaşmaz.  
       
     Kim ki sevgisiz verir, kim ki gösteriş için harcar, kim ki vicdanını susturup çıkarının peşine düşerse… işte o, en sonunda, o donmuş toprağın üstünde yalnız kalır. Ne sıcak kalır yanında, ne merhamet.  
       
-    İşte o zaman anlar insan. Ama geç olur. Çünkü hayat, sahtekârlığa uzun soluk vermez. Çünkü hakikat, eninde sonunda çıkar ortaya. Ve hakikat, öyle tokat gibi vurur ki, insan neye uğradığını bile anlamaz.  
+    İşte o zaman anlar insan. Ama geç olur. Çünkü hayat, sahtekârlığa uzun süre soluk vermez. Çünkü hakikat, eninde sonunda çıkar ortaya. Ve hakikat, öyle tokat gibi vurur ki, insan neye uğradığını bile anlamaz.  
       
     
 118. **Ey iman edenler! Kendi safından olmayanları yakınlığına alma: Onlar seni bozmaktan geri kalmayacaklardır. Onlar ancak senin mahvolmanı isterler: Kalplerinin gizlediği ise çok daha kötüdür. Eğer aklınız varsa, size âyetleri açıkladık.**  
@@ -4450,12 +4451,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     Uhud, sadece bir savaş değildi. Orada bir ümmet sınandı. Sabırla, acıyla, kanla… Allah’ın davası kolay değildi. Bedir’de gelen zafer, Uhud’da terbiye oldu. İtaat etmezsen, birlik olmazsan, zafer senden kaçar. Ama sebat edersen, Allah’ın adaleti seni yolda bırakmaz.  
       
-    Bu millet, o gün neyi kaybettiyse, sabrıyla onu yeniden kazandı. Uhud, bir zaferin değil, bir direnişin adıdır. Birliğin, teslimiyetin, hikmetin adıdır. Peygamber ve ümmeti, o gün belki kaybetti ama yıkılmadı. Çünkü hak üzere olanlar, düştükçe değil, kalktıkça büyür.  
+    Bu millet, o gün neyi kaybettiyse, sabrıyla onu yeniden kazandı. Uhud, bir zaferin değil, bir direnişin adıdır. Birliğin, teslimiyetin, hikmetin adıdır. Peygamber ve ümmeti, o gün belki kaybetti ama yıkılmadı. Çünkü hak üzere olanlar, zaman zaman düşşelerde, kalktıkça büyürler.  
     
 122. **Taraflarınızdan korkaklığa dalan iki grubu hatırlayın; ama Allah onların velisiydi ve mü’minler Allah’a tevekkül etmelidirler.**  
       
       
-    O savaşta, iki grup vardı ki, yürekleri bir an olsun sendeledi. Banu Salamah, Banu Harise… Bedir’in ardından gelen umutla doluydular ama Uhud’un sertliği karşısında yürekleri göğüs germekte zorlandı. Tereddüt ettiler. Gözleri döndü, adımları yavaşladı. Korku, insanı içerden kemiren bir şeydir.  
+    O savaşta, iki grup vardı ki, yürekleri bir an olsun sendeledi. Banu Salamah, Banu Harise… Bedir’in ardından gelen umutla doluydular ama Uhud’un sertliği karşısında yürekleri zorluğa göğüs germekte zorlandı. Tereddüt ettiler. Gözleri döndü, adımları yavaşladı. Korku, insanı içerden kemiren bir şeydir.  
       
     Ama o anda, Peygamber vardı orada. Sadece bir komutan değil, yürekleri dirilten bir önderdi. Sözüyle değil, haliyle… cesaretiyle… suskunluğundaki kararlılıkla… Onları tutup yerlerinden kaldırdı. Unutulmuş bir azmi hatırlattı onlara.  
       
@@ -4502,19 +4503,19 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
       
     İşte bu yüzden insan, Allah’ın yardımına umutla bakar ama boş durmaz. Yürür. Yorulur. Tutunur. İnancını eyleme döker. Çünkü yardım, ancak o zaman gelir.  
       
-    Ve kalbinde gerçek bir iman taşıyan şunu bilir: Allah’ın yardımı geç gelmez, eksik gelmez, yanlış hiç gelmez. Ama gelirken senin neyle sınandığını sorar. O soruya sabırla cevap veren kazanır.  
+    Ve kalbinde gerçek bir iman taşıyan şunu bilir: Allah’ın yardımı geç gelmez, eksik gelmez, yanlış hiç gelmez. Ama gelirken senin neyle sınandığına işaret eder. O sınava sabırla cevap veren kazanır.  
       
     Allah’ın yardımı bir işarettir. Onu gören, gözünü açar. Onu anlayan, yüreğini doğrultur. Ve o zaman, hiçbir güç, hiçbir zorluk, hiçbir fırtına mümini yolundan edemez.  
     
 127. **Kâfirlerden bir kısmının kökünü kesip atması veya onları rezilliğe maruz bırakması ve sonrasında amaçlarından hüsrana uğramış olarak geri çevrilmeleri içindir.**  
       
-    Onlar geldiler… Kibirle, öfkeyle, nefretle dolmuş yürekleriyle, Müslümanları toprağın altına gömeceklerini sanarak. San ki zafer ellerinde, kader avuçlarında. Ama bilmediler ki, kaderi yazan başkadır.  
+    Onlar geldiler… Kibirle, öfkeyle, nefretle dolmuş yürekleriyle, Müslümanları toprağın altına gömeceklerini sanarak. Sanki zafer ellerinde, kader avuçlarında. Ama bilemediler ki, yazgıyı İrade ve Planına göre kurgulayan başkadır.  
       
     Allah, o gün onların bir kısmını yere serdi. Hem de öyle bir indirdi ki, başları öne eğildi, gözleri yeri gördü. Yendiklerini sandıkları an, yenilmişlerin en büyüğü oldular. Amaçlarına varamadan döndüler; arkalarında utançla, içlerinde boşlukla.  
       
     Ve bak, o savaşta öyle bir vahşet sergilediler ki, insan olanın dili tutulur. Cesetleri parçaladılar, insanlıklarını toprağa gömdüler. Lâkin ne yapsalar da, o zulüm onların yakasına ebedi bir leke gibi yapıştı. Zalimlerin laneti, o günkü dağları aşarak tarihin iliklerine kadar işledi.  
       
-    Fakat kader öyle bir şeydir ki, bazen karanlığın içinden bir ışık doğar. O gün putlara secde edenlerden biri, Halid bin Velid, yıllar sonra İslam’ın kılıcı oldu. Önce düşman olarak geldi, sonra hakikatin elini tuttu. Mekke’nin fethinde önde yürüdü, Suriye’de, Irak’ta sancağı taşıdı. Bir zamanlar İslam’a karşı kalkan olan elleri, artık İslam için kalktı.  
+    Fakat yazgı öyle bir şeydir ki, bazen karanlığın içinden bir ışık doğar. O gün putlara secde edenlerden biri, Halid bin Velid, yıllar sonra İslam’ın kılıcı oldu. Önce düşman olarak geldi, sonra hakikatin elini tuttu. Mekke’nin fethinde önde yürüdü, Suriye’de, Irak’ta sancağı taşıdı. Bir zamanlar İslam’a karşı kalkan olan elleri, artık İslam için kalktı.  
       
     İşte bu, Allah’ın hükmüdür. Bazısını küçük düşürür, bazısını hakikate yöneltir. Kiminin içindeki kini ifşa eder, kiminin içindeki imanı ortaya çıkarır. Ve sonunda anlarız ki, ne kin baki kalır, ne kibir… Geriye sadece Allah’ın muradı kalır, o da her daim galiptir.  
       
@@ -4560,7 +4561,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Uhud, müminin aklında her zaman diri durmalı.  
     Çünkü her hata, bir ders; her yara, bir uyarıdır.  
-    Ve her uyarı, eğer yürek varsa, yeni bir doğruluğun, yeni bir yolun kapısıdır.
+    Ve her uyarı, eğer yürek varsa, doğruluk için yeni bir yolun kapısıdır.
 
 
 
@@ -4616,21 +4617,21 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Önceki ayette Allah’ın affı vardı.  
     Düşman dediğimiz kişiye bile kapısını açık tutan bir merhamet...  
     Bunu bilerek yaşamak varken, biz ne yapıyoruz?  
-    Faizle kardeşimizi eziyoruz, bir lokma ekmeği bile borç yazıyoruz, kazancı büyütüp yüreğimizi küçültüyoruz.
+    Faizle kardeşimizi eziyoruz, bir lokma ekmeği bile borç yazıyoruz, haksız kazancı büyütüp yüreğimizi küçültüyoruz.
 
-    Oysa faiz…  ne cömertlik barındırır içinde,  ne fedakârlık, ne de insaf.  
+    Oysa riba…  ne cömertlik barındırır içinde,  ne fedakârlık, ne de insaf.  
     Bir yanda çalışanın alın teri, öbür yanda oturduğu yerden kazananın kibri, kendisini dokunulmaz zannettiği fanus dünyası.
 
     Mümin, malına güvenmez. Gönlüne bakar.  O, elindekini dağıtandır; çünkü bilir ki, dünya malı akar, geçer,  
     bugün var, yarın yok.  
     Kalan tek şey, Allah için verilen, bir başkasının duasında yankılanan iyiliktir.
 
-    Faiz, toprağın kurumasıdır.  
+    Riba, toprağın kurumasıdır.  
     Cömertlik, toprağa su dökmek gibi...  
     Birinde hayat biter, öbüründe yeşerir.  
     Birinde kardeşlik bozulur, öbüründe güçlenir.
 
-    Ey insan, eğer Allah dkendine düşman olanı bile affederse, sen neye güvenerek bencillik edersin?  
+    Ey insan, eğer Allah kendine düşman olanı bile affederse, sen neye güvenerek bencillik edersin?  
     İyilikle var ol, paylaşarak yüksel. Allah’a yakın olan, kulunu ezerek değil, onunla beraber yürüyerek yücelir.
 
     Allah’tan kork!  
@@ -4723,7 +4724,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     İnsanı insan eden odur.  
     O yüzden salih insan, kendi acısını da bilir, başkasınınkini de unutmadan yaşar.
 
-    Kendine de kolay geçmez.  
+    Kendine de kolayı seçmez.  
     “Ben oldum” demez.  
     Dönüp dönüp aynaya bakar:  
     “Ben nerede hata ettim?”  
@@ -4735,7 +4736,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     O’nun sevgisi, yoksulun yüreğini okşayan, bir yetimin başını sıvazlayan, bir yanlışta elini geri çekmeyen kulun üzerindedir.
 
     İşte o adam ve kadın – o salih insan –  her gün, her adımda,  Allah’ın hoşnutluğunu arar.  
-    Ve ne zaman verir, affeder, sabrederse...  cennet biraz daha yaklaşır yere.
+    Ve ne zaman verir, affeder, sabrederse...  cennet biraz daha yaklaşır.
 
 
 
@@ -4843,7 +4844,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Kaybetmiş de olabiliriz bir savaşı.  
     Ama yılmak bize yakışmaz.  
     İnanan bir yürek,  
-    toprağın altına da girse umutla çarpar.
+    zorluk altına da girse umutla çarpar.
 
     İman yalnızca bir söz değil.  
     İman,  
@@ -4879,7 +4880,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
 
-138. ***İşte bu, insanlar için apaçık bir beyan, Allah’tan korkanlar için bir hidayet ve öğüttür.***
+138. **İşte bu, insanlar için apaçık bir beyan, Allah’tan korkanlar için bir hidayet ve öğüttür.**
 
 
 139. **O halde cesaretinizi yitirmeyin ve umutsuzluğa kapılmayın: Çünkü eğer imanda samimiyseniz, bunları kaybetmemekte ustalık kazanmanız gerekir.**
@@ -4899,7 +4900,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Eğer yüreklerde bir tortu varsa, o tortu mücadeleyle silinir. İman da böyledir; acıyla, dirençle, sabırla billurlaşır. Uhud, bu milletin hem acısı hem temizliğidir.
 
-    Ve unutmayın: Kötülüğün ipi ne kadar uzunsa, o kadar dolanır kendi boynuna. Putperestler, Uhud’un sonunda öyle bir taşkınlıkla, öyle bir vahşetle coştular ki, o andan itibaren kendi çöküşlerini başlattılar. Cesetleri parçalayarak, kendilerini tarihin lanetine yazdılar. O zulmü gören nice insan, kalbini hakka çevirdi. İnkârın kökü o gün kurudu, çöküş o günden başladı.
+    Ve unutmayın: Kötülüğün ipi ne kadar uzunsa, o kadar dolanır kendi boynuna. Putperestler/Müşrikler, Uhud’un sonunda öyle bir taşkınlıkla, öyle bir vahşetle coştular ki, o andan itibaren kendi çöküşlerini başlattılar. Cesetleri parçalayarak, kendilerini tarihin lanetine yazdılar. O zulmü gören nice insan, kalbini hakka çevirdi. İnkârın kökü o gün kurudu, çöküş o günden başladı.
 
     İşte Allah’ın adaleti böyledir. Bir gün acı verir, ama sonunda hakikati gösterir. Ve siz, o acının içinden geçerken büyürsünüz, arınırsınız, yücelirsiniz. Çünkü hakikat, ancak onun uğruna yara alanların omuzlarında yükselir.
 
@@ -4907,7 +4908,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 141. **Allah’ın gayesi de, doğru iman edenleri temizlemek ve iman etmeyenleri/imanı red edenleri/direnenleri nimetten/hayırdan mahrum etmektir.**
 
-    Allah'ın amacı, iman konusunda sadık olanları arındırarak onları daha güçlü kılmak ve imandan sapıp direnenleri ise bereketten mahrum bırakmaktır. Bu arınma süreci iki şekilde gerçekleşti: Birincisi, münafıkların müminlerin saflarından uzaklaştırılması; ikincisi, imanı zayıf olanların deneme ve sıkıntılarla güçlendirilmesi. Acı çekme, insanları daha olgun ve güçlü kılmak için önemli bir araçtır. Ayrıca, yaralı olmasına rağmen sadık ve kararlı kalan Peygamber'in örneği, cemaate yeni bir canlılık ve güç kazandırdı. O’nun sabrı ve Allah’a olan bağlılığı, tüm müminler için bir ilham kaynağı olmuştur.
+    Allah'ın amacı, iman konusunda sadık olanları arındırarak onları daha güçlü kılmak ve imandan sapıp direnenleri ise bereketten mahrum bırakmaktır. 
+    
+    Bu arınma süreci iki şekilde gerçekleşti: Birincisi, münafıkların müminlerin saflarından uzaklaştırılması; ikincisi, imanı zayıf olanların deneme ve sıkıntılarla güçlendirilmesi. Acı çekme, insanları daha olgun ve güçlü kılmak için önemli bir araçtır. Ayrıca, yaralı olmasına rağmen sadık ve kararlı kalan Peygamber'in örneği, cemaate yeni bir canlılık ve güç kazandırdı. O’nun sabrı ve Allah’a olan bağlılığı, tüm müminler için bir ilham kaynağı olmuştur.
 
     Allah, bu dünyada dostunu düşmandan ayırmak ister. Gerçek seveni, yüzü gülerken değil, yüreği kanarken tanır. Uhud’un yangın yerinde bu oldu işte: Kimin kalbi Allah’la, kimin ki ikiyüzlü korkularla dolu, apaçık ortaya çıktı.
 
@@ -4937,7 +4940,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Muhammed'e fazla yüceltici bir saygı göstererek onun öğretisinin özünden uzaklaşmamalıyız.
     Zaman içinde yaşanan değişimler karşısında ümitsizliğe kapılmadan, Allah'ın ebedi olduğunu ve bizi koruduğunu unutmamalıyız. Allah, geçmişte olduğu gibi bugün de ve gelecekte de her şeyin üzerinde egemenliğini sürdürmektedir.
-
 
     Muhammed bir elçiydi… Evet, bir kuldu, bir insandı, çölün ortasında Allah’tan aldığı kelamı halkına getiren bir haberciydi. Ondan evvel nasıl elçiler geldiyse, o da bir gün toprakla buluşacaktı. Ölürse ne olur? Şehit edilirse ne değişir? Siz ardınızı dönüp de dağılır mısınız hemen? Yolun sahibini unutur musunuz? Yolcu ölür, ama yol ölmez. Çünkü yolun asıl sahibi Allah’tır — ve o ebedidir, sonsuzdur.
 
@@ -4982,14 +4984,14 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     kum gibi akar gider.  
     Kaldı geriye pişmanlık ve kan.
 
-    Ama bir de vardı sabırla bekleyenler.  
+    Ama bir de sabırla bekleyenler vardı.  
     Gözünü kırpmadan duranlar.  
     İtaatle, disiplinle  
     görevini bırakmayanlar.  
     Onlar da vuruldu belki,  
     ama yere değil, göğe yükseldiler.  
     Şehitlik tacı başlarında,  
-    onurlar dağ gibi arkalarında kaldı.
+    onurları dağ gibi arkalarında kaldı.
 
     Kim dünya için yürürse,  
     belki birkaç adım kazanır.  
@@ -5058,7 +5060,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Ama o parıltı...  
     Altının, zaferin, zaafın parıltısı…  
-    Ne çok baş döndürür insanoğlunun.  
+    Ne çok başını döndürür insanoğlunun.  
     Ve işte o an,  
     bir grup yiğit,  
     elleri kılıçta, gözleri ganimette  
@@ -5072,7 +5074,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Geriye sadece  
     çırpınan, şaşkın bir kalabalık kaldı.  
     Sanki bozkırın ortasında  
-    avı terk eden çoban gibi.  
+    sürüyü terk eden çoban gibi.  
 
     Ama Allah büyüktü.  
     Lütfu genişti.  
@@ -5134,12 +5136,12 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Müslümanların büyük bir kısmı elinden geldiğince mücadele etti ve düşman, onların metanetini görünce kampa geri çekildi. Bir süre sükunet oldu; yaralılar dinlendi, zorlu savaş verenler ise huzurlu uykuya teslim oldu. Onlarla tezat oluşturanlar ise münafıklar grubuydu.
     Görünüşe göre, daha önce de düşmanın karşısına cesurca çıkmak yerine Medine'nin surları içinde savunma yapmayı önerenler arasında yer almışlardı. Onların sıkıntıları, kendi zihinsel durumlarından kaynaklanıyordu: adil olanların uyku huzuru onlara verilmedi ve "ne olabilirdi" diye sürekli şikâyet etmeye devam ettiler. Ancak bunu yapanlar ancak aptallar olabilir; bilge insanlar gerçeklikle yüzleşir.
-    Allah'ın sınaması, O'nun bilgisini artırmak içindir demek yanlıştır, çünkü O her şeyi bilir. Bu sınav, bizi öznel olarak desteklemek, irademizi şekillendirmek ve bizi felaketlerle ortaya çıkacak daha düşük gizli motiflerden arındırmak içindir. Eğer denenen kişi bir ıslah olmazsa, sınav kendi kendisinin inandırıcı bir kanıtı haline gelir.
+    Allah'ın sınaması, O'nun bilgisini artırmak içindir demek yanlıştır, çünkü O her şeyi bilir. Bu sınav, bizi öznel olarak desteklemek, irademizi şekillendirmek ve bizi felaketlerle ortaya çıkacak daha düşük ve gizli amaçlardan arındırmak içindir. Eğer denenen kişi ıslah olmazsa, sınav kendi kendisinin inandırıcı bir kanıtı haline gelir.
 
 
-    Bir an vardı ki, savaşın homurtusu dağlara vurmuş, toprak korkuyla titremişti. Sonra... birden... düşman döndü. Müslümanların ilk şaşkınlığı geçtiğinde, yürekleri kavrulmuş ama direnişleri sönmemişti. Kalkanlarını sıktılar, kılıçlarını kavradılar, çamura batmış postallarıyla yere daha sıkı bastılar. Göğüslerini siper ettiler, sözlerini değil, yüreklerini konuşturdular. Düşman, bu direnci gördü; gözlerinde, “biz bunları ezemeyiz” dedi, geri döndü. Sonra... bir sessizlik çöktü dağın yamacına. Rüzgâr sustu. Kuşlar bile uçmaz oldu. Yorgun yürekler, doğanın serin eliyle kapanan göz kapaklarında dinlenmeye çekildi. Uyku indi; bir ananın alnından öptüğü gibi, savaşçıların alnına dokundu. Uyumayanlar da vardı. Onlar, savaşmayanlardı. Onlar münafıklardı.
+    Bir an vardı ki, savaşın homurtusu dağlara vurmuş, toprak korkuyla titremişti. Sonra... birden... düşman döndü. Müslümanların ilk şaşkınlığı geçtiğinde, yürekleri kavrulmuş ama direnişleri sönmemişti. Kalkanlarını sıktılar, kılıçlarını kavradılar, toprağa batmış postallarıyla yere daha sıkı bastılar. Göğüslerini siper ettiler, sözlerini değil, yüreklerini konuşturdular. Düşman, bu direnci gördü; gözlerinde, “biz bunları ezemeyiz” dedi, geri döndü. Sonra... bir sessizlik çöktü dağın yamacına. Rüzgâr sustu. Kuşlar bile uçmaz oldu. Yorgun yürekler, doğanın serin eliyle kapanan göz kapaklarında dinlenmeye çekildi. Uyku indi; bir ananın alnından öptüğü gibi, savaşçıların alnına dokundu. Uyumayanlar da vardı. Onlar, savaşmayanlardı. Onlar münafıklardı.
 
-    Bu münafıklar… Yüzlerini savaştan kaçıranlar… Daha önce de “Biz Medine’de kalalım,” diyenlerdi. Duvar arkasına saklanıp sözle kahramanlık kovalayanlardı. Kalplerine korku çökmüş, akıllarına şüphe yerleşmişti. Uyuyamadılar. Uyumadılar. Çünkü huzur, ancak yürekli olanlara gelir. Onlar kendi akıllarına esir, kendi korkularına tutsaktı. “Ne olsaydı?” diye inleyip durdular. Ama bilge kişi ‘olan’a bakar, aptal kişi ise ‘olmayan’ın arkasından ağlar.
+    Bu münafıklar… Yüzlerini savaştan kaçıranlar… Daha önce de “Biz Medine’de kalalım,” diyenlerdi. Duvar arkasına saklanıp sözle kahramanlık kovalayanlardı. Kalplerine korku çökmüş, akıllarına şüphe yerleşmişti. Uyuyamadılar. Uyumadılar. Çünkü huzur, ancak yürekli olanlara gelir. Onlar kendi akıllarına esir, kendi korkularına tutsaktı. “Ne olacaktı?” diye inleyip durdular. Ama bilge kişi ‘olan’a bakar, aptal kişi ise ‘olmayan’ın arkasından ağlar.
 
     Allah sınar insanı. Ama kendi için değil. Çünkü Allah her şeyi bilir. Onun sınavı, ateşte arıtılan altın gibi, insanı işlemek içindir. İradenin üzerindeki pası silmek, kalpteki karanlık köşeleri gün ışığına çıkarmak içindir. Bu sınav, bazen bir kılıç yarasıdır, bazen uykuya kavuşamayan bir gece. Ama her biri, insanı ya arındırır ya da yargılar.
 
@@ -5184,17 +5186,6 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 
 
-
-
-
-
-
-
-
-
-
-
-
 157. **Ve eğer Allah yolunda öldürülür veya ölürseniz, Allah’ın mağfireti ve rahmeti insanların toplayabileceklerinden daha hayırlıdır.**
 
     Allah yolunda şehit olmak veya ölmek, dünyanın tüm servetlerinden daha değerlidir. Ayette bir edebi incelik bulunur: "Siz" ifadesi iman sahibi müminlere, "onlar" ifadesi ise kâfirlerin bencilce biriktirdiği kazançlara işaret eder. Müminler, dünyevi zenginlik biriktirmek için yaşamazlar; onların hedefi Allah’ın mağfireti ve rahmetidir. Kâfirler ise yalnızca geçici servetler peşinde koşarlar. Ancak bu servetler, ebedi olan Allah’ın nimetlerinin yanında hiçbir değeri taşımaz. Müslümanın gerçek varlık gayesi, ahirette elde edeceği kalıcı kazançlardır.
@@ -5203,7 +5194,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
     Bir adam düşün, alnı ter içinde, elleri nasırlı; dağlardan topladığı odunları sırtına vurmuş, çocuklarına bir tas çorba götürmek için çırpınıyor. Ama yüreğinde bir sır var onun — çünkü o, Allah’ın yolunda yürümüş. Bir başka adam düşün şimdi, saraylar içinde yaşıyor, altınları saymakla bitmiyor, ama gönlü çorak bir toprak gibi, rahmetten, mağfiretten yoksun. İşte bu iki insanın farkını, bir ayet gibi anlatıyor bize kelam:  
     Eğer bir mümin, Allah yolunda şehit düşerse ya da vadesi geldi de bu yolda canını teslim ederse — bil ki, Allah’ın ona vereceği bağış ve rahmet, şu dünyanın tüm altınlarından, gümüşlerinden, servetinden, kasasından, sarayından daha değerlidir.
 
-    Sözde bir incelik var, ama bu incelik, dağların yamaçlarından esen rüzgâr gibi tok bir sesle konuşuyor. Ayet önce “siz” diye sesleniyor; o yiğitlere, o yüreği imanla çarpanlara. Ama sonra “onların biriktirdiği” diyor. Yani kâfirlerin, kalbi taş gibi sertleşmişlerin topladıklarıyla kıyas yapılıyor. Neden? Çünkü imanlı adamın hedefi Allah’tır. Onun kazancı mağfirettir, rahmettir. Altın, gümüş onun elinde olsa da gönlünde yer etmez. Ama ötekinin gönlü, parayla mühürlüdür.
+    Sözde bir incelik var, ama bu incelik, dağların yamaçlarından esen rüzgâr gibi tok bir sesle konuşuyor. Ayet önce “siz” diye sesleniyor; o yiğitlere, o yüreği imanla çarpanlara. Ama sonra “onların biriktirdiği” diyor. Yani kâfirlerin, kalbi taş gibi sertleşmişlerin topladıklarıyla kıyas yapılıyor. Neden? Çünkü imanlı insanın hedefi Allah’tır. Onun kazancı mağfirettir, rahmettir. Altın, gümüş onun elinde olsa da gönlünde yer etmez. Ama ötekinin gönlü, parayla mühürlüdür.
 
     Mümin, bu dünyaya mal yığmak için gelmemiştir. Onun gözleri başka bir ufka bakar, kulağı başka bir çağrıyı dinler. O bilir ki, Allah’ın bir “bağışladım” deyişi, bütün sarayları, bütün hazineleri yerle bir eder. Ve o rahmet ki — bir ana kucağı gibi sarmalar şehidi. Bir gece vakti son nefesini verirse de, bir harbin tam ortasında kılıcı kırılırsa da, o artık Allah’a kavuşmuştur. Dünya ardında kalmıştır; ne malı ne mülkü arkasından gelmiştir.
 
@@ -5294,7 +5285,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     O yüzden, yaşanan felaketi sadece dışarıda aramamak gerekir. İnsan kendi hatalarını, kendi gafletini, kendi disiplinsizliğini görmek zorundadır. Eğer bu felaketin arkasında bir sebep arıyorsak, o zaman itaatte eksik kaldığımız, Allah’ın emirlerine karşı kayıtsız davrandığımız için sorumlu olmalıyız. Başarı da, yenilgi de, nehir gibi, insanın ellerinden akar. Allah’ın gücü her şeyin üzerindedir; fakat insan, kendi amelleriyle O’na yaklaşmalıdır.  
 
-    Ve Allah, yardımını isteyenlere, O’na layık olanlara verir. Ama o yardım, tembelce bir dilek değil, çaba, azim ve sadakatle kazanılır. O zaman, her şeyin başlangıcı ve sonu Allah’ın izniyle olur, ama sorumluluğu üstlenen bizler oluruz. Bu derdi, bu zorluğu, bu imtihanı taşımak, nihayetinde bizim omuzlarımıza düşer.
+    Ve Allah, yardımını isteyenlere, O’na layık olanlara verir. Ama o yardım, tembelce bir dilek değil, çaba, azim ve sadakatle kazanılır. O zaman, her şeyin başlangıcı ve sonu Allah’ın izniyle olur, ama süreçte sorumluluğu üstlenen bizler oluruz. Bu derdi, bu zorluğu, bu imtihanı taşımak, nihayetinde bizim omuzlarımıza düşer.
 
 
 
@@ -5346,7 +5337,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Şehit, yalnız kendisi için ölmez. Gözünü kapadığı yerde onunla birlikte bir halkın yükü de taşınır. Sevinci sadece kendisine ait değildir; geride bıraktıklarına da pay bırakır o sevinçten. Çünkü bilir ki, onun ardında kalanlar artık eskisi gibi yaşamayacaktır. Ne korkuya baş eğerler, ne zillete boyun bükerler. Şehit, canını verir ama ardındakilerin başını dik bırakır. Onlara göğsünü siper ederken, aynı zamanda onurlarını da korumuştur.
 
-    Bu yüzden onların gönlünde kederin yeri yoktur. O çokça tekrar edilen söz, “Korku yoktur üzerlerinde, onlar mahzun olmayacaklardır,” tam da burada asıl anlamına kavuşur. Çünkü o korkuyu, o mahzunluğu şehit alıp götürmüştür beraberinde. Ardında kalanlara yalnız hatırasını değil, dimdik durmanın onurunu da bırakmıştır. Bu yüzden geridekiler yas tutmaz, baş eğmez. Gözleri dolar belki, ama o gözyaşı acıdan değil, gururdan akar.
+    Bu yüzden onların gönlünde kederin yeri yoktur. O çokça tekrar edilen söz, “Korku yoktur üzerlerinde, onlar mahzun olmayacaklardır,” tam da burada asıl anlamına kavuşur. Çünkü o korkuyu, o mahzunluğu şehit alıp götürmüştür beraberinde. Ardında kalanlara yalnız hatırasını değil, dimdik durmanın onurunu da bırakmıştır. Bu yüzden geridekiler yas tutmaz, baş eğmez. Gözleri dolar belki, ama o gözyaşı acıdan değil, onurdan akar.
 
     Şehit, ölmeden önce onların önünü açmıştır. Sadece ahiretin kapısını değil, bu dünyadaki umudun da yolunu göstermiştir. Fedakârlığı, sadece kendi cennetini değil, ardında kalanların direnişini de inşa etmiştir. İşte bu yüzden, onun gidişi bir kayıp değil, bir diriliştir. Bir millet, onun ardına düşer; başı yerde değil, alnı açık, omzu dik, yürüyerek. Çünkü bilir: Onun için üzülmek değil, onunla gurur duymak gerekir.
 
@@ -5357,7 +5348,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 172. **Allah’ın ve Resulü’nün çağrısına, yaralandıktan sonra da/bile icabet edenlerden, ihsanda bulunup kötülükten sakınanlara büyük bir ecir vardır;**
 
-    Uhud Savaşı'ndan sonra yaralı bile olsa Allah ve Resulü'nün çağrısına uyan müminler, tekrar toplanarak mücadeleye hazır oldular. Ebu Süfyan, gelecek yıl Badr al-Sugra'da yeniden savaşmaya davet etti. Müslümanlar bu meydan okumayı kabul etti ve hazır oldular. Ancak düşman gelmedi ve Müslümanlar, hem ticaret yaparak zenginleşmiş hem de güçlenmiş olarak geri döndüler. Yaralı bile olsalar çağrıya uyup doğru yolu izleyenlerin, Allah katında büyük bir mükâfatı vardır. Bu olay, müminlerin cesaretini, inancını ve dayanışmasını gösteren önemli bir örnektir.
+    Uhud Savaşı'ndan sonra yaralı bile olsa Allah ve Resulü'nün çağrısına uyan müminler, tekrar toplanarak mücadeleye hazır oldular. Ebu Süfyan, ertesi yıl Badr al-Sugra'da yeniden savaşmaya davet etti. Müslümanlar bu meydan okumayı kabul etti ve hazır oldular. Ancak düşman gelmedi ve Müslümanlar, hem ticaret yaparak zenginleşmiş hem de güçlenmiş olarak geri döndüler. Yaralı bile olsalar çağrıya uyup doğru yolu izleyenlerin, Allah katında büyük bir mükâfatı vardır. Bu olay, müminlerin cesaretini, inancını ve dayanışmasını gösteren önemli bir örnektir.
 
 
 
@@ -5387,7 +5378,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Günah işleyen adam, tuzlu su içene döner. İçtikçe susar, susadıkça daha çok içer. Böylece batak iyice derinleşir. İnsanın önünde iki yol vardır: Ya pişman olup dönecek, ya da inadında ısrar edip helakine koşacak. Allah’ın rahmeti, tövbe kapısını çalan herkes içindir. Ama yüz çevirenler, günahlarıyla baş başa kalır. Zamanla, işledikleri kötülükler kabuk bağlar, gerçek yüzleri ortaya çıkar. Böylece, günahın parıltısına kanacak olanlar da uyanır.
 
-    Bu süre, kâfirlerin lehine değil, aleyhinedir. Günahları katmerlendikçe, hesabı da ağırlaşır.
+    Bu süre, kâfirlerin lehine değil, aleyhinedir. Günahları katmerlendikçe, hesap da ağırlaşır.
 
     Günah, bir kez başladı mı, tutkuya dönüşür. İnsanı kendine köle eder.
 
@@ -5408,7 +5399,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Gaybın sırları size açılmaz. Ne melekler bilir, ne de sıradan insanlar. Ancak Allah dilediğine, seçtiği elçilere bildirir. Onun için Allah’a ve elçilerine sımsıkı sarılın. İnanıp doğru yoldan şaşmayanların alacağı mükâfatı ne ölçer tartar, ne de insan aklı kavrar.
 
-    İyi insanların başına belalar yağdırılır, kötüler ise nimetler içinde yüzer. Bu, dünyanın dengesidir. İnsan denenir, sınanır, terazinin kefesine konur. Özgür iradesiyle ya doğruyu seçer ya da yanlışın peşine takılır. Ama bilin ki bu sınav boşuna değildir. Sonunda hak yerini bulacak, iyiler kurtulacak, zalimler ise kendi kazdıkları kuyuya düşecektir.
+    İrade ve Plana göre bazen iyi insanların başına belalar yağdırılır, kötüler ise nimetler içinde yüzer. Bu, dünyanın dengesidir. İnsan denenir, sınanır, terazinin kefesine konur. Özgür iradesiyle ya doğruyu seçer ya da yanlışın peşine takılır. Ama bilin ki bu sınav boşuna değildir. Sonunda hak yerini bulacak, iyiler kurtulacak, zalimler ise kendi kazdıkları kuyuya düşecektir.
 
     İnsan zayıftır. Gaybı bilse, yarını görse, yüreği dayanmaz bu yüke. Onun için Allah, lütfedip bildirmez. Ancak peygamberler, veliler, hak dostları vasıtasıyla insanlığa yol gösterir. Düşenin elinden tutar, şaşıranı doğrultur.
 
@@ -5444,7 +5435,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Şu dünyada "benim" dediğin ne varsa, hepsi bir avuç seraptır. Tarlalar, evler, yığın yığın altınlar... Hepsi geçici bir rüya. Sen bu dünyaya çıplak geldin, çıplak gideceksin. O yüzden mal mülk sahibi olmakla övünme. Asıl sahip, gökyüzünü direksiz tutandır.
 
-    Servet dediğin, eline bırakılmış bir testi su gibidir. İstersen iç, istersen dök. Ama unutma ki testi kırılacak, su toprağa karışacak. Sen yalnızca bir bekçisin bu nimetlerin. Ne ekersen onu biçersin. Hakiki mülk sahibi, ölümsüz olandır.
+    Servet dediğin, eline bırakılmış bir testi su gibidir. İstersen iç, istersen dök. Ama unutma ki testi kırılacak, su toprağa karışacak. Sen yalnızca bir bekçisisin bu nimetlerin. Ne ekersen onu biçersin. Hakiki mülk sahibi, ölümsüz olandır.
 
     Benim" diye tutunduğun her şey, rüzgâr önünde saman çöpüdür.
 
@@ -5468,7 +5459,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Tarih hep böyledir zaten. Peygamberlerin kanını dökenler, hakikati boğmaya çalışanlar hep aynı maskeyi takmıştır: Kibir. Toprağa gömdükleri her peygamber, aslında kendi sonlarını kazıyordu. Ateş onları bekliyordu, ama gözleri görmüyordu.
 
-    Allah’ın kredisini ikiye katlayıp defalarca çoğaltacağı/kat kat kat artıracağı güzel bir borcu Allah’a ödünç verecek olan kimdir? İstediğinizi veya bolluğu veren Allah’tır ve dönüşünüz O’na olacaktır." : Bakara 245"
+    "Allah’ın kredisini ikiye katlayıp defalarca çoğaltacağı/kat kat kat artıracağı güzel bir borcu Allah’a ödünç verecek olan kimdir? İstediğinizi veya bolluğu veren Allah’tır ve dönüşünüz O’na olacaktır." : Bakara 245
 
     "Allah'a borç verin" sözü, cömertliğin ta kendisidir. Ama kalbi katı olan anlamaz.
 
@@ -5528,7 +5519,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Nur Kitabı ki yol gösteriyor karanlıkta kalanlara
 
-    Ama nafile! İnsanoğlu'nun gözü kör, kulağı sağır olmuş. Musa'nın asası yılana dönüştüğünde de, Davud'un zebur'undaki hikmetler çağladığında da aynı inat: "Daha ne gösterirsen göster, inanmayız!"
+    Ama nafile! İnsanoğlu'nun gözü kör, kulağı sağır olmuş. Musa'nın asası yılana dönüştüğünde de, Davud'un Zebur'undaki hikmetler çağladığında da aynı inat: "Daha ne gösterirsen göster, inanmayız!"
 
     Peygamberler tarihi, bir reddedilişler silsilesidir. Her nesil kendine yeni bahane bulur.
 
@@ -5573,9 +5564,9 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
 186. **Mallarınız ve canlarınız konusunda mutlaka imtihan edileceksiniz; Sizden önce kendilerine kitap verilenlerden ve çokça ilahlara kulluk edenlerden sizi üzecek çok şeyler işiteceksiniz. Ama sabreder ve kötülüklerden sakınırsanız, işte bu, bütün işlerde belirleyici bir faktör olacaktır.**
 
-    Altınların varsa "Şükür mü edeceksin, şımarmayacak mısın?" diye sınarlar seni. Yokluğa düşersen "Sabredecek misin, yoksa isyan mı edeceksin?" diye bakarlar. Bu dünya bir sınav yeridir; her şeyinle, her halinle deneneceksin.
+    Altınların varsa "Şükür mü edeceksin, yoksa şımaracak mısın?" diye sınanırsın. Yokluğa düşersen "Sabredecek misin, yoksa isyan mı edeceksin?" diye bakılacaksın. Bu dünya bir sınav yeridir; her şeyinle, her halinle deneneceksin.
 
-    İman etmek kolay değil. Ehl-i Kitap'tan, putperestlerden hakaretler işiteceksin. Alay edecekler, gülecekler ardından. Ama unutma: Sabır, demiri altın eden ateştir. Kötülüğe kötülükle karşılık vermezsen, gerçek erdem senin olacak.
+    İman etmek kolay değil. Ehl-i Kitap'tan, müşriklerden, putperestlerden hakaretler işiteceksin. Alay edecekler, gülecekler ardından. Ama unutma: Sabır, demiri arıtan ateştir. Kötülüğe kötülükle karşılık vermezsen, gerçek erdem senin olacak.
 
     Zenginlik de fakirlik de imtihandır. Biri gurur, diğeri isyan tuzağıdır.
 
@@ -5620,7 +5611,7 @@ SEVGİ VE MERHAMETİ SONSUZ ALLAH’IN ADIYLA
 
     Kendi yaptıklarıyla gurur duyan ve yapmadıkları işlerden övgü alan kişiler, cezadan kurtulamayacaklardır. Bu tür insanlar, başkalarına zarar verirken bundan elde ettikleri şöhretle övünürler. Allah’ın hakikatlerini çiğneyip yanlış ibadet anlayışlarını yüceltirler. Kendilerinde olmayan erdemlerle övünür ve aldatmacalarına rağmen elde ettikleri başarıları kendilerine mal ederler. Ancak bu tür sahte tutumlar, onları sonunda ağır bir cezaya sürükleyecektir.
 
-    Şu dünyada öyle adamlar vardır ki, elleri boş ama dilleri dolu. Yapmadıkları hayırlarla övünür, almadıkları zaferlerle kasılırlar. Kibirleri dağları aşar ama yürekleri bir karınca yuvası kadar bile değildir.
+    Şu dünyada öyle insanlar vardır ki, elleri boş ama dilleri dolu. Yapmadıkları hayırlarla övünür, almadıkları zaferlerle kasılırlar. Kibirleri dağları aşar ama yürekleri bir karınca yuvası kadar bile değildir.
 
     Bunlar dünya bilgeliğiyle övünürler ama:
 
@@ -5919,18 +5910,6 @@ the People of the Book and to those who are unlearned: “Do ye
 guidance, but if they turn back, thy duty is to convey the
 
 Message; and in Allah’s sight are (all) His servants.
-
-C.55.-(Verses 21-30)-If the People who received earlier
-
-revelations confine themselves to partial truths, and in their
-
-pride shut their eyes to the whole of the Book of Allah, their
-
-day is done: Let the Muslims seek the society and friendship of
-
-their own, and trust in Allah, Who knows all, and holds every
-
-soul responsible for its own deeds.
 
 21. As to those who deny the Signs of Allah, and in defiance of
 
@@ -6983,8 +6962,6 @@ followed you.” They were that day nearer to Unbelief than to
 Faith, saying with their lips what was not in their hearts. But
 
 Allah hath full knowledge of all they conceal.
-
-54
 
 168. (They are) the ones that say, (of their brethren slain),
 
